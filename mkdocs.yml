@@ -1,0 +1,12 @@
+site_name: Garou LARP Books
+
+theme:
+  name: material
+  features:
+    - search.highlight
+    - search.suggest
+    - navigation.indexes
+    - navigation.top
+
+plugins:
+  - search
