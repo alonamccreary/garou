@@ -308,8 +308,6 @@ It is this latter quality that Werewolf is most interested in. Magical swords an
 
 **Werewolf: The Apocalypse** takes the best qualities of both anthropological fetishes and magical items for its fetishes, even at their most basic contrasts. Like 
 
-**14** 
-
 Hammer and Klaive 
 
 tribal fetishes, werewolves mostly see fetishes as a commodity that can be made and reproduced. When a werewolf creates a set of fetish bells to keep Wyrm spirits out of his Kinfolk's home, she doesn't then exclude anyone else from making the same fetish. Indeed, a younger Garou might well ask to examine the bells in order to get a better idea of how to make another set! On the extreme end of the anthropological side of fetishes are talens, one-shot fetishes made comparatively easily and of considerably less impressive stature than fetishes. Talens are very much like anthropological fetishes — special, but special because they perform useful functions. Someone carrying a talen is simply well armed, if that. 
@@ -478,8 +476,6 @@ But other than these rare exceptions, talens hardly carry the social mystique fe
 
 The death of a fetish owner always creates a dilemma for a sept. Should the spirit, having done great service to the fallen warrior, be released in thanks (or in fear of its retribution)? Or are fetishes too valuable and precious to give up, and should they be 
 
-_22_ 
-
 Hammer and Klaive 
 
 passed on to others in need? Some tribes have firm opinions on the matter (as discussed above,) but in most tribes, the decision varies from sept to sept, and sometimes from fetish to fetish. 
@@ -614,8 +610,6 @@ In addition, no other tribe makes such pointedly flamboyant fetishes. As far as 
 
 The Norse culture was one of expert craftsmen, and the Get of Fenris reflect that tradition proudly. Get fetishes are almost always handcrafted. The strong trust between members of the tribe (after all, if they're 
 
-_26_ 
-
 Hammer and Klaive 
 
 Fenrir and still alive, then they're hardy enough to be trusted) also means that they frequently make fetishes communally. One werewolf will work carpentry, another will cast the metal, and the third will perform the actual Rite of the Fetish. The children of Fenris never simply create a fetish hammer; they create an excellent hammer in its own right, and then bind the spirit into it. Unsurprisingly, they're a tribe that gets spirits to agree to being bound easily. 
@@ -665,8 +659,6 @@ Since they take such pride in their fetishes, Silver Fangs often construct fitti
 The two Native American tribes are unique in that they record a particularly novel legend of the first fetish that is dissimilar to any of the European legends. According to this legend, fetishes are the bones of the Triat, shattered and fallen to Earth in their struggles against each other. When these first bones fell to the ground, the purest example of taw primordial spirit turned into material reality, the three brothers gathered them among themselves and sorted the bones be tween them. Each brother took responsibility for the care of one set of bone fragments. Uktena, the oldest and most careful of the brothers, took the Wyrm's bones for himself, Croatan took the bones of the Weaver, and Wendigo the bones of the Wyld. Over time, each brother learned how to make more of these bones themselves, and thus were fetishes born. 
 
 The Uktena don't only dabble in forcing Banes into their own fetishes, but they're the only tribe who'd dare on any large scale. Even fetishes with Wyld spirits tend to be soaked in blood and incorporate bone in 
-
-_28_ 
 
 Hammer and Klaive 
 
@@ -998,8 +990,6 @@ Chapter One: Objects of Worship
 
 _The LORD said to Moses, "Speak to the Israelites and get twelve staffs from them, one from the leader of each of their ancestral tribes. Write the name of each man on his staff. On the staff of Levi write Aaron's name, for there must be one staff for the head of each ancestral tribe." ... The next day Moses entered the Tent of the Testimony and saw that Aaron's staff, which represented the house of Levi, had not only sprouted but had budded, blossomed and produced almonds._ 
 
-— Numbers 17, 1-3,8 (NIV) 
-
 Neither man nor Garou exists in a vacuum, and neither does anything he creates. The creation of fetishes is shaped by the culture of the Garou (or Fera) creating it, down to the very sept that they exist in. Even if two Garou are from nearly identical, one tribe septs, they would still attempt to create the same fetish in subtly different ways, for one simple reason: the different people that surround them. All rites are ultimately social, and even the Rite of the Fetish, capable of being performed by a single individual, is in the end, a group effort. 
 
 ## _Fetishes: Formula or Fantasy?_ 
@@ -1187,7 +1177,6 @@ And finally, you can go it alone and make it yourself. This has a whole host of 
 **----- Start of picture text -----**<br>
 likely to treat it better. You don't<br>need to decorate a fe-<br>tish by adding on<br>ornaments after<br>the fact, you<br>**----- End of picture text -----**<br>
 
-
 can incorporate the decoration right from the beginning and craft a beautiful object as is. There's no risk of discovery from ugly influences, and you don't risk an artist forcing his own unwelcome interpretation on the object. There's only one drawback, even if it's a fairly large one — you need to know how to make it. A lot of good solid Craft ability is a must for going down this road, but the rewards for such effort mean that many would-be fetish creators work hard to improve their ability here. Some even begin to think it's part of the job description: You're not a fetish creator unless you create the fetish, every last bit. 
 
 ## _Optional Rule: Assembling Fetish Materials_ 
@@ -1355,8 +1344,6 @@ Finally, the ritualist can choose to 'double up' on tactics in order to reduce t
 This continues until either the ritualist gains the needed advantage of successes (whereupon the fetish is created) the spirit does the same (in which case the spirit becomes bored and leaves) or the negotiations stall, with the ritualist unable to think of a way to continue. (In which case, again, the spirit leaves.) 
 
 **Example** : Desota Mourns-the-Dead is a Galliard with Charisma, Wits, and Rituals all at 3, and Expression 4. She is attempting to make a Shadow's Echo, a wooden flute that eases the souls of the recently deceased and stops them becoming ghosts. To do this, she is attempting to bind a water-spirit into the flute. This spirit has Gnosis and Willpower 7. 
-
-_54_ 
 
 Hammer and Klaive 
 

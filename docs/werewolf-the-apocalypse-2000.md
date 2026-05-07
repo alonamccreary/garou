@@ -191,8 +191,6 @@
 |Crippled|_-5_|Characteriscatastrophicallyinjured,and he cancrawlonlyaboutoneyardperturn.|
 |Incapacitated||Characterisincapableofmovementandlikelyunconscious.|
 
-
-
 ## 
 
 **==> picture [14 x 32] intentionally omitted <==**
@@ -277,8 +275,6 @@
 ||||botheredby theGarou.EvenKinfolkaren'tthisstoic,so|
 ||||Garoutendto beverysuspiciousofsuchfolks.|
 |||**Wetrewo/f: TAe Ap**||
-
-
 
 ## 
 
@@ -441,8 +437,6 @@
 |Mauled|-2|.|Q|
 |Crippled|-5||Q|
 |Incapacitated|||Q.|
-
-
 
 **==> picture [141 x 16] intentionally omitted <==**
 

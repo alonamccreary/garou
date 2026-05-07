@@ -1,4 +1,3 @@
-_**1**_ 
 
 Creative Director: Rich Thomas Developed by Matthew McFarland Written by Stew Wilson Edited by Michelle McFarland-Lyons Layout by Ron Thompson Art by Dan Brereton, Steve Ellis, David Leri, Jason Manley, Torstein Nordstrand, Michael Phillippi, Steve Prescott, Ron Spencer. 
 
@@ -7,10 +6,6 @@ Creative Director: Rich Thomas Developed by Matthew McFarland Written by Stew Wi
 **==> picture [84 x 129] intentionally omitted <==**
 
 © 2012 CCP hf. All rights reserved. Reproduction without the written permission of the publisher is expressly forbidden, except for the purposes of reviews, and one printed copy which may be reproduced for personal use only. White Wolf, Vampire and World of Darkness are registered trademarks of CCP hf. All rights reserved. Vampire the Requiem, Werewolf the Forsaken, Mage the Awakening, Promethean the Created, Changeling the Lost, Hunter the Vigil, Geist the Sin-Eaters, and Storytelling System are trademarks of CCP hf. All rights reserved. All characters, names, places and text herein are copyrighted by CCP hf. CCP North America Inc. is a wholly owned subsidiary of CCP hf. The mention of or reference to any company or product in these pages is not a challenge to the trademark or copyright concerned. This book uses the supernatural for settings, characters and themes. All mystical and supernatural elements are fiction and intended for entertainment purposes only. This book contains mature content. Reader discretion is advised. Check out White Wolf online at http://www.white-wolf.com 
-
-_**2**_ 
-
-_**3**_ 
 
 **==> picture [487 x 164] intentionally omitted <==**
 
@@ -37,10 +32,6 @@ It’s worth looking at the hunting grounds of both Uratha and Garou before we g
 ## A lArger World oF dArkness 
 
 The core premise of the World of Darkness hasn’t changed. It’s a world much like ours, but with monsters lurking just out of view. Werewolves aren’t the only creatures in the shadows; vampires, ghosts, mages, faeries and other beings all dwell at the edges of human awareness. In the original World of Darkness, each game was self- 
-
-_**4**_ 
-
-_**5**_ 
 
 **==> picture [238 x 672] intentionally omitted <==**
 
@@ -85,10 +76,6 @@ The original World of Darkness operated on the principle that the events put for
 **Werewolf: The Forsaken** instead presents more modular pieces of the World of Darkness. Operating on a “year zero” principle, the events detailed in each book are events that have just happened. While references do exist to previous books, each one is designed to be independent—the material in **War Against the Pure** doesn’t depend on **The Rage** or any earlier book. Everything beyond the **Werewolf: The Forsaken** corebook is an option that the Storyteller can use without “invalidating” the material in other books. 
 
 On the one hand, a metaplot allows the writers of the game to portray an ongoing story and to engage players by putting them front-and-center at major events in the world. If your troupe is following the story, it gives events they were involved in additional impact. On the other, some players prefer the modular approach of the current World of Darkness, where each game can introduce new and esoteric things without having to worry about what the “canon” says—the new auspices in **Signs of the Moon** and the treatment of shapeshifters in both **Skinchangers** and **War Against the Pure** focus on this angle. 
-
-_**6**_ 
-
-_**7**_ 
 
 ## Tribes 
 
@@ -148,10 +135,6 @@ The Fianna hail from Western Europe, though to other Garou they’re always “t
 
 Warriors who follow the path of the great Fenris wolf, the Get of Fenris have strong echoes in **Forsaken** ’s Blood Talons, especially in the Lodge of Garm. In **Apocalypse** , they’re proud and brash werewolves of Nordic, Teutonic, or Saxon descent who have a reputation as some of the finest fighters the Garou Nation have created. While individual members of other tribes may be the best in a given field, every member of the Get is raised to fight for Gaia. The 
 
-_**8**_ 
-
-_**9**_ 
-
 downside to that focus is a sense of elitism above and beyond that of other werewolves. A member of another tribe has to prove herself before one of the Get will respect her ab **Forsaken Get of Fenris:** Many references to the Fenrir exist throughout **Forsaken** , not least the Blood Talons and the Lodge of Garm. But while that lodge focuses on perfection in battle, the Get of Fenris (as a lodge) instead focus on fighting to win. Members see nothing wrong with bringing a gun to a knife-fight, nor to rigging an alley with Claymore mines before luring their Bale Hound enemies to their deaths. The Fenrir do understand honor, but it takes a back seat to victory. To that end, the lodge is open to both Blood Talons and some Iron Masters who share their appreciation of combat pragmatism. While Fenris-ur watches over the Blood Talons as a whole, the Get of Fenris have taken Sköll, a child of Fenris, as their patron. 
 
 **Systems:** Members of the Fenrir must have Glory •• and Cunning •, and must possess at least three dots in one of Brawl, Firearms, or Weaponry. Fenrir can get their hands on lots of weapons that otherwise would be restricted; members gain a +2 bonus when working the black market ( **World of Darkness Rulebook** , p. 86) in order to acquire weapons or military equipment **.** Members can also increase the Brawl, Intimidation, Firearms, and Weaponry Skills at (new dots x 2) experience points rather than (new dots x 3), and can purchase Fighting Style Merits for (new dots) experience points. 
@@ -198,10 +181,6 @@ The Silent Striders’ roots may be in North Africa and the Middle East, but the
 
 **Systems:** Silent Striders must maintain Wisdom •• and Cunning • and may not possess the Ancestors or Resources Merits. Members must possess Athletics ••, Occult ••, Stealth •, and Streetwise •. Owl gives each member of the tribe the two-dot version of the Fleet of Foot Merit; if he already possesses any dots in the Merit, he gets the three-dot version. Silent Striders also treat Evasion Gifts as tribal Gifts. 
 
-_**10**_ 
-
-_**11**_ 
-
 ## silver FAngs 
 
 Ask one werewolf, and the Silver Fangs are the noble examples of everything that Garou should be. Ask another, they’re hubristic inbreds who value bloodline far more than ability. Originally hailing from Russia, the Silver Fangs rose to prominence many years ago, setting up courts and kingdoms made up of many septs. As of the Revised edition of **Werewolf: The Apocalypse** , the main group of Silver Fangs in America has a new king, who has proved a practical and shrewd leader, especially in the destruction of the Seventh Generation cult. Other Garou are slowly coming around to the older image of the Silver Fangs as those born to lead. 
@@ -247,10 +226,6 @@ the sudden shift and attack, and cannot apply her own Defense for the turn. If t
 The Uktena are made up of Garou from dispossessed animistic peoples and cultures across the world. The tribe was originally one of three who flourished in North and Central America, though the people who make up the Uktena have long since lost any claims to a native homeland. Among all the Garou, the Uktena have had more contact with Umbral denizens than any other. The tribe has bound ancient and indestructible Banes, and negotiated spirit pacts with all manner of powerful beings to create new and powerful rites. Their time spent dealing with spirits who think in alien ways has left the tribe with a reputation for unstable behavior, and rumors that many have fallen to the Wyrm. 
 
 **Forsaken Uktena:** The Uktena are a lodge of the dispossessed, accepting Bone Shadows and Ghost Wolves who have lost their native lands. The lodge isn’t necessarily secretive, but few even among the Bone Shadows fully understand the pacts that the lodge has forged with other spirits. The Uktena deliberately cloak their rites with aspects picked up from a dozen human cultures and ritual traditions to keep them secret. Individuals who wish to join the lodge must first petition a mentor, and after a period of study must find a spirit that no werewolf has forged a deal with before and either learn a rite from it or trick it into a 
-
-_**12**_ 
-
-_**13**_ 
 
 fetish. The lodge is named for its totem spirit, the Uktena— a water-spirit blending features of serpent, deer, and coyote. 
 
@@ -316,10 +291,6 @@ Werewolves who join the Hunters in Darkness are those who find their new senses 
 
 **Apocalypse Hunters in Darkness:** The Hunters in Darkness slot right in to **Apocalypse** as a tribe that tends to the wilderness and the Wyld places without the antihuman bias of the Red Talons, or the Black Furies’ focus on Goddess-worship. The Hunters in Darkness instead 
 
-_**14**_ 
-
-_**15**_ 
-
 **==> picture [487 x 342] intentionally omitted <==**
 
 exemplify the werewolf as stalker and hunter rather than warrior, a niche that **Apocalypse** leaves relatively unfilled. Boar, the tribe’s totem, requires each Hunter in Darkness to take a territory that she calls her own; Theurge and Galliard Hunters favor territory in the Umbra, while Ahroun and Philodox find a space away from humans—not necessarily a space in the wilderness, but one that the werewolf can live in without having to connect with human society. Ragabash have no traditional territory, taking whatever area suits and is part of the territory of their pack. Even away from their territory, the Hunters in Darkness stalk minions of the Wyrm. Their packs stalk weaker Banes, tracking them back to their tainted lairs. Members of Boar’s tribe are fiercely individual, neither asking for nor receiving help from other packs. Some even leave their packmates behind on a hunt, claiming that they’d get in the way. The Mennina cut themselves off from others so effectively that they spurn the help of other Garou, and some believe that it’s only a matter of time before they break from the Garou Nation entirely. 
@@ -357,10 +328,6 @@ Werewolves without a tribe, the Ghost Wolves have some reason that they cannot b
 **Apocalypse Ghost Wolves:** While **Apocalypse** does include tribeless werewolves in the form of Ronin, these outsiders to the close-knit Garou Nation don’t fill the same role as the Ghost Wolves. Instead, consider making them a “tribe” of werewolves who reject a tribe: werewolves who don’t join any given tribe and instead fall through the cracks. While many other tribes look down on them, the Ghost Wolves still have allies—chiefly among the Bone Gnawers and Children of Gaia. In **Apocalypse** terms, Ghost Wolves are a “tribe” of werewolves who gather together out of a sense of self-interest, without a totem spirit or patron. To go down this road, use the tribal mechanics presented here. 
 
 **System:** A werewolf who remains a Ghost Wolf cannot take the Ancestors or Pure Breed Backgrounds. Starting Gifts include Persuasion (as the homid Gift), Resist Pain, and Tagalong. Initial Willpower is 3. Ghost Wolves have no direct list of Gifts beyond Level 1, and must learn each one from another werewolf. 
-
-_**16**_ 
-
-_**17**_ 
 
 ## Signs of the Moon 
 
@@ -427,10 +394,6 @@ Ithaeur, Cahalith, and Rahu use the rules presented in **Apocalypse** for Theurg
 ## the stAlker’s Moon: irrAkA 
 
 The Irraka are most comfortable when Luna hides her face. Without the moon’s guidance, they use the gift of deception to walk unseen among their enemies. The Irraka is the first one in her pack to follow a trail and the first to catch sight of her prey. She’s a consummate scout, able to investigate an area or tail a person far better than other 
-
-_**18**_ 
-
-_**19**_ 
 
 **==> picture [240 x 673] intentionally omitted <==**
 
@@ -506,10 +469,6 @@ Being born among the hairless monkeys does have its disadvantages—human cultur
 
 **Systems:** A Hishu werewolf starts with Harmony 6, rather than 7, and Harmony costs (new dots x 4) to raise with experience points. He can only trade off one point of Harmony for experience points at character creation, if the Storyteller allows that option. A human-born ignores one point of Social penalties from Primal Urge (so suffers no penalties at Primal Urge • and ••, −1 at Primal Urge ••• and ••••, and so on). 
 
-_**20**_ 
-
-_**21**_ 
-
 ## ’ ulle u 
 
 his peers. These new thoughts and sensations slowly drive the werewolf mad, as he wonders why the rest of his pack cannot understand what he does. Some challenge for leadership, believing that they would make a better alpha and subconsciously re-enacting the murder of Father Wolf. Others remove themselves to the fringes of the pack, needing to be with others but unable to bear it for long. 
@@ -537,7 +496,6 @@ Deeply connected to the soul of the world, the wolfborn are born part of a litte
 **----- Start of picture text -----**<br>
 ness Rulebook .<br>**----- End of picture text -----**<br>
 
-
 Spirit Magics 
 
 ## Spirit Magics 
@@ -563,10 +521,6 @@ Thousand Forms thus acts as an optional replacement for the five-dot Gift Primal
 ## ApocAlypse to ForsAken 
 
 Gifts in **Werewolf: The Apocalypse** are spiritual powers taught to Gaia’s defenders by spirits. Each breed, auspice, and tribe has a selection of Gifts available, with a certain amount of cross-pollination between them—a number of the lists include Sense Wyrm, for example. 
-
-_**22**_ 
-
-_**23**_ 
 
 ## concept s 
 
@@ -622,10 +576,6 @@ _**Example:** Kira’s playing a game that synthesizes_ _**Apocalypse** and_ _**
 
 Gifts in **Werewolf: The Forsaken** are abilities given by individual spirits, who grant access to themed lists. Each list is a unique collection of Gifts, though some lists either have similar abilities—Darkness, Eclipse, and Stalking all con- 
 
-_**24**_ 
-
-_**25**_ 
-
 tain one-dot Gifts that allow dark-vision of some kind—or have similar themes while containing different powers, like City and Urban Gifts. 
 
 ## concept s 
@@ -649,8 +599,6 @@ Translating Gifts to **Apocalypse** is in some ways easier than going the other 
 |Socialize<br>Etiquette|
 |Survival<br>Primal Urge or Survival|
 |Weaponry<br>Melee|
-
-
 
 Where a Gift calls for a Wits + Composure roll, it should instead use Perception + Alertness. 
 
@@ -694,15 +642,9 @@ Rites in **Forsaken** have more unified mechanics than those in **Apocalypse** .
 |---|---|---|
 |2<br>3<br>4<br>5|10<br>10<br>20<br>30|5 minutes<br>10 minutes<br>10 minutes<br>15 minutes|
 
-
-
 As these rules involve converting existing rites, the timings and successes required may not necessarily match up with the other rites presented in **Werewolf: The For-** 
 
 **==> picture [489 x 348] intentionally omitted <==**
-
-_**26**_ 
-
-_**27**_ 
 
 **saken** . If a rite requires the ritemaster to spend a point of Gnosis, it instead requires a point of Essence. The effects of the rite work as indicated in **Werewolf: The Apocalypse** . 
 
@@ -759,10 +701,6 @@ Primal Urge doesn’t exist as a Skill in **Forsaken** . In instances where it w
 ## ForsAken to ApocAlypse 
 
 An Uratha’s connection to the spirit world is a direct result of how closely he holds to the balance of spirit, wolf, and man. This is represented by the Harmony trait. Primal Urge taps into the deep Rage that lurks in his heart. 
-
-_**28**_ 
-
-_**29**_ 
 
 If running **Forsaken** with **Apocalypse** rules, use Gnosis to represent Harmony. As all Uratha are human-born, they should start with one point and can raise it with freebie points as normal. While Gnosis does measure spiritual connection, it’s a different thing—divorced from a werewolf’s conduct and something to be gained through meditation and introspection rather than abiding by behavioral rules. Uratha do not suffer Gnosis penalties for carrying silver objects. 
 
@@ -851,13 +789,7 @@ If you’re running **Apocalypse** with **Forsaken** rules, characters still hav
 |2|Aiding spirits of the Wyrm|
 |1|Violating a caern; Betraying your sept|
 
-
-
 Dice Rolled (Roll five dice) (Roll five dice) (Roll four dice) (Roll four dice) (Roll three dice) (Roll three dice) (Roll three dice) (Roll two dice) (Roll two dice) (Roll two dice) 
-
-_**30**_ 
-
-_**31**_ 
 
 relationship value one another higher than other members of their pack, and that puts the pack at risk. 
 
@@ -929,10 +861,6 @@ Rank Total Renown 1 (Cliath) 0 2 (Fostern) 7 3 (Adren) 13 4 (Athro) 19 5 (Elder)
 
 When a character has performed a deed worthy of a new dot of Renown (see the Renown descriptions in **Forsaken** , and the modified Purity description below), she can petition a werewolf of higher Renown to perform the Rite of Accomplishment. This rite uses the same system as the Rite of the Spirit Brand in **Forsaken** , but it’s entreating the sept to acknowledge the werewolf’s deeds—spirits do not factor in to the werewolf’s increase in Renown. Once a Garou has enough Renown to increase in Rank, she challenges another werewolf of higher Rank as normal. 
 
-_**32**_ 
-
-_**33**_ 
-
 ## losing renoWn 
 
 Renown in **Forsaken** is a measure of a werewolf’s esteem in the eyes of Mother Luna (for the Tribes of the Moon, at least). As such, it’s given by the spirits—the Rite of the Spirit Brand asks the Lunes to mark the werewolf with the actions they’ve seen from him. As such, any failure on the werewolf’s part is inherent in the chance of failure for the Rite. 
@@ -993,8 +921,6 @@ Remember that Renown is measured by spirits, not by other Uratha, and Lunes are 
 |12−25<br>Three|
 |26−47<br>Four<br>48+<br>Five|
 
-
-
 ## losing renoWn 
 
 The **Apocalypse** rules allow for a werewolf to lose Renown. This is possibly even more appropriate for the Uratha, given the ever-watching eyes of the Lunes. A werewolf who loses more temporary Renown than he has in a given category loses a dot of Renown to gain 10 temporary Renown. That loss can affect his honorary Rank among spirits. 
@@ -1018,12 +944,6 @@ The **Apocalypse** rules allow for a werewolf to lose Renown. This is possibly e
 |Give in to Death Rage|−1|
 |Attacking a packmate in the throes of kuruth|−3|
 |Breaking the Oath of the Moon|−5|
-
-
-
-_**34**_ 
-
-_**35**_ 
 
 If a werewolf loses points in the primary Renown of his auspice or his tribe, any Renown category that then would be higher than his primary Renown is reduced as well so that it’s equal to his primary. 
 
@@ -1103,10 +1023,6 @@ This then leads to a point where the Umbra is a place where the Garou can feel a
 
 The Umbra extends to a level that dwarfs the Shadow of **Forsaken** . **Apocalypse** focuses on one “layer,” an animistic realm where everything has a spirit. In addition to encircling the world, the Umbra extends further out, and contains realms corresponding to stars and planets throughout the solar system. Moon Bridges can link distant caerns with paths through the Umbra far shorter than the 
 
-_**36**_ 
-
-_**37**_ 
-
 distance in the real world. Most importantly, the Garou can enter the Umbra from any point, calling on their half-spirit nature to breach the Gauntlet. 
 
 The Shadow of **Forsaken** (called the hisil in the First Tongue) is quite different. The great spirit Urfarah, called Father Wolf, acted as gatekeeper between the world of flesh and the world of spirit, returning humans and spirits alike to their correct realm. When Urfarah grew weak, his firstborn decided that they would not share the burden of his weakness, and slew him—and in so doing, they made the Shadow harder to reach from the physical world. 
@@ -1182,10 +1098,6 @@ Spirits force themselves into humans in both **Apocalypse** and **Forsaken** . I
 In **Forsaken** , any spirit who crosses the Gauntlet and chooses a living fetter creates one of the Ridden, a SpiritClaimed. The spirit can then remain in the physical world in Twilight for as long as needed and can use its Influences to drive its host’s actions, thoughts, and emotions. This is somewhat like the Bane Charm: Corruption, though the spirit has to focus on its host. 
 
 True possession comes in two forms. Both require the spirit to have snared its victim using Living Fetter. The Possession Numen allows a spirit to override the mind and the will of its host, driving the meat-body like a demented puppeteer. The Claim Numen operates like Possession in **Apocalypse** , melding flesh and ephemera to make a blasphemous hybrid of human and spirit. 
-
-_**38**_ 
-
-_**39**_ 
 
 The main possessed that show up in any **Apocalypse** game are fomori, which are humans and animals warped by Banes. Fomori use the rules for the Spirit-Claimed on p. 283 of **Werewolf: The Forsaken** . The fomori powers from the **Apocalypse** rulebook are converted here. 
 
@@ -1265,10 +1177,6 @@ While at first glance the Azlu and Beshilu look like the Ananasi and the Ratkin,
 
 The patron spirits of werewolves, totems provide a spiritual link between members of the same pack. In **Apoc-** 
 
-_**40**_ 
-
-_**41**_ 
-
 **alypse** , players select their characters’ totem from a long list of possibilities then spend any extra Background points to make their patrons unique. In **Forsaken** , players create their pack’s totem from whole cloth by spending the pack’s total dots in the Totem Merit. 
 
 No rule of thumb can accurately convert a totem from **Apocalypse** to **Forsaken** —Unicorn’s bonuses would cost seven Totem points in both **Apocalypse** and **Forsaken** , while Fox costs seven Totem points in **Apocalypse** and over thirty Totem points in **Forsaken** , even taking the spirit’s ban into account. 
@@ -1306,10 +1214,6 @@ Physical Attributes don’t change between games.
 The Mental Attributes in **Forsaken** include Intelligence, Wits, and Resolve. Note that **Forsaken** doesn’t have Perception as an Attribute, that’s handled with Wits + Composure. Resolve covers mental fortitude in a way similar to some uses of Willpower rolls in **Apocalypse** . 
 
 The Social Attributes in **Forsaken** are Presence, Manipulation, and Composure, a change from the Charisma, Manipulation, and Appearance Attributes that appeared in **Apocalypse** . As a rule of thumb, Charisma and Presence are similar enough, though Presence includes some parts of Appearance. If you have a character that is particularly good looking, you can purchase that as a Merit. Compo- 
-
-_**42**_ 
-
-_**43**_ 
 
 sure measures how well a character keeps his cool in social situations—another case where **Apocalypse** used either Charisma or Willpower rolls. 
 
@@ -1389,10 +1293,6 @@ _**Example:**_ Stalks-the-Truth’s Willpower starts at 4 and his Harmony at 7. 
 
 Thinking over Stalks-the-Truth’s concept, he’s big on finding and exposing the truth. Bryan takes that as a good starting point to select the Virtue of Hope: The truth has 
 
-_**44**_ 
-
-_**45**_ 
-
 to have some property that lies don’t have, or it’s not worth finding. For all that most werewolves have some element of Wrath about them, he decides that Stalks-the-Truth’s fixation with fast cars speaks to a deeper need—his Lust for unbounded speed. 
 
 ## step eigh t: spArk oF liFe 
@@ -1445,10 +1345,6 @@ With two points to spend on Talents, Jack puts a point in both Alertness and Dod
 
 With three dots to spend in Skills, one goes in Leadership as a counterpart to Eric’s Persuasion Skill. Another goes on a dot of Melee—as a campus cop, he’s got basic training in using a baton to take down drunks with knives. The final dot goes to pick up a second dot of Stealth, reasoning that if Eric’s hunting from the shadows he should be good at keeping to those shadows. 
 
-_**46**_ 
-
-_**47**_ 
-
 As Eric has rituals in his _**Forsaken**_ incarnation, the single dot to spend in Knowledges should really go into Rituals. Jack doesn’t argue. 
 
 ## step Four: AdvAntAges 
@@ -1494,40 +1390,25 @@ Virtue: Hope Auspice: Irraka Vice: Lust Tribe: Iron Master Concept: New Journali
 **==> picture [532 x 549] intentionally omitted <==**
 
 **----- Start of picture text -----**<br>
-Power Intelligence OOOOO ● Strength OOOOO ● Presence ● OOOOO<br>Finesse Wits OOOOO ● Dexterity OOOOO ● Manipulation ● OOOOO<br>Resistance Resolve OOOOO ● Stamina OOOOO ● Composure OOOOO ●<br>SKILLS OTHER TRAITS<br>Mental Merits Health<br>(-3 Unskilled)<br>(+2 Dalu Form, +4 Gauru Form, +3 Urshul Form)<br>Academics________ OOOOO Contacts _________________(Journalists, Politicians) OOOOO OOOOOOOOOOOOOOOO<br>Computer_________ OOOOO Language _________________(Spanish) OOOOO <br>Crafts___________ OOOOO Resources_________________ OOOOO<br>Investigation_____DiggingUp Dirt OOOOO Totem_________________ OOOOO Willpower<br>Medicine__________ OOOOO _________________ OOOOO OOOOOOOOOO<br>Occult___________ OOOOO _________________ OOOOO <br>Politics___________ OOOOO _________________ OOOOO<br>Science___________ OOOOO _________________ OOOOO Primal Urge<br>_________________ OOOOO OOOOOOOOOO ●<br>__________________________________ OOOOOOOOOO Essence<br>Physical<br>(-1 Unskilled) _________________ OOOOO <br>Athletics_________ OOOOO <br>Brawl____________ OOOOO Flaws Points Per Turn: _____1<br>Drive_____________High Speed OOOOO<br>Firearms__________ OOOOO _______________________ Harmony<br>Larceny__________ OOOOO _______________________ 10 ______________ O<br>Stealth___________ OOOOO _______________________ 9 ______________ O<br>Survival__________ OOOOO 8 ______________ O<br>Weaponry_________ OOOOO Renown 7 ______________ O<br>6 ______________ O<br>Purity____________ OOOOO 5 ______________ O<br>Social Glory_____________ OOOOO 4 ______________ O<br>(-1 Unskilled) Honor____________ OOOOO 3 ______________ O<br>Animal Ken________ OOOOO Wisdom___________ OOOOO 2 ______________ O<br>Empathy__________Reading People OOOOO Cunning__________ OOOOO 1 ______________ O<br>Expression_________ OOOOO<br>Intimidation______ OOOOO Weapon/Attack              Dice Mod.  Range   Rate     Clip<br>Persuasion________ OOOOO ____________________   ______   _____   _____   _____<br>Socialize__________ OOOOO ____________________   ______   _____   _____   _____<br>Streetwise________ OOOOO ____________________   ______   _____   _____   _____<br>Subterfuge_______Spotting Lies OOOOO ____________________   ______   _____   _____   _____<br>**----- End of picture text -----**<br>
-
 
 **Attributes 5/4/3•Skills 11/7/4 (+3 Specialties)•Auspice: choose 1 free Skill Specialty•Tribe•Renown and Gifts: 1 for auspice, 1 for tribe, 1 of your choice•Merits 7• (Buying the 5th dot in Attributes, Skills or Merits costs two points)•Health = Stamina + Size•Willpower = Resolve + Composure•Size = 5 for adult human-sized Werewolf•** _**48**_ **Defense = Lowest of Dexterity or Wits•Initiative Mod = Dexterity + Composure•Speed = Strength + Dexterity +5•Starting Harmony = 7•Primal Urge starts at 1 dot•Essence=Harmony** 
-
-_**49**_ 
 
 **==> picture [236 x 76] intentionally omitted <==**
 
 **==> picture [538 x 660] intentionally omitted <==**
 
 **----- Start of picture text -----**<br>
-Hishu Dalu Gauru Urshul Urhan<br>(Human) (Near-Human) (Wolf-Man) (Near-Wolf) (Wolf)<br>Strength(+1):______3 Strength(+3):______5 Strength(+2):______4 Dexterity(+2):______4<br>Stamina(+1):_______3 Dexterity(+1):______3 Dexterity(+2):______4 Stamina(+1):_______3<br>Manipulation(-1):____3 Stamina(+2):_______9 Stamina(+2):_______4<br>Manipulation(-3):____1<br>Size:____________ Size(+1):__________ Size(+2):_________ Size(+1):__________ Size(-1):_________<br>Defense:_________2 Defense:_________2 Defense:_________3 Defense:_________4 Defense:_________4<br>Initiative:_______4 Initiative:_______4 Initiative(+1):_____5 Initiative(+2):_____6 Initiative(+2):_____6<br>Speed:__________9 Speed(+1):________10 Speed(+4):________13 Speed(+7):________16 Speed(+5):________14<br>Armor:__________ Armor:__________ Armor:________1/1 Armor:__________ Armor:__________<br>Perception:_______ Perception(+2):____ Perception(+3):____ Perception(+3):____ Perception(+4):____<br>Rage Invoked.<br>Induces Lunacy; Induces Full Lunacy. Induces Lunacy; Inflict +2 Lethal Damage<br>Observers have a 4-die Wound Penalties ignored Observers have a 2-die with bite attack.<br>bonus to their and no unconsciouness bonus to their<br>Willpower to resist. rolls made. Willpower to resist.<br>-2 to resist Death Rage. Inflict +2 Lethal Damage<br>Inflict +2 Lethal Damage with bite attack.<br>with bite attack & +1Lethal<br>Damage with claw attack.<br>Fail most Mental and<br>Social Rolls.<br>TOTEM GIFTS AND RITES<br>Attributes: Gift Lists:____________________________________________<br>Power:________________ ____________________________________________________<br>Finesse:_______________ ____________________________________________________<br>Resistance:____________ Max Rank: OOOOO<br>Willpower:_______________ Gift                                                            Roll                                                            Page<br>Essence:________________ ____________________________________________________Know Name  Int + Inv + Cun        p. 126<br>Initiative:_______________ Loose Tongue ____________________________________________________Man + Soc + Wis        p. 112<br>Defense:________________ ____________________________________________________<br>Speed:___________________ ____________________________________________________<br>Size:____________________ ____________________________________________________<br>Corpus:_________________ ____________________________________________________<br>Influences:________ OOOOO ____________________________________________________<br>_________________ OOOOO ____________________________________________________<br>_________________Numina:_________________ OOOOO ________________________________________________________________________________________________________<br>_______________________ Rituals: OOOOO<br>_______________________ Rite                                                             Roll                                                            Page<br>_______________________ Rite of Dedication  ____________________________________________________Dice Pool = Harmony          p. 150<br>Bonuses:_________________ ____________________________________________________<br>_______________________ ____________________________________________________<br>_______________________ ____________________________________________________<br>_______________________ ____________________________________________________<br>Ban:___________________ ____________________________________________________<br>_______________________ ____________________________________________________<br>_______________________ ____________________________________________________<br>**----- End of picture text -----**<br>
-
 
 **==> picture [133 x 57] intentionally omitted <==**
 
 **==> picture [517 x 642] intentionally omitted <==**
 
 **----- Start of picture text -----**<br>
-Name: Eric Russell Breed: Homid Pack Name:<br>Player: Jack Auspice: Philodox Pack Totem:<br>Chronicle: Tribe: Silent Striders Concept: Campus Cop<br>Attributes<br>Physical Social Mental<br>Strength ___________ OOOOO Charisma ___________ OOOOO Perception ___________ OOOOO<br>Dexterity __________ OOOOO Manipulation _________ OOOOO Intelligence __________ OOOOO<br>Stamina ___________ OOOOO Appearance __________ OOOOO Wits ______________ OOOOO<br>Abilities<br>Talents Skills Knowledges<br>Alertness ___________ OOOOO Animal Ken _________ OOOOO Computer ___________ OOOOO<br>Athletics ___________ OOOOO Crafts ______________ OOOOO Enigmas ____________ OOOOO<br>Brawl ______________ OOOOO Drive ______________ OOOOO Investigation _________ OOOOO<br>Dodge _____________ OOOOO Etiquette ___________ OOOOO Law ______________ OOOOO<br>Empathy ___________ OOOOO Firearms ___________ OOOOO Linguistics __________Spanish OOOOO<br>Expression ___________ OOOOO Leadership ___________ OOOOO Medicine ___________ OOOOO<br>Intimidation _________ OOOOO Melee _____________ OOOOO Occult _____________ OOOOO<br>Primal-Urge __________ OOOOO Performance __________ OOOOO Politics ____________ OOOOO<br>Streetwise ___________ OOOOO Stealth _____________ OOOOO Rituals _____________ OOOOO<br>Subterfuge ___________ OOOOO Survival ____________ OOOOO Science _____________ OOOOO<br>Advantages<br>Backgrounds Gifts Gifts<br>TotemRites___________________________________________________Contacts OOOOOOOOOOOOOOO _____________________________________________________________________Truth of GaiaPersuasionSilence _____________________________________________________________________<br>_________________ OOOOO _______________________ _______________________<br>_________________ OOOOO _______________________ _______________________<br>Renown Rage Health<br>Glory O O O O O O O O O O Bruised <br>O O O O O O O O O O  Hurt - 1 <br> Injured - 1 <br>Honor Wounded - 2 <br>O O O O O O O O O O Gnosis<br>Mauled - 2 <br><br>O O O O O O O O O O Crippled - 5 <br>Wisdom <br>Incapacitated <br>O O O O O O O O O O<br><br>Rank Willpower Experience<br>O O O O O O O O O O<br><br>**----- End of picture text -----**<br>
-
-
-_**50**_ 
-
-_**51**_ 
 
 **==> picture [133 x 57] intentionally omitted <==**
-
-_Homid                 Glabro                   Crinos                    Hispo                    Lupus_ **Strength(+2)** _____6 **Strength(+4)** _____8 **Strength(+3)** _____7 **Strength(+1)** _____5 **No Stamina(+2)** ______6 **Dexterity(+1)** _____4 **Dexterity(+2)** _____5 **Dexterity(+2)** _____5 **Change Appearance(-1)** ____1 **Stamina(+3)** ______7 **Stamina(+3)** ______7 **Stamina(+2)** ______6 **Manipulation(-1)** __1 **Manipulation(-3)** __0 **Manipulation(-3)** __0 **Manipulation(-3)** __0 **Appearance 0 +1 Die to Bite Damage          -2 Perception Diff. Difficulty: 6 Difficulty: 7 Difficulty: 6 Difficulty: 7 Difficulty: 6 INCITE DELIRIUM IN HUMANS** _Other Traits Fetishes_ ________________________________________________ **OOOOOOOOOO** _Item:Power:_ _____________________   ___________________________________ Level:_ __ Gnosis:_ ___ ________________________________________________ **OOOOOOOOOO** _Item:Power:_ _____________________   ___________________________________ Level:_ __ Gnosis:_ ___ ________________________________________________ **OOOOOOOOOO** _Item:Power:_ _____________________   ___________________________________ Level:_ __ Gnosis:_ ___ ________________________________________________ **OOOOOOOOOO** _Item:Power:_ _____________________   ___________________________________ Level:_ __ Gnosis:_ ___ ________________________________________________ **OOOOOOOOOO** _Item:Power:_ _____________________   ___________________________________ Level:_ __ Gnosis:_ ___ ________________________________________________ **OOOOOOOOOO** _Item:Power:_ _____________________   ___________________________________ Level:_ __ Gnosis:_ ___ ________________________ **OOOOO** _Rites_ ________________________ **OOOOO** Rite of Talisman Dedication________________________________________ Battle Scars:_ ______________________ _________________________________________Rite of the Questing Stone ______________________________ _________________________________________ ______________________________ _________________________________________ ______________________________ _________________________________________ ______________________________ ________________________________________ Metis Deformity:_ ___________________ _________________________________________ ______________________________ _________________________________________ ______________________________ ________________________________________ Combat_ 
 
 **==> picture [516 x 113] intentionally omitted <==**
 
 **----- Start of picture text -----**<br>
 Weapon/ Attack              Diff.       Damage    Range     Rate       Ammo    Conceal  Brawling Chart<br>Maneuver Roll Diff Damage<br>Bite Dex + Brawl 5 Strength + 1/A<br>Body Tackle Dex + Brawl 7 Special/B<br>Claw Dex + Brawl 6 Strength + 1/A<br>Grapple Dex + Brawl 6 Strength/B<br>Kick Dex + Brawl 7 Strength + 1/B<br>Punch Dex + Brawl 6 Strength/B<br>A=Aggravated Damage        B=Bashing Damage<br>Armor: _________________<br>**----- End of picture text -----**<br>
-
 

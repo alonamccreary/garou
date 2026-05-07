@@ -29,8 +29,6 @@
 |Trinity Caern,_Sum_Inabinet|198|
 |**Lexicon**|210|
 
-
-
 **==> picture [27 x 22] intentionally omitted <==**
 
 ## 

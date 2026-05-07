@@ -42,8 +42,6 @@ This book uses the supernatural for settings, characters and themes. All mystica
 
 Check out White Wolf online at http://www.white-wolf.com/ Check out the Onyx Path at http://www. theonyxpath.com 
 
-_**2**_ 
-
 |Introduction|7|_Expressing Concepts_|_24_|_Alsart Oasis_|_33_|
 |---|---|---|---|---|---|
 |||_What Are They Good For?_|_24_|_Primrose Orphanage_|_33_|
@@ -58,10 +56,6 @@ _**2**_
 |**The Other Side**||_Living History_|_27_|_The Woods (Glen)_|_35_|
 |**of the Mirror**<br>**Touching the**<br>**Spirit World**|**13**<br>**14**|_Party of a Lifetime_<br>Webs<br>_Wage Slaves_|_28_<br>28<br>_28_|Chapter Two:<br>The Near Umbra|37|
 |Second Breath<br>**Domains of the Triat**<br>The Wyld Lands<br>Weaver’s Webs<br>Wastelands of the Wyrm<br>Warring Triat<br>Traveling the Spirit World<br>Meaning Made Manifest<br>**Genius Loci**<br>Blights<br>_Storytelling Blights_<br>Chimares<br>_Storytelling Chimares_<br>Epiphs|14<br>**16**<br>16<br>17<br>18<br>18<br>19<br>21<br>**22**<br>22<br>_22_<br>22<br>_23_<br>23|_Unexpected Webs_<br>Wyldlings<br>_Wylding Spirits_<br>**Other Layers**<br>The Periphery of Thought<br>The Edge of Darkness<br>**Faces in the Mirror**<br>_St. Jacinta’s Medical Center_<br>_Clayton City Park_<br>_Moors Bottling Company_<br>_Chemical Waste Plant_<br>_Festival Market Town_<br>_Tall Pines Cemetery_<br>_Oak Ridge Library_|_28_<br>29<br>_29_<br>**29**<br>29<br>30<br>**31**<br>_31_<br>_31_<br>_31_<br>_32_<br>_32_<br>_33_|**Near and Far**<br>Airts<br>Between Realms<br>Moonlit Airts<br>_Moon Bridge_<br>_Moon Path_<br>Other Methods<br>_Spirit Gates_<br>_Owl’s Wings_<br>_Spirit Trains_<br>_Pattern Web_<br>_Domains and the Dream Zone_<br>_Dream Zone_<br>_Malfeas_|**37**<br>38<br>38<br>39<br>_39_<br>_39_<br>40<br>_40_<br>_40_<br>_41_<br>_41_<br>_42_<br>_42_<br>_43_|
-
-
-
-_**3**_ 
 
 |**The Abyss**|**43**|**The Legendary Realm**|**66**|_Bone Gnawers_|_84_|
 |---|---|---|---|---|---|
@@ -111,10 +105,6 @@ _**3**_
 |The Cocoon|65|**The Homelands**|**83**|_Spectres_|_100_|
 |The Coil|65|_Black Furies_|_83_|_Werewolves_|_100_|
 
-
-
-_**4**_ 
-
 |Travel within||The Memory-Broker,||_Stood Ground_|_138_|
 |---|---|---|---|---|---|
 |the Dark Umbra|101|a Jaggling of Things Forgotten|120|_Superhero_|_139_|
@@ -144,10 +134,6 @@ _**4**_
 |_Celestines_<br>_Outside the Cycle: Emanations_<br>**An Animistic World**|_117_<br>_117_<br>**117**|Wyld Spirits<br>_Anonymous_<br>_Beleben_|135<br>_135_<br>_136_|The One-Oh-Oh<br>_Plot Hooks_<br>Opinnartokua|162<br>_163_<br>163|
 |Cockroach Gaffling<br>_A Garou’s Perspective_<br>Dreams-of-the-Horizon, Chi-<br>merling Jaggling<br>_An Hour Ago_|118<br>_119_<br>119<br>_120_|_Chirurgeon_<br>_Creepypasta_<br>_Farm-to-Table_<br>_GMO_<br>_Made-Me-Do-It Devil_|_136_<br>_137_<br>_137_<br>_137_<br>_138_|_Plot Hooks_<br>Shallowbranch<br>_Plot Hooks_<br>Shrewton Village<br>_Plot Hooks_|_164_<br>164<br>_165_<br>165<br>_165_|
 
-
-
-_**5**_ 
-
 **==> picture [573 x 748] intentionally omitted <==**
 
 ## Through the Skin 
@@ -163,8 +149,6 @@ And that’s the closest most people will ever get to seeing the world beyond ou
 The Garou call it the Umbra. And this world, or worlds, just beyond our own is the subject of this book. 
 
 For the werewolf, their childhood is full of sleep paralysis and brief encounters with the world beyond. Helpless glimpses through the skin of reality. From nightmares to daydreams to out of body experiences, the Umbra haunts many young Garou-to-be. Is it any wonder, then, when the First Change comes, the werewolf become nearly obsessed with discovering, exploring, and pretending to master the Umbra? The first time a 
-
-_**7**_ 
 
 _**IntroductIon**_ 
 
@@ -191,8 +175,6 @@ For now, as the Storyteller, you must concentrate on senses. All of them. And pe
 This takes practice, but as with many Storytelling techniques you can use shortcuts to assist you in being more sensual at the table. Create yourself a cheat sheet of colors, smells, textures, and adjectives that describe these things. If you bring your characters to a vivid place like an Umbral river of blood, to say that the blood smells coppery says something very different than saying that the river smells acrid or metallic and sweet. But having some lists at hand with evocative words that immediately stimulate your imagination will surely help you stimulate your players. Once you have these lists, the best place to start is to look at your own language and habits. The next time you start to say ‘you see…’ to tell the players what is around their characters, replace ‘see’ with another sense. You smell. You hear. You feel. You swallow. 
 
 You can use these sensory details to link important story hooks in your players minds as well. If you have introduced them to a very specific and important river goddess, and talk about the smell of orchids on fresh water every time she appears, add her scent to an 
-
-_**8**_ 
 
 _**UMBRA: THE VELVET SHADOW**_ 
 
@@ -232,8 +214,6 @@ and it might clutter your game’s cosmology. When in doubt, rely on flexibility
 
 **Chapter Three: Worlds Beyond** takes a look at plot hooks and story fodder that will take you through the Realms and into the Anchorheads. What is the Membrane and what happens when you cross it? What is Disconnection and how do werewolves protect themselves against it? Further, this chapter explores the Deep Umbra — the vast nothing, full of possibility. A place where outsider horror and two fisted pulp science fiction are separated only by chance, what can the characters experience here? 
 
-_**10**_ 
-
 _**UMBRA: THE VELVET SHADOW**_ 
 
 **Chapter Four: Spirits** explores the cosmology and metaphysics of spirits. Here you’ll get details on how spirits operate, how they ‘think’ or if they even do. Players and Storytellers alike can draw both story ideas and roleplaying guidelines for dealing with spirits. In addition, find well over fifty new spirits for use in your chronicle. Strange, unique spirits updated to bring new culture to the Umbra and give you ideas of just how much our world affects the next. 
@@ -241,8 +221,6 @@ _**UMBRA: THE VELVET SHADOW**_
 **Chapter Five: The Chosen** asks: who are the real Chosen of Gaia? Is it her warriors, or is it the Kami? Spirit-things created by Gaia to a specific task and filled with her blessings, what are these rare and mysterious entities, and how can you use them in your game? What is their history, and are they really Gaia’s fomori? It also includes several example Kami to pick and choose from to bring directly into your game. 
 
 **==> picture [462 x 375] intentionally omitted <==**
-
-_**11**_ 
 
 _**IntroductIon**_ 
 
@@ -265,8 +243,6 @@ _She grinned. “Welcome home.”_
 ## The Other Side of the Mirror 
 
 Just on the other side of perception lies the Penumbra. For Garou, it is a missing piece of the world. They keenly feel its absence while they walk in the land of flesh and blood. Gaia’s children yearn for the spirit world. It is their birthright, one half of their home separated from them by a barrier of spiritual calcification: the Gauntlet. Erected in prehistory by a cosmic force of stasis, the Gauntlet divides the realms of flesh and spirit and would forever keep them apart. The Garou aren’t so easily dissuaded. 
-
-_**13**_ 
 
 _**PENUMBRA**_ 
 
@@ -295,8 +271,6 @@ Sometimes the added awareness brings into sharp focus the corruption eating at t
 A werewolf’s first emergence into the Penumbra marks an important part of the Rite of Passage. Some mystics call this “the Second Breath,” because a werewolf has not truly taken her second breath of the world until she has also tasted 
 
 _**UMBRA: THE VELVET SHADOW**_ 
-
-_**14**_ 
 
 the air across the Gauntlet. As creatures of both flesh and spirit, it is their very birthright to walk in both worlds. Each of the tribes holds their own special rites, many of them involving a hunt, for when cubs take their Second Breath these mark a day as momentous as the First Change itself. 
 
@@ -350,8 +324,6 @@ Lupine senses find a vast wealth of information in these regions. The scents of 
 
 The Penumbra is a feast for the eyes as well. Colors are more vibrant, as though viewed through a children’s drawing: 
 
-_**16**_ 
-
 _**UMBRA: THE VELVET SHADOW**_ 
 
 greens are impossibly deep and alive, earthen browns so fertile that a blind werewolf could see the saplings growing within, yellows and blues and reds of flowers taking shapes not seen in the material world. It’s akin to seeing with a child’s eyes again, or perhaps like the traveler had only seen the world through a dirty window and now sees it clearly for the first time. The same dog-spirits from earlier even take on different appearances. One takes the form of an immaculately groomed specimen, an amalgam of expensive dog breeds, while the other is ratty, and missing patches of fur. 
@@ -373,8 +345,6 @@ Most buildings lack the spiritual significance to cast a direct reflection in th
 While car-spirits exist in the umbra, the air is much cleaner, a change any werewolf immediately notices. Pollutants do not normally cross the Gauntlet, although an excess in the physical world can poison the spirit shadow of an area and draw the attention of Banes. In these places the Penumbra is sick, choked off from life-giving Wyld energies and rotting from within like parasites gnawing at the marrow of bleached-white bones. 
 
 The oldest vehicles, like beat-up city buses driven long past their prime, and the most important, such as first-class airliners carrying the business world’s elite, cast shadows in the Penumbra. The plane reflections rumble in the distant sky as they fly overhead, sometimes soaring through starry nights and the misty lowest riches of Near Umbral realms. Passengers in the real world cannot see the strange spiritual worlds whose gossamer threads they part in their flight, but 
-
-_**17**_ 
 
 _**PENUMBRA**_ 
 
@@ -406,8 +376,6 @@ Beneath their work lurks the Wyrm. It cannot create anything, nor can it cleanse
 
 The Penumbra shows the scars of these warring forces as readily as does the mortal world. On their own, Wyld and Weaver might reach a stalemate. Their opposing actions set 
 
-_**18**_ 
-
 _**UMBRA: THE VELVET SHADOW**_ 
 
 chaos against order in an endless struggle. Yet the Wyrm is there, and its presence undermines even that tenuous balance that once it served. In the shadow of the human world, Wyrmtaint in the Weaver’s domains fuels urban decay and squalor. Its poison drips from the webs, and now the Wyrm’s forces — like the corporate hydra Pentex — infest all of humanity. The so-called “first world” (a term at which many Garou bristle) is a bastion of deceit and suffering. Humanity is spread so far even the Garou cannot hope to cut away the spiritual cancer that eats at the heart of it all. Every city, every empire rots from within and eventually collapses into sickness and sin. 
@@ -433,8 +401,6 @@ All the Penumbral world follows this same rule as a reflection of things past an
 The spiritual reflection of a region’s history allows Garou to travel into the past after a fashion. The Penumbra is a lens through which to view what was, and perhaps what may be yet again if the Garou accomplish the impossible and stop the Apocalypse. Such visions are bittersweet reminders of what Gaia’s children have lost and what they fight for, or perhaps dare dream they might reclaim. 
 
 Garou have some natural advantages in traveling the Penumbra. They enjoy these advantages in the material world as well, but in the Penumbra, they have nothing to fear from human witnesses, Delirium — or other problems like highways and concrete walls. In wolf form, the Garou can run for hours and cover much greater distances than any human on foot. They’re built to run, guided by keen senses and a knowledge of the spirit world. Even in Penum- 
-
-_**19**_ 
 
 _**PENUMBRA**_ 
 
@@ -463,8 +429,6 @@ Spirits respect shapeshifters more than other visitors to the Umbra, whom they s
 Technological devices function unpredictably in the Penumbra. A ritually-dedicated flashlight may accompany a Garou and even provide its light as normal — though it’s prone to flickering in areas of Wyld supremacy or at inopportune moments. It will last as long as its batteries hold out. To further power it requires bringing batteries along or else binding an appropriate spirit into it to make a fetish. Few shapeshifters require the aid of a flashlight in the Umbra, of course, with their heightened senses and many Gifts. Some, like Glass Walkers, might create such fetishes for their non-Garou allies or those werewolves who prefer Homid form. Not surprisingly, Homid-born werewolves tend to make up the bulk of the latter types. 
 
 Cell phones and radios are highly unstable even when they _do_ function, but usually don’t work at all. Their batteries may power the devices, but in the Penumbra no cell towers exist — unless awakened by Garou rites — to carry the signals. The most prominent cell towers may cast a reflection in the Penumbra, in which case a werewolf might be able to get a weak signal while standing nearby, but any calls made to phones in the material realm suffer from a lot of interference. The Gauntlet can be a problem here, and at its strongest prevents any signal from passing between worlds. Computers suffer from similar complications. Even 
-
-_**20**_ 
 
 _**UMBRA: THE VELVET SHADOW**_ 
 
@@ -510,8 +474,6 @@ Also, Blights allow a Storyteller to lay the symbolism on thick. The Penumbra in
 
 Chimares are dreams made flesh. Some Garou believe that every dream has a Chimare representation. This is not true; the Penumbra’s not big enough for that. They’re certainly not representative of every dream, but they occur any time a dream reaches a certain degree of prominence in the cultural subconscious. Popular variations receive their own Chimares as well. For example, an entire cluster of Chimares represents variations on “performing while naked” and “falling” dreams. 
 
-_**22**_ 
-
 _**UMBRA: THE VELVET SHADOW**_ 
 
 Chimares are often malleable, depending on how powerful the dream is. Prominent, frequent dreams tend to have very solidified conditions. Fleeting dreams can be manipulated by a strong will, or an enterprising Theurge using the Rite of the Dreamtime. Dreamstuff is like clay, and a well-baked dream needs a lot of work to return to its softened state, if it can at all. 
@@ -550,8 +512,6 @@ Epiphs exist as purified, solitary conceptual experiences. They’re ideas becom
 
 If that sounds complicated, it’s because it is. As three-dimensional, fleshy creatures with five senses can’t entirely fathom what a given Epiph truly is. Who would want to visit somewhere in which the rules make no sense, where 
 
-_**23**_ 
-
 _**PENUMBRA**_ 
 
 the visitor’s body doesn’t work the way he expects it to, and where exactly one thing exists? Every Epiph stands on its own merit. Those that visit Epiphs successfully soon find their understanding in great demand, it isn’t a job that any werewolf can jump into; it requires a fundamental understanding of raw, conceptual reality. 
@@ -589,8 +549,6 @@ Blights, Chimares, and Epiphs are all harrowing experiences for most Garou; they
 In counterpoint, a Glen makes it easy to just give up. Garou know that outside the Glen, the world’s going to shit, everything’s breaking down, and everyone’s stabbing each other in the back. A Glen is like a hug, a womb, a homeland, and a community, all in the form of a spiritual realm. Stepping away isn’t something anyone can just do without feeling its gravity. 
 
 A Glen usually manifests in the deepest, most lush parts of the wilderness, in places untouched by human hands. Of course, these places are slowly dying off — taking the linked Glen with them. Some have since detached from their analogues, and now take up space only as far-flung pockets of the Penumbra. 
-
-_**24**_ 
 
 _**UMBRA: THE VELVET SHADOW**_ 
 
@@ -635,8 +593,6 @@ Hellholes typically manifest analogous to the filthiest, most hopeless examples 
 ## Nuclear Repository Hellholes 
 
 One of the largest Hellholes exists far out in the New Mexico deserts. The United States government built a repository deep under the sands of Yucca Mountain, in order to store transuranic radioactive waste from reactors and tests. Nobody lives for miles outside the repository, and the cavern goes for miles, deep within the mountain. 
-
-_**25**_ 
 
 _**PENUMBRA**_ 
 
@@ -690,8 +646,6 @@ Trods often look similar to their real-world counterparts, but sometimes they ke
 
 For historians, these sorts of Trods are invaluable. Stories are one thing, but living them is a whole different layer of knowledge. By seeing and touching long-dead things the way they were when they stood on the Earth, a historian can garner an insight with only her own biases. Unfortunately for the would-be relic hunter, anything removed from a Trod quickly breaks down into cobwebs, dust, teeth, and other assorted strangeness within minutes. Reality doesn’t welcome the stuff of the fae. Even if a Garou takes a camera into the Trod and photographs what she finds, the photograph will garble and warp outside the Trod’s bounds. The few Garou 
 
-_**27**_ 
-
 _**PENUMBRA**_ 
 
 who have used rites, Gifts, and other spiritual tricks to preserve the remnants of a Trod find little luck. Everything breaks down. Awful coincidences happen nearby. Plants die. People have accidents. Homes catch fire. 
@@ -732,8 +686,6 @@ The machine, the Weaver, has to hide its operations from prying eyes. Even thoug
 
 The Weaver will root down anywhere it can. After all, Webs aren’t exactly unobtrusive to those peeking across the Gauntlet. It will, however, sometimes try to branch out a little from the obvious. Its current favorite is the relatively recent American “lifestyle center” retail phenomenon. These places are small towns that function as open air malls, catering to chain boutique store interests and focus on restaurants 
 
-_**28**_ 
-
 _**UMBRA: THE VELVET SHADOW**_ 
 
 and mass market entertainment to keep shoppers on the center’s grounds for as long as possible. They’re cookie cutter, milquetoast places that give boring people just enough spice in their lives to make them feel interesting, while still only featuring national brand chain stores with no cultural identity. Needless to say, the Weaver loves them. 
@@ -770,8 +722,6 @@ Spirits encountered in the Astral Penumbra are strange, even for Epiphlings. The
 
 Curiosi are common as well. Many drift in the sky above learning institutions in Slumber, awakened when enough thinkers provide them with power and purpose. Conceptual spirits embody nearly any concept imaginable in the Astral Umbra. Werewolves may seek them out in order to learn powerful Gifts and find new perspectives on 
 
-_**29**_ 
-
 _**PENUMBRA**_ 
 
 **==> picture [560 x 364] intentionally omitted <==**
@@ -789,8 +739,6 @@ In the vastness of the Umbra, facets besides the Penumbra reflect aspects of the
 The Penumbra meets with the Dark Umbra in the reflections of dark places, appropriately enough. Places that resonate with death and entropy. A Penumbral graveyard is the most obvious example, but something like a seedy network of back alleys home to frequent violent crimes also works. Even a hospital that caters to the poor and sick can manifest aspects of the Dark Umbra. Any place touched by death and the fear of the same is one where the boundaries between Penumbra and Dark Umbra overlap. People claim such places as “haunted” in the material world, and while the majority of the public derides such ideas, the believers are justified. Strange things happen in haunted locations. 
 
 In such places, the idealized reflection of the world gives way to visions of fear, pain and loss. The ground itself is gray and lifeless. A malodorous mist hangs over the cold earth like the breath of the dead. Shapes droop or crumble; 
-
-_**30**_ 
 
 _**UMBRA: THE VELVET SHADOW**_ 
 
@@ -821,8 +769,6 @@ A rare bastion of tranquility in the web-strewn Penumbral city, the park is home
 ## Moors Bottling Company Chemical Waste Plant 
 
 Few things are more horrifying than this chemical plant. Its toxic byproducts seep into nearby soil, rivers, and belch black into the sky. In the material world, it is a massive facility with state of the art machinery, fenced in and well-guarded. It lies just outside city limits, near the system of rivers that feeds into the sound. In the Penumbra, it has risen into a fortress of black, rusted 
-
-_**31**_ 
 
 _**PENUMBRA**_ 
 
@@ -874,8 +820,6 @@ It’s not haunted, but spirits play the role of the haunting dead. They fulfill
 
 On the other side of things, Garou call it the Ghost Island because it’s a hotbed of supernatural activity. The island has all manner of Umbral manifestations. Areas of the tiny island 
 
-_**33**_ 
-
 _**PENUMBRA**_ 
 
 **==> picture [234 x 37] intentionally omitted <==**
@@ -910,8 +854,6 @@ Reclamation is an ouroboros of the large eating the small, the swarms of the sma
 
 Clearly, this rapid overgrowth and predation brings danger. Standing in one place for more than a couple of seconds means something will try to subsume, topple, or 
 
-_**34**_ 
-
 _**UMBRA: THE VELVET SHADOW**_ 
 
 devour a visitor. From an academic standpoint, this pure expression of cyclical nature can teach invaluable lessons to someone interested in learning just how nature overcomes manually constructed developments. Many Red Talons come to the Wild Reclamation for just that reason. 
@@ -925,8 +867,6 @@ visitor would have to know what to look for if she wanted to find evidence of th
 This place is now the site of a Glen. In the Umbra, thousands of tight-knit tree spirits formed a solid wall around the clearing. Inside, the Wyld has taken over. Waterfalls flow in every direction, rushing through patches of jungle and swamp that roll over one another. The entire area on the outside appears no more than one hundred yards in diameter, but inside the space goes on for nearly fifty miles. No two of those miles look like they belong next to one another. A curious side effect of the island is that all the thousands of animal spirits within are hybrid creatures with the features of at least four different beasts. Cats prowl with pincers ready, worms shriek and slither to their holes, and scorpions howl at the moon. 
 
 **==> picture [462 x 376] intentionally omitted <==**
-
-_**35**_ 
 
 _**PENUMBRA**_ 
 
@@ -945,8 +885,6 @@ Getting lost in the Near Umbra might land a pack in Malfeas.
 Actually venturing from the Penumbra to the Near Realms is more difficult than simply moving from one place to another. Physical distances do not apply to the Near Realms, except as they fit within that Realm’s laws — such as troop movements in the Battleground. A werewolf can run forever in the Penumbra and never reach beyond the Earth’s shadow. 
 
 Intent, destiny, will — all are integral components of Umbral quests. Werewolf mystics say that if you search for something in the Umbra, you will find it if you are destined to, and if not you will find something else. What you find may not be the adventure you sought, but it will likely lead you toward your goal. Meaning and myth are powerful forces in the spirit world, always acting upon travelers. If you seek the Battleground, begin your search with the desire to find battle. Look for signs of conflict. The tracks of a predator or the collateral damage caused by a battle of spirits, these are things to follow. And the further you follow such tracks with your heart set on reaching past 
-
-_**37**_ 
 
 _**NEAR UMBRA**_ 
 
@@ -975,8 +913,6 @@ One disorienting trait of traveling so far into the Umbra is the lack of sensory
 That is what werewolves must deal with at first, but it is not the whole story. Some experienced travelers learn how to smell the spirits of concepts, or phenomena with no physical counterpart. When asked to describe such things, unsurprisingly many werewolves find it difficult to convey the process in words. For example, a spirit of joy might smell “blue” to a werewolf, because it reminds her of the summer sky she loves so much. She might pick up the scent of solder on Umbral winds if she’s seeking the CyberRealm. It’s even possible to pick up on scents that would have long faded in the material world due to physical processes, such as rain covering up a spoor trail — some especially keen-nosed werewolves can sometimes scent the past itself. This usually means the passing of an entity or events that occurred within the past couple of days, but things are always strange outside the borders of the Penumbra. 
 
 Sound is not muted but meets with a lack of medium in the Umbra. The sounds of a traveling pack echo through airless space, with no real direction. It can be disconcerting to hear things with keen wolf ears and have no idea how or where the sounds are bouncing. A distant sound, like the howl of a lost packmate, becomes nearly impossible to follow properly because of this, so groups do well to stick 
-
-_**38**_ 
 
 _**UMBRA: THE VELVET SHADOW**_ 
 
@@ -1012,8 +948,6 @@ Werewolves traveling upon Moon Paths often liken the experience to treading upon
 
 Moon Paths are by their nature less stable and predictable than Moon Bridges. They wend through the Umbra in shifting paths and rarely reach into the Aetherial Realm. Paths aren’t as heavily guarded, though Lunes do patrol them, but the Lunes themselves can pose a danger. They are capricious spirits and their moods change as do the phases of the moon itself. Werewolves have some idea of what to expect at each moon phase, but even then there is no guarantee when it comes to Lunes. Other spirits make 
 
-_**39**_ 
-
 _**NEAR UMBRA**_ 
 
 use of Moon Paths as well, and not all of them are friendly to the Garou. 
@@ -1048,8 +982,6 @@ Activating a Spirit Gate is a fairly simple matter for spirits and creatures wit
 
 Packs who serve the totem spirit Owl gain wings in the Umbra. This affords them a huge advantage when traveling, whether the Penumbra or the Near Realms. They can fly from place to place, circumventing many of the hazards that plague Umbral explorers. Upon the wings of 
 
-_**40**_ 
-
 _**UMBRA: THE VELVET SHADOW**_ 
 
 **==> picture [557 x 377] intentionally omitted <==**
@@ -1071,8 +1003,6 @@ The Silent Striders use a train they call the “Midnight Express” that visits
 The Weaver’s Pattern Web crosses all throughout the Umbra. It was the Weaver’s work that erected the Gauntlet in prehistory, and now her mad Pattern touches nearly every corner of the spirit world. It serves as a network of communication and travel for Weaver-spirits, such as the ubiquitous Pattern Spiders who scurry along the strands, spinning ever more webs. Doing so has its risks, but werewolves and other shapeshifters can sometimes use the Pattern Web itself to traverse the Umbra. 
 
 Would-be Web walkers face difficulties even knowing where they’re going. The Theurge Gift: Web Walker ( **W20** 
-
-_**41**_ 
 
 _**NEAR UMBRA**_ 
 
@@ -1112,8 +1042,6 @@ Shapeshifters can pursue these secrets and answers by undertaking dream quests �
 
 All things, even those a dreamer has lost or forgotten, exist within the Dream Zone. These are not like the Dark Umbral reflections of things dead and destroyed. Dreams gave them life but they exist only in Dream. Someone visiting a lost loved one in Dream is not truly conversing with the shade or spirit of that person, but rather the facet of him that lingers within the mind of the dreamer. She could not pluck that fragment from Dream and bring it to the mortal world as a form of resurrection. Or so the sages say, but who knows? Within the 
 
-_**42**_ 
-
 _**UMBRA: THE VELVET SHADOW**_ 
 
 Dream Zone, anything is possible, if a visitor can dream it. The tales of great heroes who would challenge the impossible for love, glory and honor are as powerful an archetypal facet as anything that ever entered into Dream. 
@@ -1141,8 +1069,6 @@ No one really knows what the Abyss is or how it came to be. Some Garou say the A
 Different tribes have their own spin on these stories. The Bone Gnawers claim elder vampires slumber here, waiting for the Apocalypse to rise and drink the world dry. The Get of Fenris believe it will spew forth the worst hordes of Wyrm-spawn in the end days. The Stargazers say Klaital, the greatest ever of their tribe, descended fully into the depths and climbed out with the knowledge he had gained. The Silent Striders whisper that the Abyss would close forever if the greatest Garou hero sacrificed herself in the darkness; they add that it is still open despite the sacrifice of many supposedly great heroes. 
 
 Other shapeshifters have their own views. Bastet believe the first den-realm became the Abyss when it was corrupted and consumed by the Wyrm. The Mokolé view it as the antithesis of Mnesis, the place where memories are forever lost. Ananasi say a bloated Goblin Spider endlessly spins web to bridge the darkness and when she finally succeeds the Apocalypse will begin. The Nagah believe this is where the Wyrm first struck the spirit world. They believe Banes, Wyrmspawn and other 
-
-_**43**_ 
 
 _**NEAR UMBRA**_ 
 
@@ -1183,8 +1109,6 @@ The cliff is scalable but handholds are treacherously loose, and powerful winds 
 Flyers need to keep their wits and land before being obliterated by the maw of the Abyss. The irregularity of the cliff-face, scarcity of reference points and difficulty seeing anything makes distances difficult to judge. A flyer will also find that the downward winds make climbing out of the depths an exhausting task as she makes little upwards progress with each beat of her wings. 
 
 The two greatest risks with flying are judging the point of no return and avoiding looking into the maw and succumbing to Abyssal terror. Storytellers should call for frequent Willpower rolls for flying characters, as well as Perception rolls for her to judge the depth she has fallen to. Flying characters trying to land should make a Perception + Alertness roll (difficulty based on the moon phase) to find a suitable perch and roll Dexterity + Athletics (Flight) (difficulty 8) to reach it. Failure on the flight roll means the character missed the perch and must keep flying until she can succeed in another Perception roll to find an alternative. A botch on this roll means she has lost control and is tumbling towards the maw. Storytellers should decide how many opportunities the character has to recover from her fall, with fewer chances the closer she is to oblivion. 
-
-_**44**_ 
 
 _**UMBRA: THE VELVET SHADOW**_ 
 
@@ -1248,8 +1172,6 @@ Garou territories are scattered through the Aetherial ‘lands’. These are gua
 
 Leaving the Realm is even easier than arriving. Gaps open between the slowly drifting clouds; travelers find these easy to step through but nearly impossible to accidentally fall through. From here she falls out of the Aetherial Realm and into the Near Umbra. The Aetherial keeps the traveler safe through this fall. No matter the distance, she lands as if she had just jumped up from the ground. The drawback of using this exit is she has no control over where she will land. She may wind up anywhere in the Near Umbra — 
 
-_**46**_ 
-
 _**UMBRA: THE VELVET SHADOW**_ 
 
 including within other Near Realms, unless their own rules prevent such arrival, like Erebus or Flux. 
@@ -1281,8 +1203,6 @@ Though the elementals are not actually attacking the character, their touch stil
 The Garou inflicts damage on herself by trying to push past the elementals. At any time during the ordeal she may step back and the attacks stop. This won’t heal any damage she already sustained, but the elementals have no interest in seeing her dead. 
 
 If the traveler survives her ordeal she finds herself standing on the liquid fire surface of the sun. She still suffers from any wounds gained during the travel, but the surface is comfortably warm and harmless. The ground shifts and blazes with inner light but is solid enough to support her. Within this domain she may encounter a burning citadel of solid fire if the Incarna manifests as Hyperion, or as a tipi cloaked in pure white light if he chooses to appear as Katanka-Sonnak. The Incarna sometimes takes other forms and changes his buildings, but in any form he prizes valor and despises deceit. He appreciates travelers who stoically bear his elementals’ burns. He rarely offers to heal the injuries — to do so would be an insult to the visitor. The 
-
-_**47**_ 
 
 _**NEAR UMBRA**_ 
 
@@ -1334,8 +1254,6 @@ The Aetherial Realm holds more Anchorheads to the Deep Umbra than other place in
 
 Dreams of Arcadia have haunted sleeping humans since before tales were told, but only a few deluded souls claim to have visited it. The Arcadia Gateway isn’t the enchanted 
 
-_**48**_ 
-
 _**UMBRA: THE VELVET SHADOW**_ 
 
 land of the fae. Arcadia itself is too alien and ephemeral to survive within the Near Realms, but few deny that Arcadia Gateway has some connection to the homeland of the Fair Folk. Some insist that the Realm is a literal pathway leading to Arcadia — a palatial walkway cobbled with nightmares and flanked by topiaries sculpted into the shapes of love, beauty, and honor — if only the questing hero could find the door. Others believe that no such opening exists in the Gateway, but the Realm was once inhabited by the fae and therefore might hold clues to the true location of Arcadia. In either case, the Arcadia Gateway pulses with Wyld energy that even now creeps into humans while they sleep. The primordial dreams it inspires help slow the calcification and decay that the Weaver and Wyrm wreak on the collective unconscious of humanity. If events in the Realm radically change its nature or destroy it entirely, it would echo in the physical world, and that alone makes it of interest to the Garou. 
@@ -1368,8 +1286,6 @@ Whatever the truth about its origin, the fae do not inhabit the Arcadia Gateway.
 
 The inhabitants of the Arcadia Gateway belong to one of two courts — the Seelie and the Unseelie. Each adheres to 
 
-_**49**_ 
-
 _**NEAR UMBRA**_ 
 
 **==> picture [560 x 397] intentionally omitted <==**
@@ -1389,8 +1305,6 @@ legal loopholes or convince the judge that she acted in the defense of love, bea
 A friend or mentor stands accused of violating a law of Arcadia Gateway and sends word to the pack, begging for help clearing his name. Can the pack find evidence that their friend is innocent? Maybe they instead identify some loophole that prevents him from being found guilty, such as one that permits a trial by combat or other contest against his accuser — one for which the pack will stand as his champions. Or perhaps the key is to win the favor of a powerful Seelie noble with enough knowledge of Fair Folk law to ensure the case is thrown out. 
 
 **==> picture [234 x 37] intentionally omitted <==**
-
-_**50**_ 
 
 _**UMBRA: THE VELVET SHADOW**_ 
 
@@ -1419,8 +1333,6 @@ According to legend, the Fair Folk divided themselves into two courts and shared
 harsh landscape that even the most dauntless of the Arcadia Gateway’s inhabitants almost never dare climb. Spring and autumn divide the space between the two — with the Autumn Country in the north and the Springlands in the south. 
 
 At one time every season held an equal share of the Realm, but the land changes to reflect its denizens, and so that is no longer the case. Winter and Autumn have grown large in the years since Lysander’s disappearance, and Spring and Summer have lost territory they had held for as long as the Arcadia Gateway has existed. Although this would seem like a wake-up call to the fragmented Seelie Court, not all the Fair Folk of Spring and Summer believe the threat is real. Even the Realm’s inhabitants cannot map it by dead reckoning. Landmarks frequently move, or change shape seemingly at random. Only those Springlords and Landed Summer Gentry who have lost their fiefs to the encroaching Autumn and Winter feel the coming chill. 
-
-_**51**_ 
 
 _**NEAR UMBRA**_ 
 
@@ -1456,8 +1368,6 @@ In some ways, the Atrocity Realm resembles the Battlefield, but it lacks the foc
 
 Some Garou claim a pack can exorcise an atrocity from the Realm by avenging or rectifying the victims’ suffering in the material world — bringing the serial killer to justice, trying the dictator for war crimes, or forcing the abusive parent to acknowledge the wrongness of his actions. However, many believe such undertakings are unwise. They argue that in the time it takes to purge just one scene from the Atrocity Realm dozens more will spring up in its place. A 
 
-_**52**_ 
-
 _**UMBRA: THE VELVET SHADOW**_ 
 
 Garou can fight the Realm more effectively by preventing the horrors from taking place in the first place. 
@@ -1485,8 +1395,6 @@ Some Garou send members of their septs who have committed heinous crimes to the 
 ## Breeding Pits 
 
 If Banes arise from the pain and degradation of the innocent, the Atrocity Realm is a perfect breeding ground for them. Countless pits of writhing bodies and a slurry of human bodily fluids serve as spawning beds for Bane larvae. They take many forms, but the most common include maggots with human faces and homunculi made from instruments of violence or torture. Scrags and other Banes 
-
-_**53**_ 
 
 _**NEAR UMBRA**_ 
 
@@ -1520,8 +1428,6 @@ The Battleground is the embodiment of war, struggle, and conflict. This Realm re
 
 This chaotic and in many ways nightmarish Realm is a military historian’s dream. Every battle of every war plays out here from its beginning to the end, and then it resets and replays in an infinite loop. An observer can take in a perfect 
 
-_**54**_ 
-
 _**UMBRA: THE VELVET SHADOW**_ 
 
 **==> picture [234 x 37] intentionally omitted <==**
@@ -1549,8 +1455,6 @@ Travelers who remain on the road will eventually reach all the battles listed on
 The road’s protection only lasts until the traveler steps off of it. Once the visitor does this, the path disappears for him and he is forced to participate in the battle until its end. Fellow travelers still on the road can drag him back to safety so long as they do not step off the road themselves. Visitors walking off the roads encounter wounded and dying soldiers and refugees, as well as able-bodied potential enemies and allies. Some werewolves, such as the Get of Fenris, come to the Battleground to revel in the thrill of its battles. Other Garou regard it as a good place to practice strategy and tactics — a way to test their wits and mettle against the greatest generals and warriors in history. 
 
 Should the pack continue along the road and ignore all the events at hand they will eventually discover another Signpost that lists “Retreat” as an option. This place takes many forms (a helicopter pad, a lifeboat, a dense forest 
-
-_**55**_ 
 
 _**NEAR UMBRA**_ 
 
@@ -1599,8 +1503,6 @@ relishing the struggle as much as any of the Realm’s other emanations. A few s
 ## CyberRealm 
 
 Even the Weaver’s playground struggles to keep up with human advancement. The CyberRealm is young by Umbral standards, dating back as far as technology became 
-
-_**57**_ 
 
 _**NEAR UMBRA**_ 
 
@@ -1652,8 +1554,6 @@ The Pattern Web itself lights up the district of penthouses and high-rise lairs.
 
 Most of the residents of this area are alien, emotionless Weaver-spirits. Some humanoid emanations work and dwell here as servants but a lucky few have proven themselves to the arachnid masters. Promotion to this level means not only permanent residence and a new job but also a new 
 
-_**58**_ 
-
 _**UMBRA: THE VELVET SHADOW**_ 
 
 **==> picture [560 x 377] intentionally omitted <==**
@@ -1675,8 +1575,6 @@ With the current state of Weaver-Garou relations, the inhabitants of Downtown ar
 ## Old Town 
 
 Web-sealed shafts and stairwells mark the borders between Old Town and Downtown and have done so for as 
-
-_**59**_ 
 
 _**NEAR UMBRA**_ 
 
@@ -1709,8 +1607,6 @@ The Computer Web is divided up into the Macro and Micro Levels. The Macro Level 
 The Macro Level is studded with nodes of various sizes. Each node has a juncture terminal that allows access to the Micro Level with a Willpower roll (difficulty 6). Inside the Micro Level the shapeshifter must contend with Weaver-spirits called daemons that keep out anyone without proper pass codes, though some nodes are freely open to Downtown residents for recreation purposes. 
 
 Each cluster on the Micro Level is its own mini-realm shaped by the files represented there; someone’s saved game file is going to look a lot different from a realm of child pornography. A company’s secret files might take the form of physical filing cabinets easier to crack open than computer security in the material world. Data can be reshaped and altered by destroying or defacing physical representations of files. Information deleted from the mundane Internet can sometimes be found in a dusty, abandoned backup node. 
-
-_**60**_ 
 
 _**UMBRA: THE VELVET SHADOW**_ 
 
@@ -1754,8 +1650,6 @@ The Brood members stand beside the swirling pools of molten silver. They are wil
 
 The Brood marks a Garou requesting punishment by using a talon to carve a sigil into her flesh. She is then invited to step into the pool of silver. The Brood respects those who voluntarily enter their torment, but they will 
 
-_**61**_ 
-
 _**NEAR UMBRA**_ 
 
 assist reluctant penitents. From the first touch of the silver the Garou’s flesh burns and every nerve ignites in agony. She thrashes about and may instinctively shift between forms in an attempt to climb out of the pool, but there is no escape from punishment. The waters swiftly drag her downwards and into one of the nightmarish black tunnels that snakes its way through the rock. 
@@ -1793,8 +1687,6 @@ and these mirrors are the gateways. These psychopomps wear robes over their Crin
 One of the greatest secrets of the Realm is that a Black Spiral Dancer swirls somewhere in the silver sea. The liquid metal slowly burns away the Wyrm’s hold on him. A handpicked pack of Brood carefully monitors his progress and ensures the ritual is administered precisely. They report any changes to his status immediately. Charyss’ most skilled servants work tirelessly within his mind to uncover every last crime against Gaia. 
 
 So far the Dancer has endured unending tortures for more than a decade and no one knows how much longer the process may take. Charyss isn’t even sure if he can be 
-
-_**62**_ 
 
 _**UMBRA: THE VELVET SHADOW**_ 
 
@@ -1838,8 +1730,6 @@ The Storyteller should then multiply the complexity of the task by the size of t
 
 The Storyteller then sets the first scene by whatever means suits her style. She might have several weird scenarios carefully built ahead of time, or she might trust to her improvisational abilities. In the second case, some form of random input generator might prove helpful — clicking Random Article in Wikipedia a couple times and cobbling together a scene based on what comes out, for example, or scattering all the books and DVDs in the living room on the floor and throwing handfuls of pennies to determine which two or three of them will serve as the basis for the 
 
-_**64**_ 
-
 _**UMBRA: THE VELVET SHADOW**_ 
 
 next scene. Not only does random input give improvisation a foundation to build upon, but it tends to create an atmosphere of chaos at the gaming table. 
@@ -1869,8 +1759,6 @@ Visitors to the Flux Realm seldom encounter the Coil, and those who do so and su
 The Coil’s favorite trick is to convince a visitor that she has escaped the Flux Realm by sealing her in a bubble of temporary order that looks like a familiar place. The victim might spend days or weeks in the pocket of order before she notices something that doesn’t jive with the way things should be — a friend with the wrong name, a building that wasn’t there before, a Moon Bridge that returns the traveler to his point of origin. Once this happens, the chaos reasserts itself, and the wanderer discovers he has never left the Flux Realm. What’s worse, the Coil often chooses to do this several times until the visitor spends the rest of his life a little wary of change — always afraid that anything unexpected might herald a rapid collapse into the chaotic reality of the Flux Realm. 
 
 The Coil appears to recognize the spark of the Wyld in shapeshifters and is less likely to toy with them — unless 
-
-_**65**_ 
 
 _**NEAR UMBRA**_ 
 
@@ -1908,8 +1796,6 @@ The pack seeks the services of a great queen in the Legendary Realm. Before she 
 
 **==> picture [234 x 37] intentionally omitted <==**
 
-_**66**_ 
-
 _**UMBRA: THE VELVET SHADOW**_ 
 
 ## The Midnight Land 
@@ -1946,8 +1832,6 @@ Even in the Legendary Realm, few willingly enter the frozen nations. Those who d
 
 Once, all the kingdoms of the Legendary Realm were prosperous lands where no one went hungry, but that may soon come to an end. Some years ago a great plague of locusts emerged from the warm veldts of the south and descended on the fields of a neighboring kingdom, reducing the wheat and corn to sand. The werewolf hero who ruled over that land did everything in his power stop the clouds of locusts and the choking dust storms that rose up in their wake, but the Hungry Dust left his kingdom a wasteland, its farmers starving in the midst of brown desolation. Even 
 
-_**67**_ 
-
 _**NEAR UMBRA**_ 
 
 **==> picture [234 x 37] intentionally omitted <==**
@@ -1983,8 +1867,6 @@ The chase is on, and the pack soon learns more about the queen’s enemies. Are 
 ## Pangaea 
 
 The Silver Record documents Garou history farther back than the War of Rage, before the Impergium, even prior to the division of the tribes of Garou. As ancient as that prehistoric chronicle is, Gaia Herself has experienced epochs and eras 
-
-_**68**_ 
 
 _**UMBRA: THE VELVET SHADOW**_ 
 
@@ -2038,8 +1920,6 @@ Hidden in one of the dense forests of Pangaea is a mound of countless bones. Ran
 
 A strangely diverse number of human and near-human tribes exist in Pangaea, despite the danger. Sharing the 
 
-_**70**_ 
-
 _**UMBRA: THE VELVET SHADOW**_ 
 
 responsibilities of predator and prey, they eke out harsh little lives in a world of ravenous giants. 
@@ -2084,8 +1964,6 @@ As if they didn’t pose enough of a threat to the humans of Pangaea, the Wyrm h
 
 Caves and secret places puncture the mountains of Pangaea in untold number. The dwellers of those dark corners are far stranger than even the Zarak-Ur. Vast, 
 
-_**71**_ 
-
 _**NEAR UMBRA**_ 
 
 cavernous hollows hide a people who have spent too long beneath the earth. Hunched, leathery troglodytes blind from eons without light. These bulky monsters do not discriminate between visitor, foe and food, and however they communicate it isn’t through their crooked, sharptoothed mouths. Occasionally, a great moaning song rises from the mountains that lets the other tribes know to keep out of Pangaea’s caves: the mountain people are hungry. 
@@ -2116,8 +1994,6 @@ The truly desperate can always take the train.
 
 All Gnosis drained from the worker-spirits, as well as any gathered from the scraps of former employees, is stored in incredible vats beneath the floors of every factory in the Scar. Disinterested operators pump the sickening puree of their laid-off coworkers from these wells of energy into the husks of mass-produced Wyrm fetishes. The Gnosis batteries are fiercely protected by Bane and pattern-spider alike. The smallest rupture will return vast quantities of power and awareness to otherwise helpless laborers. 
 
-_**72**_ 
-
 _**UMBRA: THE VELVET SHADOW**_ 
 
 **==> picture [560 x 423] intentionally omitted <==**
@@ -2137,8 +2013,6 @@ in the black. That small freedom over their respective business-kingdoms is impe
 The reach of the barons comes almost entirely from the Scrags and twisted emanations that make up the Scar’s corrupt peacekeepers. These thugs are little more than monsters clad in their respective corporation’s vivid sponsorship. They are as likely to gnaw the thin fibers of Gnosis from an exhausted lawbreaker as detain them. Unfortunately for the populace of the Scar, they’re fiercely loyal to the barons, and avoiding the peacekeepers is impossible. They wear many hats, so long as the position gives them authority to abuse. They’re sadistic overseers of the factory floor, abusive police officers with something to prove, and violent strike-breakers with a taste for making messy examples. 
 
 Scrags aren’t the only spirits on the barons’ payroll. Bane Spiders, the massive Wyrm-tainted Weaver-spirits 
-
-_**73**_ 
 
 _**NEAR UMBRA**_ 
 
@@ -2176,8 +2050,6 @@ opened doors for other Garou tribes to throw their lot in with Amalgamated Iron.
 
 Since its inception, Amalgamated Iron has drawn interest from the barons of the Realm. Aside from destroying Gnosis batteries, and putting a messy end to many of the Realm’s supposed peace-keepers, Amalgamated Iron has gone out of its way to encourage the creation of labor unions among the Scar’s downtrodden. While the original attempts failed because of the Scar’s thick miasma of apathy, Amalgamated Iron has found that spirits in the wake of a sudden, explosive infusion of Gnosis are much more willing to unify. 
 
-_**74**_ 
-
 _**UMBRA: THE VELVET SHADOW**_ 
 
 ## Summer Country 
@@ -2205,8 +2077,6 @@ Of specific note, the pregnancies conceived by a temporarily fertile metis trap 
 ## Cloudtop High 
 
 Cloudtop High, another island in the lagoon’s inner ocean, floats high above the mirror-calm waters. Its suspension far above the sea leaves a tangle of thick, healthy roots hanging rope-like from its underside. And from that underside hangs every possible species of bat. On the surface of the isle, countless other beasts of the sky make their home in great flocks. Insects, birds, and eons-extinct dimorphodons exist side-by-side, eager to ferry visitors between the shores of the mainland and the massive, spired castle of living vines at Cloudtop High’s peak. Unlike the shrine on the Isle of Self and its curative properties, the entire purpose of the nameless keep is the pilgrimage itself. Summer Country’s visitors seek it for the sole intention of communing with Gaia. 
-
-_**75**_ 
 
 _**NEAR UMBRA**_ 
 
@@ -2248,8 +2118,6 @@ The rare Garou who achieves this epiphany finds herself in the Forest of Longing
 
 The Wyrm’s influence has of yet failed to reach Summer Country, but there’s no telling when it will. None of the 
 
-_**76**_ 
-
 _**UMBRA: THE VELVET SHADOW**_ 
 
 Realm’s inhabitants are naive enough to believe themselves safe forever. Among the denizens, two reigning schools of thought exist on the inevitable tainting of this Umbral Eden. One group believes now is the time to cut all ties the world outside the Realm, sundering any connection Summer Country has to Earth and the Umbra at large. They argue that the one pure place with the option to survive has an obligation to do just that. The other group understands how important the Realm is to Gaia and her children, and how inextricably its fate is bound to them. They advocate throwing open the proverbial gates, and bringing in all those who might need refuge from the sickness and horror outside. Even if it means the Wyrm will get there that much faster. 
@@ -2284,8 +2152,6 @@ Some shapeshifters’ animal forms, like those of the Corax and Ananasi, are alm
 
 Some shifters get it worse than others. Gurahl in bear form are prized targets for hunters in the forests and 
 
-_**77**_ 
-
 _**NEAR UMBRA**_ 
 
 **==> picture [550 x 366] intentionally omitted <==**
@@ -2307,8 +2173,6 @@ Some humans in the Town aren’t all bad. Families with children tend to be kind
 ## Shelters 
 
 In Wolfhome, a ‘shelter’ is anything but. Humans in matching uniforms with painful equipment for controlling animals cram them into tiny, smelly, filthy cages where they share space with feral animals. Many are sick or even rabid, and even if they aren’t they’re not going to be neighborly. And then there are the humans who will insist on injecting 
-
-_**78**_ 
 
 _**UMBRA: THE VELVET SHADOW**_ 
 
@@ -2346,8 +2210,6 @@ Wolfhome is rarely an intentional destination. The characters that end up there 
 
 Leaving Wolfhome is an entirely different story. To exit Wolfhome, the shapeshifter has to get in touch with his animal side and truly understand the bestial aspects of his nature — likely in a way he never has before. The moment at which the character has learned his object lesson and how are up to the Storyteller’s discretion, but once that moment is reached the character may leave. 
 
-_**79**_ 
-
 _**NEAR UMBRA**_ 
 
 **==> picture [573 x 748] intentionally omitted <==**
@@ -2363,8 +2225,6 @@ The Realms of the Near Umbra can form around almost any theme or concept. Unlike
 ## Designing Minor Realms 
 
 The smaller realms usually have one or two thematic aspects that explore Garou existence. Examples from the major Near Realms are the Battleground and the nature of war, Erebus’ exploration of absolution of spiritual pain and sin, or the Legendary Realm’s ancient heroes and myths. When the Storyteller creates a minor Realm, she should keep a specific theme in mind. Realms can have multiple themes but these need to complement each other. The description of the Realm should make clear what the Storyteller expects from the Realm. If the Realm doesn’t articulate the Storyteller’s intentions, or becomes confused or unclear, the Realm may have too many aspects. 
-
-_**81**_ 
 
 _**WORLDS BEYOND**_ 
 
@@ -2394,15 +2254,11 @@ Achieving the minimum successes opens a Moon Bridge that leads to within ten mil
 |---|---|---|---|
 |Physical Reality|9|Unique|20|
 
-
-
 ## Synesthesia 
 
 The Realm of Synesthesia warps every sensory interpretation. Eyes hear intense noise from vibrant images, ears taste sweet or savory sound, the mouth feels flavors as texture and pressure, the skin smells every touch and caress differently, and scents fill the nose with a palette of different colored hues. This is highly disorienting to visitors but the substitution of senses can help Garou learn to better integrate all experiences and overcome the bias of favoring some senses over others. 
 
 Spirits within Synesthesia revel in the twisted sensations. No creature of flesh can fully appreciate the rush creatures of pure spirit feel here, not even half-spirit creations like the Garou. As far as anyone can tell the Realm is Earth-like beneath the strange sensations, with areas of wilderness and urban sprawl, but with no native residents. Synesthesia exists to be experienced and visitors are free to roam within its borders without interference from emanations accustomed to the Realm’s conditions. 
-
-_**82**_ 
 
 _**UMBRA: THE VELVET SHADOW**_ 
 
@@ -2439,8 +2295,6 @@ The admission of non-tribal members varies from homeland to homeland. Garou may 
 ## Black Furies 
 
 The Black Furies’ homeland is a pristine wilderness straight from mythical Grecian legends. Rocky mountains stretch through the clouds and fall away into wine-dark seas. Lush, fruit-laden trees fill the land between cities. All creatures live as part of nature’s cycle of predator and prey with neither side being over-hunted or dying of starvation. The hunt is not forbidden for humans, though. The chase is sacred to the Furies. Humans perform the Prayer for the Prey out of respect and freely hunt across the homeland. The other predators within the Realm are just as free to hunt, and wolves, lions, and other carnivores stalk the lands, with sharks, killer whales, and other marine hunters in the sea. Humans are no more protected than are other creatures but the animal emanations only kill for food or safety. 
-
-_**83**_ 
 
 _**WORLDS BEYOND**_ 
 
@@ -2492,8 +2346,6 @@ The homeland of the Get of Fenris is the harshest of all the European-descended 
 
 Packs of dire wolves roam the wilds, fighting for survival against the never-ending cold. These predators live forever on the verge of starvation and will hunt and attack any source of 
 
-_**85**_ 
-
 _**WORLDS BEYOND**_ 
 
 meat they can take down — including werewolves. They are smart enough to stay clear of the lodges where the Get gather to carouse, fight and tell tales of their glory, but solitary Garou on tests of stamina or exiled by their lodge are fair game. 
@@ -2528,8 +2380,6 @@ The jumbled noise only falls briefly silent when the wolves howl. Savage packs r
 
 The only solution the Red Talons have thought of is to cull the wolf population and this is something they refuse to consider. They blame the Realm’s overpopulation on the dwindling wolf population in the physical world, reasoning that each wolf killed there results in another wolf in the homeland. In this way, the Talons sidestep criticism of their homeland, and have found yet another reason to blame humans for their woes. 
 
-_**86**_ 
-
 _**UMBRA: THE VELVET SHADOW**_ 
 
 **==> picture [564 x 365] intentionally omitted <==**
@@ -2551,8 +2401,6 @@ On each lesser mountain peak stands another mighty fortress, home to one of the 
 Shadow Lords covet the right to rule the Great Mountain above all else. According to Shadow Lord legend, the one who controls the fortress will become ruler of the entire Garou Nation. The few non-Shadow Lords who know of this legend do not mention its self-serving nature nor the fact that it does not specify a Shadow Lord must be the one to claim the Great Mountain. 
 
 Many Lords have tried to take the Great Mountain but it has confounded every attempt. Most have approached it 
-
-_**87**_ 
 
 _**WORLDS BEYOND**_ 
 
@@ -2592,8 +2440,6 @@ The Uktena homeland encompasses a diverse mix of North American climates and ter
 
 _**UMBRA: THE VELVET SHADOW**_ 
 
-_**88**_ 
-
 between the lands so deciduous forests grow within expansive prairies that also house rocky deserts and snow-capped mountains. The modern Uktena have spread across the earth and intermingled with people of distant lands. The homeland now incorporates every Uktena birth land. The environmental mishmash includes fragments of volcanic Japanese mountains and Mongolian steppes, rainforests of South America and savannah plains of Africa. 
 
 The Uktena use their homeland as an extension of their role as collectors of secrets. The homeland contains spirits of extinct creatures, embodiments of forgotten myths and secrets of lost cultures. The Uktena gathered the remnant emanations of lost Native American tribes that scattered before European expansion. Now the last ancestor spirits of these tribes dwell only in the homeland. Unique mythical creatures and heroes of Native American lore also make their homes in the Realm and trade secrets with the Uktena for continued protection. The Uktena remember and nurture these last remnants and save them from the final oblivion of the Abyss. 
@@ -2630,8 +2476,6 @@ Countless great pits surrounded by rusted metal structures sink into the depths 
 
 The filth and heat is even too much for the Dancers, who avoid the surface unless necessary. They instead dwell deep underground in vast networks of black tunnels lined with luminescent fungi and flickering balefire torches, while black ichor drips from the saturated earth above. 
 
-_**89**_ 
-
 _**WORLDS BEYOND**_ 
 
 The homeland is still connected to many other Near Realms by unreliable Moon Paths. Other Realms try to close off links to the dark homeland but Black Spiral Dancers still launch raids into Pangaea, the Arcadia Gateway and the Aetherial Realm, and an obsidian gateway leads to the entrance to the Black Spiral Labyrinth in Malfeas. Despite the most fervent efforts of the Black Spiral Dancers to close it, a shining silvery path leads from their homeland directly to Erebus. 
@@ -2667,8 +2511,6 @@ The homeland still exists as one of the countless small Realms dotting the Near 
 The stories the Striders tell describe the homeland as resembling their ancestral home in ancient Egypt. Perpetual moonlit night cloaks the homeland’s dark sands. The waters shine silver in the moon’s reflected light. Great pyramids reach towards the skies, carefully aligned to highlight constellations commemorating Silent Strider heroes of old. Ancient hieroglyph-covered obelisks dot the landscape, telling the story of the Silent Striders and the history of the Garou. The dialect has been lost to modern minds but ancient spirits may recall its secrets. 
 
 The Realm is also home to the ancient ancestor spirit Wepauwet. This spirit of a once powerful Ahroun guards the homeland from intruders and patiently waits for his descendants to fulfill their oath. He also protects another forgotten secret — in tombs deep beneath the pyramids and temples the tribe’s ancestor spirits lie sleeping. Should the tribe ever recover its lost homeland it would suddenly find 
-
-_**90**_ 
 
 _**UMBRA: THE VELVET SHADOW**_ 
 
@@ -2732,8 +2574,6 @@ Crossing the Membrane at an Anchorhead is somewhat like stepping sideways. Rathe
 
 All stabilized Anchorheads — and even some wild Anchorheads — develop a theme at their mouths. This theme can be anything that evokes a tunnel or passageway, such as a deep green sea pool where the waters swirl to a central funnel and are drawn down into the depths. Engaging with the theme — the character leaps into the chill water and experiences near drowning — reduces the difficulty by 1. Characters do not have to engage with the theme. They can sense and use the connection between anchors and pass through the passageway — arriving at the destination dry and not gasping for air — but doing so risks degrading the Anchorhead. 
 
-_**92**_ 
-
 _**UMBRA: THE VELVET SHADOW**_ 
 
 Success results in the character passing across the Membrane. If she engaged with the theme she experiences this accordingly — such as being wet and cold as described above. If she did not she simply feels stretched for a moment before appearing on the other side of the Membrane. 
@@ -2776,8 +2616,6 @@ An object of value — the anchor — is ritually divided in two. The rite’s m
 
 If the rite succeeds, an Anchorhead opens between the anchors — both appear whole again. Close examination reveals the restored half is ghost-like and unreal. If either one is destroyed, the Anchorhead instantly collapses. Small Realms start to form around the mouths of the new Anchorhead; within a few hours they develop a theme according to the natures and subconscious desires of the ritemasters. 
 
-_**93**_ 
-
 _**WORLDS BEYOND**_ 
 
 **System:** Each ritemaster makes an extended Wits + Rituals roll, difficulty 8. Each roll takes one hour performing the rite. Storytellers may modify the difficulty depending on steps taken by the ritemasters to synchronize their actions. 
@@ -2818,8 +2656,6 @@ Characters embracing the theme of the Anchorhead float in the waters and move wi
 
 After the journey is nearly done she falls over one last waterfall and then finds the waters calm and bring her gently to a familiar bend where they deposit her onto the shore of the second camp. 
 
-_**94**_ 
-
 _**UMBRA: THE VELVET SHADOW**_ 
 
 **==> picture [560 x 409] intentionally omitted <==**
@@ -2841,8 +2677,6 @@ The shape and size of the Anchorhead tunnel makes it incredibly difficult to use
 The Anchorhead doesn’t remain so difficult for the entire passage. The bramble entrance runs slightly downwards for a dozen yards before it reaches cool, well-trampled dirt. The journey to the exit appears to require around an hour of walking before the dirt floor ends and the thorny vines head up again. The subjective time may stretch out even longer for Garou not in Lupus form, and takes an especially long time for those in Homid. 
 
 The Deep Umbral side of the Anchorhead is almost the same as its counterpart. The sept has called on the 
-
-_**95**_ 
 
 _**WORLDS BEYOND**_ 
 
@@ -2880,8 +2714,6 @@ Concepts such as religion and deities create very powerful spirits found within 
 
 _**UMBRA: THE VELVET SHADOW**_ 
 
-_**96**_ 
-
 Heaven, Nyx among the shadows, or the wise Ahura Mazda upon a throne of goodness and light. These gods may not show any regard for a traveler, but he would be wise to pay them respects regardless of his beliefs in case they decide to take notice. 
 
 ## Mages 
@@ -2912,8 +2744,6 @@ The silver cord is the vampire’s lifeline back to her body, and she will defen
 
 The Astral Umbra is closely connected to the Dream Zone, and a traveler may pass into the Astral from any point within. This poses a bit of a problem as the traveler’s physical body passes through with him. The Astral is a place of ideas and concepts, not physical realities. On a purely conceptual level, the substance making up a traveler is subject to the same vagaries as any other concept within the Astral. A traveler could very well end up disparate pieces of himself, floating about the Astral with no way to return to his normal state. Even worse is that the Rage of a werewolf irritates the Astral, causing it to warp and become hostile towards the entering Garou. A traveler could pass through the Membrane into the Astral from the Deep Umbra where the two meet at highly conceptual realms. This means the traveler has to delve into some strange and alien realm of the Deep Umbra, pass whatever dangers lie there, to come 
 
-_**97**_ 
-
 _**WORLDS BEYOND**_ 
 
 to the Astral in a deeply conceptual realm — only to find her physical form drawn into strange ideals. 
@@ -2940,8 +2770,6 @@ Sword Singer is old and set in her ways. She doesn’t believe she needs protect
 
 Members of the Lake Mohave Sept, on the Arizona side of the Colorado River, are concerned about one of their Theurges who has gone missing. Dreaming Vision is an Uktena who can forecast the future by watching the shifts in sleeper’s dreams. She spends much of her time watching and analyzing dreams, taking many trips to the Dream Zone to 
 
-_**98**_ 
-
 _**UMBRA: THE VELVET SHADOW**_ 
 
 conduct her studies. None of the other soothsayers are able to discern how she does it, but the precision of Dreaming Vision’s divinations are uncanny. The other sept members are used to her often week long jaunts into the Umbra, and at first were unconcerned with her absence. It has been over three weeks, and Raven Eyes, The Master of Rite, is concerned that Dreaming Vision will suffer disconnect if she does not return to the physical realm soon. He is concerned that she might have gotten lost in the Umbra, and asks the character to seek her out. 
@@ -2967,8 +2795,6 @@ The ghosts of the Dark Umbra have their own terminology for their world. The Sha
 ## Denizens 
 
 Everything in the Dark Umbra is made up of the souls of the dead. Each building, item, and structure is forged from 
-
-_**99**_ 
 
 _**WORLDS BEYOND**_ 
 
@@ -3008,8 +2834,6 @@ Traveling within the Dark Umbra is surprisingly similar to travel within the Mid
 
 Ghosts living in the Dark Umbra do not accept trespassers into their domains. Even the smallest and most pathetic looking ghosts attack those who linger too long within the realm, attracted to their shining life force. Some ghosts, actively seek out travelers to give them quests or tasks to complete in the material world. They grant their charges 
 
-_**101**_ 
-
 _**WORLDS BEYOND**_ 
 
 with special tokens of favor, showing other ghosts that they are spoken for. Some ghosts respect the tokens and leave the travelers alone, while others see those who hold them as dangerous interlopers who must be destroyed. Some more insidious ghosts view the token as a sign of gullibility and attempt to trick the holder into performing their own tasks. 
@@ -3040,8 +2864,6 @@ Before the Western Garou came to the United States, the Uktena worked to clear a
 
 One such Spectre is bound just outside of a Pennsylvania sept. The sept changed hands long ago from the Uktena to the Get of Fenris, and no one knows or remembers the binding. The Garou in the area are experiencing problems with what seem like terrible banes swarming the location, yet when they travel to the Umbra, they cannot find the spirits. Evidence of ghost attacks and possessions on the 
 
-_**102**_ 
-
 _**UMBRA: THE VELVET SHADOW**_ 
 
 human community makes it clear that the sept is dealing with an onslaught of powerful ghosts. The sept Alpha requests the characters to investigate what is causing the ghosts to act out and how to stop them. The characters must enter the Dark Umbra to follow the ghosts, and discover the presence of the Spectre bound in strange spiritual ties. The bindings are weak from the ghosts tearing away at the magic holding them. As the characters destroy the ghosts, more keep arriving. Something is sending the ghosts to the Spectre, and the only way to deal with it is to follow them to their source. What awaits is another powerful Spectre, attempting to free its ally. 
@@ -3069,8 +2891,6 @@ Most Garou never enter the Deep Umbra, and those who do are ill-equipped to navi
 ## Disconnection 
 
 The Deep Umbra has many unique qualities not found in any other part of the Umbra. It is the furthest from the physical realm in terms of laws of reality, and possibly even locational distance within the Umbra. It is also the most real of all areas of the Umbra. The Celestines who are responsible for all of creation and those things within it live in the 
-
-_**103**_ 
 
 _**WORLDS BEYOND**_ 
 
@@ -3108,8 +2928,6 @@ The only way to reach the area of the Deep Umbra that houses the Wyrm is by foll
 
 _**UMBRA: THE VELVET SHADOW**_ 
 
-_**104**_ 
-
 the center of Malfeas. The bottom of the pit touches near to the Wyrm’s lair in the Deep Umbra, and the strongest and most corrupt of the Wyrm’s Incarnae — avatars of the Triatic Wyrm — prowl the lower depths of the spiral, looking to corrupt any that come close. Those who willingly make the trip, the Black Spiral Dancers, are touched by the Incarnae, souls twisted and corrupted with the taint of the Wyrm. Those who survive return fully dedicated to the Wyrm, forever connected to the Incarnae that corrupted them. 
 
 ## Bunyip 
@@ -3132,8 +2950,6 @@ The Membrane serves as an impenetrable wall, and for good reason. What lies beyo
 
 The Deep Umbra is a conglomeration of many realms, residences, and spaces, and unlike the Near Umbra’s neat separation of realms, each flows into the other expressing elements in strange, beautiful, and often horrifying combinations. Those who have entered the Deep Umbra and returned to tell tales cannot define boundaries from their journey. Landscapes may have changed, yet the path and destination remained constant. 
 
-_**105**_ 
-
 _**WORLDS BEYOND**_ 
 
 **==> picture [558 x 361] intentionally omitted <==**
@@ -3149,8 +2965,6 @@ may also become lost within the recesses of a realm with no connection to the re
 ## Venturing into the Deep Umbra 
 
 Garou have traveled into the Deep Umbra for little reason more than desire of exploration and seeking the unknown. Most often, a spirit has asked them for aid in some matter or another than requires the werewolves to pass through an Anchorhead into the depths of the realm. Below is a list of story ideas that give characters reasons to enter the Deep Umbra. 
-
-_**106**_ 
 
 _**UMBRA: THE VELVET SHADOW**_ 
 
@@ -3174,8 +2988,6 @@ A Child of Gaia Ragabash, “Truth Seeker,” challenged for the Rank of Athro. 
 
 That was four months ago. No one has seen nor heard from Truth Seeker since news came from Garou guarding an Anchorhead in a nearby part of the Aetherial Realm that he had passed through the Membrane there. No news of his return followed, and the sept has sent inquiries to the other guarded Anchorheads wondering if he came out from a different direction. Truth Seeker is thought to be lost somewhere in the Deep Umbra. His sept requests the characters to find Truth Seeker and help him return home. The characters must travel into the Deep Umbra and find Truth Seeker, and return him home if possible. When the characters begin following the other werewolf’s trail in the Deep Umbra, they find that his deep contemplation on the puzzle box lead him to the realm the box originated from, and somehow into the box itself. Truth Seeker is frozen in time within the box, and the characters are his only hope for getting out of the box and returning safely to his home sept. 
 
-_**107**_ 
-
 _**WORLDS BEYOND**_ 
 
 **==> picture [573 x 748] intentionally omitted <==**
@@ -3189,10 +3001,6 @@ Every spirit is an aspect of the greater whole that is Gaia. Understanding each 
 Much like how the Penumbra is the shadow cast by the life of the physical world, spirits are shadows and reflections of aspects of physical reality. As things grow more important on Earth, Essence takes on its shape and grows as well. Some spirits echo specific locations and concepts like ‘the Monongahela River’ or ‘nightmares of animal attacks.’ Others, particularly stronger ones, represent broad archetypes — not merely the spirit of a rat nor even a type of rat but the Rat Incarna itself. 
 
 ‘Important,’ in this case, does not necessarily mean ‘important to humans.’ The separation of the spiritual and physical worlds over millions of years and untold ages has made it less obvious, but spirits as a whole simply _are_ and always have been. Spirits are a facet of reality itself and have been for as long as reality has had facets. Whether contained within the physical essence of the oldest rocks and trees or just on the other side of the Gauntlet, everything shares a link with a spiritual aspect in the Umbra. 
-
-_**109**_ 
-
-_**SPIRITS**_ 
 
 **==> picture [234 x 37] intentionally omitted <==**
 
@@ -3226,8 +3034,6 @@ Elsewhere, a spirit of organization resembling an ephemeral filing clerk coordin
 
 This is not simply how the spirit appears, but how it _is_ . Regardless of what they represent, anything that defines their shape or behavior or appearance also defines their very nature and vice-versa. When an entity’s existence revolves around representing a Platonic ideal, its appearance and reality are one. An entity such as the spirit’s Jaggling or Incarna master can reshape its form and nature. A Theurge with the Malleable Spirit Gift ( **W20** , p. 166) or perhaps a powerful mage can do the same. 
 
-_**110**_ 
-
 _**UMBRA: THE VELVET SHADOW**_ 
 
 **==> picture [559 x 350] intentionally omitted <==**
@@ -3247,10 +3053,6 @@ A _very_ rare few have even found ways to access the Umbra and petition spirits 
 People who misinterpret spirits as manifestation of biblical angels or forge Faustian deals with dangerous entities cause as much grief to their fellow man as they do the Garou. A consistent ritual passed down by spirit-aware humans is likely to fall into the hands of someone willing to exploit it for personal gain. Cults form around those who can actually call up spiritual manifestations. Gaia’s people are wary of such cults, as even a well-meaning spirit can be changed for the worse by the beliefs of the group feeding it. 
 
 Most of the time when humans awaken a spirit it happens through personal ritual and effort misinterpreted as prayer or worship. Even an oblivious human can address the spirit within a musical instrument in its own metaphorical language by painstakingly caring for and tuning it. If the 
-
-_**111**_ 
-
-_**SPIRITS**_ 
 
 **==> picture [234 x 37] intentionally omitted <==**
 
@@ -3288,8 +3090,6 @@ The modern world is very good at producing exceptions to traditional practices a
 
 Epiphlings are even more likely to filter their experiences through the concept they represent but their more abstract nature allows for greater ability to adapt to changing circumstances. Most worry less about tangible distractions 
 
-_**112**_ 
-
 _**UMBRA: THE VELVET SHADOW**_ 
 
 and present a more cerebral demeanor. Garou capable of keeping the Epiphling’s nature in mind will have an easier time speaking with and understanding the concept-spirits. 
@@ -3319,10 +3119,6 @@ Understanding how and when to offer chiminage is practically a basic survival sk
 Chiminage can — and often is  — the best way to make amends to a spirit that has been offended or wronged in some way. A shapeshifter who hasn’t stepped on any toes can also use chiminage to earn a good reputation with a given spirit or brood, which might lead to an increase in Renown. Word of such generosity travels fast among spirits and maintaining a good reputation is its own reward. Black Spiral Dancers known for dealing fairly with Banes actually disgust some Gaian spirits less than they otherwise would. Sometimes a spirit performing a favor for a shapeshifter goes a little above and beyond, possibly leaving him owing it a little something extra. In turn, he is expected to offer a favor in thanks, and thus begins a long-standing cycle of spirit and shapeshifter maintaining ties of mutual cooperation by continuously one-upping each other on favors. 
 
 Chiminage can take a number of different forms. The most common is a quest on the spirit’s behalf, often to improve the spirit’s purview or station in some way. Some spirits simply want the Garou to socially promote its abilities and generosity so everyone knows they can also deal 
-
-_**113**_ 
-
-_**SPIRITS**_ 
 
 **==> picture [234 x 37] intentionally omitted <==**
 
@@ -3357,8 +3153,6 @@ Some of these spirits are born at that place, hidden within the Penumbra or in t
 All along the different levels of spiritual awareness and power, spirits organize themselves into families called broods much like the Garou do tribes. ( **W20** , p. 373) All of these broods descend from one or more Incarnae and, by extension, Gaia. And as with the Garou tribes, a number of these relations are through adoption rather than having any direct relation to the Incarna patron. They are all related in terms of philosophy or nature, though to a spirit the distinction is fuzzy. 
 
 Whether born literally from other spirits in the brood or adopted, they consider each other true family. Even if they don’t all get along with each other, they still show proper respect to each other and reverence to the Incarna from which they’re descended. If a shapeshifter greatly offends a spirit of Chimera’s brood, Chimerlings and other assorted spirits of wisdom or enigmas will be hostile and uncooperative until she can redeem herself. In extreme cases 
-
-_**114**_ 
 
 _**UMBRA: THE VELVET SHADOW**_ 
 
@@ -3399,10 +3193,6 @@ If a Gaffling’s purview increases in strength, like a sapling growing into a m
 If Gafflings are the clever animals of the spiritual world, Jagglings are the people. Once a spirit has progressed beyond the Gaffling level, they are no longer an appendage of their superiors but have usually achieved sentience in the way humanity would think of it. Jagglings have thoughts and personalities and agendas all their own. While they typically serve Incarnae, Jagglings’ goals don’t always have to align with those of their master. 
 
 Jagglings feed much like Gafflings do, although they are more likely to reap the benefits of service and worship 
-
-_**115**_ 
-
-_**SPIRITS**_ 
 
 than replenishing themselves through Slumber. They tend to be more actively involved in spiritual affairs, primarily due to their awareness and self-determination, and because of their greater strength their purview grows in scope as well. A forest is a more important part of nature than an individual tree. A military unit will see more action than any individual rifle. 
 
@@ -3458,10 +3248,6 @@ Not every entity found in the Near Realms is an emanation. Most of them are typi
 
 To those well versed in the ways of spirits, the world teems with life. As previously described, spirits aren’t living things in the traditional sense but the animistic world of the Garou isn’t entirely unlike a thriving forest. A traveler walks through a forest and sees all manner of creatures, some strange-looking and brightly colored, climbing on trees and alighting on branches. He hears other things moving unseen through leaves and bushes, sometimes but not always leaving noticeable traces and scents. He doesn’t see but knows for a fact that some creatures squirm within the earth or behind a layer of tree bark. He takes their 
 
-_**117**_ 
-
-_**SPIRITS**_ 
-
 presence for granted rather than disturb them. Parts of this world are just beyond reach and perception. 
 
 Humans see the animistic world like a young child at his first stage play. People speak and move on stage, drawing all of the attention, while figures skitter about backstage manipulating props and bits of the scenery. He only sees what’s in front of the curtain or shining down into his eyes from up above. He doesn’t look for strings or arms moving the sun across the sky, nor does he notice actors vanishing through a trap door or stagehands hiding props for later. It’s the magic of the theatre at work and he only sees the show. The adults, however, know about the complicated technical work backstage that to a child may as well be the workings of Santa Claus. 
@@ -3507,8 +3293,6 @@ The picture is here, too, drawn in syrupy-sweetness nearby. A young Garou kneels
 “Cracks in the walls?” 
 
 “Yes, exactly.” She relaxes. Not as skittery now. “A crack big enough for my pack, someplace... someplace dark and 
-
-_**118**_ 
 
 _**UMBRA: THE VELVET SHADOW**_ 
 
@@ -3568,10 +3352,6 @@ They arrive just as I tire of waiting for something to happen. I rest on my perc
 
 “I’ve been dreaming of you.” The young oracle-to-be speaks up, though his words make little sense. “In the dreams you said you would be ready to teach me on the next crescent moon.” The boy gestures to the night sky above. The moon does indeed bear Luna’s smile, soon to vanish when she turns her eyes from the world for a few 
 
-_**119**_ 
-
-_**SPIRITS**_ 
-
 days. His alpha seems frustrated. I foresee harsh words later, but the reason why does not interest me. 
 
 I have no clue what he means when he says why he knows to be here. I do not plan to give his young Theurge the summoning dream, nor am I doing so right now. The confusion I feel at speaking with the Garou seems familiar. But then of course it is like this, with their strange language. 
@@ -3623,8 +3403,6 @@ I briefly wonder how my voice sounded to her. Who does she see in my shape? Just
 That provokes a flash of frustration in her eyes. I do not enjoy fighting but I do get a certain thrill when one of the werewolves gets mad and briefly forgets just how much they need to not discorporate me. It’s a rotten habit. 
 
 “And you’ll buy them as well.” She forces herself to calm down. 
-
-_**120**_ 
 
 _**UMBRA: THE VELVET SHADOW**_ 
 
@@ -3692,15 +3470,9 @@ These banes are terrible mutations of normal spirits of war, bound to the corrup
 
 Pentex Corporation uses Magadon Pharmaceuticals to culture Bioweapons. The original goal was to use these banes to prime people to become fomori, in hopes that they would last longer. The project failed, and Pentex repurposed the banes to spread the Wyrm’s corruption as 
 
-_**121**_ 
-
-_**SPIRITS**_ 
-
 far and wide as possible. Magadon has deployed the banes in third world countries in the form of medicines, infecting sick individuals. As the banes take hold, they corrupt healthcare workers, and eventually entire communities. 
 
 Based on the success of Bioweapons in smaller communities, Pentex has increased utilization of these banes and spread to the global arena. Garou are just now catching wind of the number of major first world countries stockpiling bioweapons, and the banes associated with them. The threat of Pentex infesting the entire world with Bioweapon banes has the Garou Nation on high alert. Septs encourage their members and Kinfolk to engage in politics in an attempt to gain access to important decision making individuals. Dealing with the situation is a priority, but with the banes already in the hands of many governments, a resolution requires intense work and planning. 
-
-**Rage:** 6, **Willpower:** 4, **Gnosis:** 6, **Essence:** 16 
 
 **Charms:** Corruption, Possession 
 
@@ -3719,8 +3491,6 @@ When a Blood Currency infects one of these servers, however, it feeds on all the
 Currency discourages users from ever selling any part of their stake. They instead feel compelled to buy more misery-generating goods and services with it. 
 
 To ensure a fresh supply of victims, the Blood Currency’s server will occasionally email ordinary people telling them they’ve won a recently unlocked supply of the virtual currency. Those who accept the windfall find themselves tempted to spend it on things they might never purchase — whether out of fear of being caught or because it reflects a secret desire they are ashamed of. As their supply of the cryptocurrency dwindles, they seek ways to earn more, and many soon become purveyors of their own twisted goods and services. 
-
-**Rage:** 4, **Willpower:** 7, **Gnosis:** 9, **Essence:** 20 
 
 **Charms:** Blighted Touch, Control Electrical Systems, Corruption, Possession 
 
@@ -3742,8 +3512,6 @@ This spirit is the manifestation of a large scale conversation in which diplomac
 
 It wasn’t until the rise of the Internet that Flame Wars proliferated enough to attract the attention of the Garou — particularly the Glass Walkers, who gave them their name. Although these spirits can create unwanted interpersonal conflict, some Garou bind them into fetishes to sow discord between their enemies. 
 
-**Rage:** 7, **Willpower:** 4, **Gnosis:** 6, **Essence:** 17 
-
 **Charms:** Blast, Brother Against Brother* 
 
 - **Brother Against Brother:** The Flame War almost never fights its own battles. It instead convinces its enemies to fight each other. The Storyteller makes a Rage roll for the spirit 
@@ -3755,20 +3523,13 @@ It wasn’t until the rise of the Internet that Flame Wars proliferated enough t
 **----- Start of picture text -----**<br>
 Successes Effect<br>1 The target refuses to take orders from any of the<br>other targets and becomes argumentative if any-<br>one bosses him around. If forced to obey, the target<br>does so sulkily and behaves passive-aggressively.<br>2 The target argues with the other targets and<br>refuses to cooperate with them. Werewolves<br>gain one point of Rage and make a Rage roll<br>to resist frenzy.<br>3 The target hurls insults and makes threats directed<br>at other targets in an attempt to provoke them<br>into attacking her. Werewolves subjected to this<br>treatment make a Rage roll to resist frenzy. Other<br>sentient beings are likely to respond in kind and<br>may escalate the situation further.<br>4 The target starts something — throws a punch,<br>draws a weapon, kicks in a door, etc. This almost<br>certainly turns into a brawl, but the target’s rage<br>turns to panic as soon as he suffers bashing<br>damage equal to his Stamina or even one point<br>of lethal or aggravated damage. If this hap-<br>pens, the target flees the scene. If the target is a<br>werewolf, she makes a Rage roll to resist frenzy,<br>and the difficulty of the roll is decreased by two<br>(minimum 2).<br>5 The target goes berserk and attacks all the other<br>targets. Werewolves frenzy and make a Rage<br>roll with the difficulty of the roll reduced by two<br>(minimum 2). Those who score any successes on<br>this frenzy enter the thrall of the Wyrm. Other<br>creatures fight until they are incapacitated or no<br>other targets remain on the scene.<br>6+ The target goes berserk as above, but his fury is<br>not limited to fellow victims. He attacks innocent<br>bystanders and friends, unable to distinguish be-<br>tween friend and foe. If the target is a werewolf,<br>he must enter a berserk frenzy. Fox frenzy is not an<br>option even if he is not in the thrall of the Wyrm.<br>**----- End of picture text -----**<br>
 
-
 - **Image:** Flame Wars almost never manifest, but when they do they look as they do in the Umbra — a sphere of turbulent air a foot across. Those within ten yards of a Flame War can hear the whispered insinuations and too-dry sarcasm that gave it life. Those within ten feet plunge into a veritable hailstorm of raised voices that shout every imaginable form of insult and wield creative profanity like hammers on the inside of the skull. 
 
 ## Reroute 
 
 Reroute is a Bane of espionage and distraction. While the Wyrm hasn’t made as much headway into the Internet as it would like, it has advanced in secondary avenues. Reroute helps to obscure the Weaver’s electronic soldiers, hiding their tracks and offering smokescreens for attack against bastions of the Wyld. 
 
-_**123**_ 
-
-_**SPIRITS**_ 
-
 Functionally speaking, it cloaks everything in its vicinity. The spider clasps on to larger Weaver spirits as they pass by, hiding them from sight. Whenever possible, Reroute will help obscure a Weaver nest under attack, offering them the element of surprise and ease of escape. 
-
-**Rage:** 4, **Willpower:** 8, **Gnosis:** 4, **Essence:** 16 
 
 **Charms:** Blighted Touch, Obscure*, Open Moon Bridge 
 
@@ -3786,8 +3547,6 @@ its existence, inspiring others into these emotions in order to create other Ban
 
 Often, an Obscenity will emerge around hate groups, and intolerant religious sects. Most rural cults will have at least one Obscenity Bane nesting nearby, if not actively influencing its leadership. 
 
-**Rage:** 7, **Willpower:** 3, **Gnosis:** 3, **Essence:** 13 
-
 **Charms:** Corruption, Incite Frenzy, Possession 
 
 **Image:** Obscenity appears like so much flesh all in one place. In fact, more flesh than should logically be able to fit in a physical space. It looks like arms, legs, hands, asses, breasts, cheeks, feet, tongues, and everything in between, writhing together in a vague pillar. It caresses itself, bites itself, screams at itself, and fondles itself all over, constantly, and to horrific effect. 
@@ -3800,11 +3559,7 @@ The Trendy Hat anchors itself in a piece of clothing, usually a hat. Sometimes a
 
 Needless to say, Garou root Trendy Hats out quickly once discovered. Left 
 
-_**124**_ 
-
 unchecked, a Trendy Hat can leave an empire of Banes in its wake. 
-
-**Rage:** 6, **Willpower:** 6, **Gnosis:** 8, **Essence:** 20 
 
 **Charms:** Blighted Touch, Corruption, Incite Frenzy, Possession 
 
@@ -3817,8 +3572,6 @@ Witch Hunt is a spirit of uncompromising desire to end a target for a perceived 
 Witch Hunt’s mobs always come about quickly and viciously. Often, an entire community will wake up in the middle of the night, grabbing weapons. They’ll seek out the spirit’s victim, string him up, and head back to bed without a second thought. 
 
 Witch Hunt chooses its victim. The choice is typically arbitrary; the affected mob finds reasons and rationalizes the hunt. It uses its Corruption Charm to affect the mob. So long as it is encouraging the mob to attack the victim, it only costs a single Essence to bring the a number of mob members equal to Witch Hunt’s Gnosis to bear. 
-
-**Rage:** 6, **Willpower:** 6, **Gnosis:** 8, **Essence:** 20 
 
 **Charms:** Corruption (Special), Peek, Possession 
 
@@ -3848,15 +3601,9 @@ City Tree is just what it sounds like, a tree in the city. City Tree is an iconi
 
 City Tree doesn’t exist by every single tree in the city, only the very healthy ones that stand against the odds. But where City Tree stands, Garou should take notice. It’s a very useful spirit that will help any working toward making the city inhabitable for its kin. It can heal and protect war-torn warriors. 
 
-**Rage:** 4, **Willpower:** 8, **Gnosis:** 8, **Essence:** 20 
-
 - **Charms** : City Tree’s Trunk*, Cleanse the Blight, Create Wind, Healing 
 
 - **City Tree’s Trunk:** The spirit has a permanent soak pool of eight dice, and can increase that by the spirit’s Gnosis by spending two points of Essence. Alternatively, it can 
-
-_**125**_ 
-
-_**SPIRITS**_ 
 
 grant this additional soak to other spirits by spending another point of Essence. A spirit receiving this blessing applies the soak pool from City Tree’s Trunk in addition to its own armor. 
 
@@ -3874,23 +3621,16 @@ on a symbolic composite of its source. The spirit for the Golden State 2™ film
 
 These urban spirits form along busy, congested streets and highways. A single traffic jam or a few months of lane closures caused by road construction doesn’t generate enough frustration to give birth to a Gridlock Beetle. Only the most notorious of traffic trouble spots in large cities can awaken them. Gridlock Beetles coaxed away from their native territory wield considerable influence over travel times. Glass Walkers and other urban Garou sometimes dispatch them to delay an enemy, but they are more often called upon to expedite the shapeshifter’s journeys. 
 
-**Rage:** 5, **Willpower:** 5, **Gnosis:** 5, **Essence:** 15 
-
 **Charms:** Calcify, Charmed Journey*, Road Rage* 
 
 • **Charmed Journey:** The Gridlock Beetle rolls Gnosis at a Difficulty of (2 + the number of targets). Until the end of the scene, the target’s overland movement suffers no ordinary obstacles or delays. All the lights turn green. No one cuts her off in traffic and then drives under the speed limit. Even police will not stop her regardless of how far over the speed limit she is driving. This benefit extends to movement on foot or off-road, as well. The Jeep doesn’t get stuck in the mud. The frozen lake holds up under the traveler’s weight. Even in a crowd, bystanders never seem to get in her way as she pursues her target (or flees her pursuer). The target subtracts two from the difficulties of all relevant 
 
 Drive and Athletics rolls (minimum 3). 
 
-**Rage:** 2, **Willpower:** 10, **Gnosis:** 4, **Essence:** 16 
-
 **==> picture [173 x 78] intentionally omitted <==**
 
 **----- Start of picture text -----**<br>
 Charms:  Armor, Healing, Peek, Break<br>Reality/Cleanse the Blight/<br>Corruption/Solidify Reality<br>(see above)<br>Image:  Every Crowdfund-<br>ing spirit takes<br>**----- End of picture text -----**<br>
-
-
-_**126**_ 
 
 **==> picture [12 x 332] intentionally omitted <==**
 
@@ -3908,8 +3648,6 @@ As the world enters the information age, Memes have the capability to grow and g
 
 Some of the most powerful Meme spirits have been able to adapt and evolve, conveying their information in new forms as a previous form loses traction and people forget it. These Memes urge people to share information through whatever medium possible. Some Garou find binding Memes to fetishes helps them retain large amounts of information to share later. 
 
-**Rage:** 4, **Willpower:** 7, **Gnosis:** 8, **Essence:** 19 
-
 **Charms:** Control Electrical Systems, Short Out 
 
 **Image:** When materialized, Memes take on the image of 
@@ -3925,10 +3663,6 @@ Nation spirits are as old as nations, the pride of nationalism and the loyalty o
 Despite economic hardships and sometimes lack of faith in the country, America the Beautiful always had a hand in pushing patriotism back into the forefront of the nation’s mind. He changed drastically from year to year, becoming more aggressively protective of the country in sync with the citizens. 
 
 In recent years, after struggling to maintain belief in the American way of life, he took up the mantle of Murica as a drastic effort. He chose to adopt a symbol of blind pa- 
-
-_**127**_ 
-
-_**SPIRITS**_ 
 
 triotism rather than true nationalism to keep people vested in him. No longer did they need to truly understand the hardships their beloved nation was going through. Instead one simple word, uttered in defiance, washed away all their doubts about America’s greatness. He urges paradoxes such as fighting for freedom and justice, enforcing military acts to ensure peace, and the rights of citizens to protect their families with weapons. He doesn’t care if the American people fight amongst themselves over what is right and wrong, as long as they have passion for him and the land they live in. 
 
@@ -3966,15 +3700,9 @@ Srador grants audiences to those shapeshifters who seek him out, although he can
 
 _**UMBRA: THE VELVET SHADOW**_ 
 
-_**128**_ 
-
 well as those taught by frog spirits (such as Hare’s Leap — **W20** p. 158). 
 
 Srador richly rewards those envoys who provide him with truly impressive and decadent gifts — such as a hundred frog “subjects” captured by the supplicant’s own hands, a large plastic castle with working drawbridge, and an indoor breeding pond. He arranges meetings between his most lavish hosts and the circle of misfit spirits that hover around him hoping to eat the proverbial crumbs from his table. While these spirits are not powerful, some have useful, if strange, Charms at their disposal. Srador also hosts lavish banquets for many of his spirit peers — some of whom are quite powerful and influential in their area. 
-
-**Rage:** 4, **Willpower:** 9, **Gno-** 
-
-**sis:** 9, **Essence:** 22 
 
 **Charms:** Demand Audience*, Open Moon Bridge, Peek, Royal Decree*, Tongues* 
 
@@ -4004,13 +3732,7 @@ The Road Warrior has seen her ups and downs. She has grown steadily over time, b
 
 The Road Warrior is a wanderer, traveling all across the country, feeding on the sense of adventure and power that comes from groups of people riding together. She is often found at motorcycle rallies and races, absorbing the energy of the love of the road. She uses her influence to 
 
-_**129**_ 
-
-_**SPIRITS**_ 
-
 entice people to take to the road, journeying for the sake of travel without a destination in mind. 
-
-**Rage:** 6, **Willpower:** 6, **Gnosis:** 8, **Essence:** 20 
 
 **Charms:** Open Moon Bridge, Tracking 
 
@@ -4035,8 +3757,6 @@ Brand Loyalty is a Weaver embodiment that specializes in codifying and compartme
 Bot-Nets do not gather with people, but instead reside in the server hosting whatever media site they most identify with. Sometimes, a spirit hangs out near a person whose sole interaction is through the internet — each update, like, +1, #tag, @reply, and share feeds the spirit, making it fatter. Bot-Nets entice people to use the internet for socializing more and more, encouraging them to eschew face-to-face activities in favor of updating or checking different social media sites. 
 
 Bot-Nets love conversing and sharing stories, information, and news. They are just as happy to lend an ear to any who will share a story with them, as they are to tell one. They pass news quickly, though they rarely bother to get the whole story or make sure the story is correct before adding it to their repertoire of information. Most Bot-Nets take on characteristics of the servers they inhabit. Sometimes 
-
-_**130**_ 
 
 comes across. It skitters around, organizing and defining. To Brand Loyalty, everything must have a label, and is a rogue element until properly grouped. 
 
@@ -4078,10 +3798,6 @@ Digital Game is at the forefront of the Weaver’s PR efforts to raise modern ch
 
 Digital Game doesn’t participate directly in the war for the Apocalypse; it prepares humanity to blindly and rabidly fight in its name. Its efforts have been a wild success in the past decade; Digital Game’s sycophants will actively seek out detractors in far reaching corners of the world, and use their own, very human methods to bully, threaten, and denigrate critics into silence. This both makes Digital Game look innocent, and benefits from the true warriors using their own ideal tactics, not those directly taught by the spirit. Its 
 
-_**131**_ 
-
-_**SPIRITS**_ 
-
 victims fight not with the guns and swords Digital Game glorifies, but with violent rhetoric and mob mentality. **Rage:** 8, **Willpower:** 2, **Gnosis:** 6, **Essence:** 16 
 
 **Charms:** Control Electrical Systems, Corruption (per the Wyrm Charm), Solidify Reality 
@@ -4093,8 +3809,6 @@ victims fight not with the guns and swords Digital Game glorifies, but with viol
 Downtown Train is a massive, benevolent Weaver manifestation. It exists to facilitate peaceful movement. It asks minimal, fair payment, but will carry large groups over significant distances. 
 
 Downtown can transport any number of smaller creatures through a Moon Bridge as if they were part of the train. Given the right incentive or persuasion, it can help a pack pursue a target rapidly. Downtown Train is patently against bullying and abuse, so the goal must at least appear noble for Downtown Train to take a stand. A pack abusing Downtown Train’s nobility will find themselves with a powerful enemy. 
-
-**Rage:** 4, **Willpower:** 10, **Gnosis:** 10, **Essence:** 45 
 
 **Charms:** Open Moon Bridge, Spirit Static, Swift Flight, Tracking 
 
@@ -4108,8 +3822,6 @@ In 2013, a 30 second advertisement slot during the most viewed American televisi
 
 The largest known Lenocinor is Madison Avenue, the spirit that embodies the concept of advertising in the United States. Madison Avenue formed in the early 1920s as the advertising industry took hold in the area. The spirit grew fat on the advertising agencies in the area, and the resultant consumerism they produced. In the past few decades, ad agencies have moved away from the original street, but Madison Avenue has grown so large as to have influence over all of New York, and it retains influence over agencies that have moved. 
 
-**Rage:** 6, **Willpower:** 6, **Gnosis:** 8, **Essence:** 20 
-
 ## **Charms:** Peek 
 
 **Image:** In the physical realm, Lenocinors look like men in business suits carrying black leather briefcases. In the Umbra, the spirits take the form of small ads, “buy one get one free” flyers, or discount coupons. 
@@ -4122,11 +3834,7 @@ Old Is New Again is something of a Weaver guerrilla. It isn’t trying to calcif
 
 The spirit uses subtle manipulative tactics to achieve its ends. It convinces twenty-somethings to disassemble old watches and turn their parts into jewelry. It makes that jacket in the thrift shop look just a little more vibrant. It makes your grandpa’s jacket clean, fresh, and sexy as it was in the 1960s when he met grandma. In some cases, it’s been known to nudge and inspire pop stars to write affectionate songs about used clothing — but Old Is New Again’s influence ended in that case when a nest of Cultural Appropriation spirits **(see p.131)** took over. 
 
-**Rage:** 6, **Willpower:** 6, **Gnosis:** 8, **Essence:** 20 
-
 _**UMBRA: THE VELVET SHADOW**_ 
-
-_**132**_ 
 
 **Charms:** Blast, Illuminate, Shapeshift, Solidify Reality **Image:** Old Is New Again looks like an iconic example of something long gone, something that probably never really existed as we remember it. A common example looks the part of a cowboy. Others include delighted, obedient 1950s housewives, benevolent industrialists, and incorruptible, white knight police officers. 
 
@@ -4137,8 +3845,6 @@ Perviums are a specialized kind of Net-Spider determined to move people through 
 When someone with broadband internet access visits one of the sites, the Pervium downloads itself to the computer, similar to a virus. Once there, it pushes the bandwidth of the user’s signal, making it larger and capable of sucking down more data at once. Each download is a little faster, load times are shorter, and streaming is more precise. As the Pervium works, the user becomes more and more dependent on the Pervium’s speed, and soon craves faster internet access. As the victim begins searching for ways to increase her internet speed, such as cleaning her system, applying open DNS server addresses, or making adjustments to her router, the Pervium doubles the internet speeds these adjustments would normally produce. The Perviums’ ultimate goal is to download the user as one large data packet. 
 
 Glass Walkers are aware of the Perviums, but are unsure of their purpose or goals. They often bind them as fetishes to their own computers, creating mobile broadband connections with faster than normal speeds. 
-
-**Rage:** 6, **Willpower:** 7, **Gnosis:** 8, **Essence:** 21 
 
 **Charms:** Calcify, Control Electrical Systems, Short Out, Solidify Reality 
 
@@ -4166,10 +3872,6 @@ The technology of the first moving pictures, and talkies fascinated people. Movi
 
 Silver Screens started out as spirits invested in the hope and inspiration that film brought to audiences. The emotional high of watching a good film fed the spirits and they grew large from it. But, as some Weaver spirits 
 
-_**133**_ 
-
-_**SPIRITS**_ 
-
 tend to do, they were not content to simply grow fat on the random emotions of viewers. Instead, they became attuned to specific types of films — including comedies, action, adventure, drama, or romance. The spirits started competing with each other, attempting to gather audiences for a specific film type over others they found inferior. 
 
 Eventually, the spirits resorted to influencing audiences into enjoying a specific kind of film. At some point, the Silver Screens stopped caring about joy and overall audience satisfaction, so much as the type of film. Silver Screens now care only about immediate emotional reactions. They grow fat as the audience reacts to tear jerking scenes, big explosions, and slapstick comedy. They don’t care if the audience is satisfied with a film, as long as cinemagoers keep coming back to feed them later. 
@@ -4192,8 +3894,6 @@ Skepticism uses a special version of the Aura of Confidence and Seizing the Edge
 
 their effects work over the Internet. With Aura of Confidence, their online interactions show no discernible weaknesses, no matter what they do or say. With Seizing the Edge, they win clear ties in online interactions. 
 
-**Rage:** 4, **Willpower:** 8, **Gnosis:** 10, **Essence:** 22 
-
 **Charms:** Aura of Confidence and Seizing the Edge (Special; see **W20** p. 188), Armor, Healing, Illuminate, Peek, Solidify Reality 
 
 **Image:** Skepticism looks like a well put-together man in a pristine lab coat with exaggerated features. His smile’s just a little bigger than human. His eyes communicate a sense of wonder. He’s inhuman enough to invoke the uncanny valley response in humans, but still impresses and awes. 
@@ -4201,8 +3901,6 @@ their effects work over the Internet. With Aura of Confidence, their online inte
 ## Truck Guardian 
 
 Motor vehicles of all kinds fulfill the same roles that horses and oxen did centuries ago, so it is not surprising that they inspire similar feelings of respect and loving attention. They are more than a tool to be wielded and forgotten; they are a partner without which the driver cannot function in his day-to-day work. Urban and rural shapeshifters occasionally awaken the spirits of vehicles in order to strengthen their bond with these cherished allies. While economical compact cars and 
-
-_**134**_ 
 
 luxury sedans have spirits that a Garou can awaken too, few vehicular spirits are as hard-working, practical, and devoted as the guardian spirit of a pickup truck. 
 
@@ -4228,13 +3926,9 @@ Anonymous is a spirit of anonymous camaraderie; it represents purpose without co
 |6|three hours plus one hour per success above 6|
 |If the spirit successfully possesses its truck self, it gains||
 
-
-
 away, or daunting. Sometimes, its targets are small, close by, and simple. Its targets rarely make sense at the time. But it tackles, eliminates, and jumps to the next quarry. However, it can never manifest — if forced to manifest, it immediately dies. It possesses the Manifest Charm; it just cannot use the Charm. Anonymous is technically of the Wyld; its wild, chaotic, random motion fits right in with the mad, creative part of the Triat. However, it’s generally found deep within havens of the Weaver. It moves faster along pattern webs and other bastions of complex human civilization. 
 
 Creative Garou can sometimes influence Anonymous by finding subtle clues and patterns in Anonymous’ choice of targets, and emphasizing those features. But every cell of Anonymous is different, so the Garou must watch and learn those patterns for any given spirit. 
-
-**Rage:** 8, Wisdom: 5, **Gnosis:** 7, **Essence:** 20 
 
 **Charms:** Blast, Short Out 
 
@@ -4272,8 +3966,6 @@ in long white lab coats, their faces hidden behind a dust mask and goggles. They
 
 _**UMBRA: THE VELVET SHADOW**_ 
 
-_**136**_ 
-
 the Umbra, Chirurgeons appear as chimeras of many different animals and creatures. 
 
 ## Creepypasta 
@@ -4281,8 +3973,6 @@ the Umbra, Chirurgeons appear as chimeras of many different animals and creature
 Creepypasta is a Wyld spirit fueled by the spontaneous, viral urban legends disseminated across the Internet. It’s a fiery, energetic thing caused by fleeting bouts of enthusiasm and fright. 
 
 It’s a spirit perpetually grasping for straws, struggling to stay alive. Every day it exists, it loses a point of Essence. It can only gain Essence through application of its True Fear Charm. When it uses the Charm successfully on a new subject, it gains a point of Essence, and it creates a clone of itself with a single point of Essence. Its modified version of True Fear will never work on the same character twice. This limitation applies to the clones as well; Creepypasta’s True Fear will only ever work on a victim once. 
-
-**Rage:** 7, **Willpower:** 1, **Gnosis:** 4, **Essence:** 12 
 
 **Charms:** Disorient, True Fear (as the Ahroun Gift, **W20** p. 171, use its Rage to activate) 
 
@@ -4298,8 +3988,6 @@ Fortunately for the Wyld, it largely affects a generally privileged and influent
 
 hunting weaker GMO spirits. Only time will tell which side comes out on top. 
 
-**Rage:** 6, **Willpower:** 6, **Gnosis:** 8, **Essence:** 20 
-
 **Charms:** Armor, Break Reality, Cleanse the Blight 
 
 **Image:** Farm-to-Table manifests as a carpet of grains that blow about, whipping up little whirlwinds of oats, barley, and other live foodstuffs. It communicates mostly through smells and subtle sounds; it 
@@ -4312,10 +4000,6 @@ As the Weaver gains power over the world, edging out the Wyld faster and faster 
 
 The GMOs create change via chaos, often causing more harm than good just for the sake of change. The spirits are not placid plant spirits watching over crops as they grow. Instead, these spirits are foot-soldiers in the Wyld’s losing battle. GMOs gain power whenever 
 
-_**SPIRITS**_ 
-
-_**137**_ 
-
 organisms are genetically modified — the more mutations within a single organism, the better. 
 
 The true purpose of the GMOs is to induce spontaneous mutations in crops and plants leading to wild uninterrupted growth and change. The spirits create winds to carry genetically altered seeds to unmodified plants, they induce crosspollination between species and varieties, and even nourish plants with harmful mutations in hopes that the new species will create even more change as they grow. They influence insects to feast on GMO crops, knowing that the insects will also begin to adapt and change. They tend to GMO bacteria released into the ocean, keeping them safe from cleanup procedures intended to destroy them. 
@@ -4327,8 +4011,6 @@ Most GMOs are still in the early stages of spiritual development, mostly Gafflin
 Made-Me-Do-It Devils are trickster spirits that encourage children, adolescents, and immature adults to engage in acts of mischief and petty rebellion. Some Theurges speculate these beings are related to the Fair Folk — a breed of Unseelie fae who love performing pranks by proxy. These Wyld-born spirits are not malevolent. They seldom encourage their young accomplices to engage in crimes more serious than petty theft, vandalism, and crank calls, but these minor offenses frequently carry serious, unexpected consequences. A kid who pulls a fire alarm wouldn’t ordinarily provoke a deadly stampede, but the prank might turn fatal if a Bane uses the confusion to whip the crowd into a panic. A truant who calls in a bomb threat might direct the attention of the local bomb squad away from the explosives ready to detonate just across town. Servants of the Wyrm exploit 
 
 the Made-Me-Do-It Devils’ pranks when they can, even if the spirits are not allies. What’s more, the young people who do the Made-Me-Do-It Devil’s dirty work regularly will eventually run afoul of the law. This puts them on a collision course with elements of society that _are_ likely to lead them into associations with monsters — whether human or supernatural in origin. Ragabash occasionally treat with Made-Me-Do-It Devils, offering their services as pranksters exchange for the spirit’s help — or just to convince the trickster to stop goading its current favorite accomplice into further acts of mischief. 
-
-**Rage:** 3, **Willpower:** 5, **Gnosis:** 7, **Essence:** 15 
 
 **Charms:** Corruption, Healing, Peek, Secure Permission*, Shapeshift, Shatter Glass, Short Out 
 
@@ -4343,8 +4025,6 @@ succeeds the target gives the spirit whatever it asks for until the end of the s
 Many recent high-profile news items have included homicide cases billed as “self-defense.” These cases predominantly feature minority groups as victims, and questionable circumstances at best. Complexities in legal systems, racial and gender-based prejudices, 
 
 and bureaucratic convenience have led to many cases not even ending with a verdict. The outrage caused by this phenomenon causes surprisingly little violence. But the pent-up aggression can sometimes lead to Stood Ground spirits. Stood Ground is a Wyld manifestation; it exists as an outward, reactive energy. Not infectious. Not corrupt. Just more energy than it can fit in a small space. Stood Ground is raw dynamism. 
-
-_**138**_ 
 
 _**UMBRA: THE VELVET SHADOW**_ 
 
@@ -4372,8 +4052,6 @@ more importantly to the Wyld, it lets artists create new language out of nothing
 
 The Urban Art spirit is a muse and a protector. It inspires artists, and it maintains their work, helping to fight back against cleaning efforts. 
 
-**Rage:** 8, **Willpower:** 8, **Gnosis:** 4, **Essence:** 20 
-
 **Charms:** Break Reality, Cleanse the Blight, Disorient, Peek **Image:** Urban Art changes constantly. It looks like spray-paint- 
 
 ed figures that mutate, warp, and shift. Sometimes they’re stenciled police officers spraying teargas, sometimes they’re gang signs, sometimes they’re crudely-drawn penises, sometimes they’re stylized words. They never maintain a shape for more than a minute at a time. 
@@ -4386,15 +4064,9 @@ You-Only-Live-Once spirits find that young adults and teenagers are more suscept
 
 The erratic nature of You-Only-Live-Once spirits ensures that they will do all sorts of things to inspire acts of daring, up to and including causing otherwise well-adjusted young people to engage in dangerous activities. Sometimes their antics can be so dangerous they end up hurting someone, though that is never their intent. 
 
-**Rage:** 6, **Willpower:** 4, **Gnosis:** 5, **Essence:** 15 
-
 **Charms:** Coercion, Create Fires, Peek 
 
 **Image:** In the physical realm, the You-Only-Live-Once spirits look like young boys wearing jeans and polo shirts with the collars popped up. In the Umbra, the spirits resemble cascading water, falling, rippling, and are ever shifting. 
-
-_**139**_ 
-
-_**SPIRITS**_ 
 
 **==> picture [573 x 748] intentionally omitted <==**
 
@@ -4411,8 +4083,6 @@ _What follows is excerpts from those letters and notes, or at least, what can be
 _Since the initial incident, some of the pages have gone missing, or else been sent out to agents and septs all over the world in the hopes that the Garou Nation can get a better grasp on what the package is meant to communicate. Since then, the Silent Striders have passed several memos and letters they have to the other tribes. In an attempt to shuffle the hard work to peons, or challenge, many of these documents have wound up in the hands of young Garou. While the scope of these documents is unknown by and large, the quest to find and understand Kami is no longer a secret for the most elite or well traveled._ 
 
 This section contains excerpts from the Canaan Documents. The Storyteller can use these excerpts as instant plot hooks to make the characters aware of the existence of Kami. Players can use these excerpts as part of a character’s background to add motivation and anchor them 
-
-_**141**_ 
 
 _**THE CHOSEN**_ 
 
@@ -4448,8 +4118,6 @@ To put it simply, Kami are things embedded with the essence and glory of Gaia he
 
 • An enemy of the pack — and of Gaia — has taken refuge in an abandoned botanical garden while on the run. When the pack gives chase, they are pushed back by unknown sources. If they push harder, the Kami that is the garden commands the Garou to leave. The garden is a place of peace, it insists, and it will permit no violence inside its boundaries. If the characters enter pursuing their foes, they might not be able to avoid a fight. Will the characters wait it out, or find a way to take down their foe without violence? And how will they convince the suspicious Kami that they even can? 
 
-_**142**_ 
-
 _**UMBRA: THE VELVET SHADOW**_ 
 
 **==> picture [556 x 363] intentionally omitted <==**
@@ -4467,8 +4135,6 @@ undiscovered island. Still, she insisted. We hunt and fish here, and so it must 
 We heard birds singing cheerfully at us as the wind and rain drove us back to our boats and San-chan howled in anger at her failure. 
 
 For six nights, we would find San-chan whistling the thrushes’ cheerful song and pacing the beach, looking out at the inexplicable island. 
-
-_**143**_ 
 
 _**THE CHOSEN**_ 
 
@@ -4508,8 +4174,6 @@ _You have never seen a thing in all of creation as humble and gentle as the tree
 
 _**UMBRA: THE VELVET SHADOW**_ 
 
-_**144**_ 
-
 **==> picture [234 x 37] intentionally omitted <==**
 
 ## _**THAT’S A WHOLE LOT OF RARE CREATURES**_ 
@@ -4542,8 +4206,6 @@ Kami come to it willingly. Unlike the possessed or fomori or any other of the st
 
 • Raymond Terry has a special job to do, and a very special benefactor, the earth itself wants him to fulfill his role. What that role is, he isn’t saying, but proof abounds that he is in fact Gaia’s special child. Problem is, the Wyrm has its own ideas about Raymond’s fate, and while it can’t attack Raymond directly for some reason, it has decided to 
 
-_**145**_ 
-
 _**THE CHOSEN**_ 
 
 put doubt in the man’s heart. Bad luck follows Raymond like a cloud over his head, and his experiences are Jobian in their tragedy. A prophecy spirit visits the pack and gives them just a glimpse of Raymond’s future. Can they get to him before he loses heart? And will they trust their instincts enough to help him become the Kami he is meant to be, even if they don’t know what his purpose is? Is their faith in Gaia strong enough? 
@@ -4567,8 +4229,6 @@ _We have decided not to interfere and let nature take its course, though we will
 The process of becoming a Kami can be an arduous one. It’s time intensive, sometimes stretching to decades depending on the needs Gaia has set out for her chosen one. One of the most important parts of the process is for the would-be Kami to find a place of peace and purity. It’s vital that she accepts her purpose for Gaia in a place uncluttered by the Triat’s meddling, or even more mundane influence. “Place” is subjective here, of course. For many human-turned-Kami, that place is internal, and the noise or pollution they need to fight are greedy thoughts, anterior motivations, doubt, and unsettled pain or anger. The landscape of the mind is as important for a sentient Kami as a clean environment around a plant- or earth-Kami. Of course, Gaia has a way of nudging these things along. That nudging is exactly the sort of thing that can push a pack of characters into stories with Kami at the center. 
 
 • The fish of the East River are dying. It was never a particularly clean place to begin with, but to see this many fish dead all at once is troubling. Worse, all manner of life from the river floats dead on the surface. Something is going on in the river, and it isn’t pretty. Fish spirits and cleansing spirits have gathered on the spiritual reflection of the river, but the spirits efforts are killing them off left and right. “Something beautiful is meant to be born here” the fish spirits moan. “You must stop whatever is killing the fish. Something beautiful and clean is meant to be here. Stop the corruption. Stop it or we will see it spread to all 
-
-_**146**_ 
 
 _**UMBRA: THE VELVET SHADOW**_ 
 
@@ -4620,8 +4280,6 @@ Animal Kami are maybe the easiest sorts of Kami to understand. They are at least
 
 • The javelinas have organized. Or rather, they have a leader now. And it seems like that leader is smarter than 
 
-_**148**_ 
-
 _**UMBRA: THE VELVET SHADOW**_ 
 
 your average Arizonan. They’ve killed two hunters by running them down. What will they do next? And is it really in service to Gaia? 
@@ -4649,8 +4307,6 @@ Unlike other sorts of Kami, human Kami have the unique ability to lie to themsel
 • Jerome is the middle of it, literally. He’s a sensitive, thoughtful sort of guy who reads a lot about the world and humanity’s place in it. He also works a high paying tech job in the middle of one of the most corrupt industries in the US. He hates his job but won’t leave it because he believes, deeply, that he can make a difference from the inside. Becoming a Kami was subtle, slow, and he’s unaware of what he is and what he can really do. He’s been exchanging posts with one of the pack members on a spiritual-but-confused social justice subreddit, and he’s strangely informed about the Garou nation without being obvious about it. If the characters want to find out why, they’re going to have to liberate him from his 9 to 5 world and help him understand. The pack has to do it before he becomes corrupted by the industry in which he exists. 
 
 • Mannon Jedd knew about werewolves before he came to his duty. Actually, to be direct, he used to hunt werewolves 
-
-_**149**_ 
 
 _**THE CHOSEN**_ 
 
@@ -4681,8 +4337,6 @@ park is essentially one symbiotic system. It is a place of safety, and peace flo
 When Gaia invests the time and effort it takes for her to make a Kami, She does so with a purpose in mind. That might be something as simple and tangible as protecting the last of an endangered species, or it might be a vast and unknowable calling only the greatest of Theurges has any chance to suss out, and only then through dream. Regardless of who or what She chooses, the process of becoming is a slow one. 
 
 Becoming Kami is quickest for Her animals, but the seasons it requires may take several cycles of reproduction before a mother rabbit bears a Kami kit. A human Kami might take a decade to come into her bloom, though that can be delayed or quickened depending upon the health of her environment. Plants take longer, though flora with short lifetimes may find the process extends their existence until the blessing takes. These vessels in particular must become sentient before sapient, and that is not a short journey. Kami of the land itself are the slowest of all to come into their power. Like plants, they 
-
-_**150**_ 
 
 _**UMBRA: THE VELVET SHADOW**_ 
 
@@ -4726,8 +4380,6 @@ Create human Kami like any other human, then give them Gaia’s blessing.
 
 2) Prioritize three categories of Abilities: Talents, Skills, and Knowledges. Assign eleven dots in the primary category, seven in the secondary, and three in the tertiary. 
 
-_**151**_ 
-
 _**THE CHOSEN**_ 
 
 3) Most human Kami start with Willpower 3, Gnosis 1, but no Rage. Purchasing the power Spirit Ties can increase Gnosis to 6 in human Kami. The Berserker power gives Kami five points of Rage. 
@@ -4769,8 +4421,6 @@ Some Kami begin their existence without sentience. Kami of the flora and Kami of
 2) Prioritize three categories of Abilities: Talents, Skills, and Knowledges. Assign eleven dots in the primary category, seven in the secondary, and three in the tertiary. Like Attributes, many Abilities may not have an active role in the everyday existence of the Kami. Plant and land Kami can perceive themselves and their surroundings as a similarly sized spirit. 
 
 3) Kami of the land and plant Kami start with Willpower 3 and Gnosis 5, but no Rage. Purchasing the power Spirit Ties can increase Gnosis to 10 in plant and land Kami. Like other Kami, Berserker gives land and plant Kami five points of Rage. 
-
-_**152**_ 
 
 _**UMBRA: THE VELVET SHADOW**_ 
 
@@ -4816,8 +4466,6 @@ Over time, a Kami can develop new abilities — with Gaia’s blessing. If using
 
 **• Curse of Gaia:** The Kami can leverage her own Geasa against a foe she believes is acting to the detriment 
 
-_**153**_ 
-
 _**THE CHOSEN**_ 
 
 of Gaia’s will. In addition to imparting a semblance of her own obligation to Gaia, she can increase or decrease the severity of the punishment for breaking the taboo at a cost of her own spiritual strength. These punishments can manifest as bad luck, physical deformities and obvious, supernatural curses. Particularly invested Kami can even slay an offender, or turn them to brittle stone. 
@@ -4859,8 +4507,6 @@ their true shape, their foremost desires and connections to their past.
 **System:** For every point of Gnosis the Kami spends, any targets that remain within ten yards of her suffer a -1 penalty to all dice pools for the scene, up to -3. There must be some manner of plant life nearby for this power to function. 
 
 **• Plant Kinship:** This power allows communication between Kami and any plant life. Communication is some- 
-
-_**154**_ 
 
 _**UMBRA: THE VELVET SHADOW**_ 
 
@@ -4907,8 +4553,6 @@ the strength of their breeding, even Changing Breeds that do not possess the Pur
 **System:** Every purchase of this power allows the Kami to take an additional form. Each form shares her traits, but may have alternate powers equal to the number of times Transformation has been taken. A Kami with two purchases of **Transformation** has two alternate forms with two alternate powers each. Changing forms requires a Stamina + Primal Urge roll (difficulty 7). 
 
 **• Triatic Sense:** Like Heart Sense, Triatic Sense can determine which of the Triat a person is most closely allied. But unlike Heart Sense, it can also discern the influence 
-
-_**155**_ 
 
 _**THE CHOSEN**_ 
 
@@ -4966,8 +4610,6 @@ Attributes directly on the world around her. For Kami of the land, this generall
 
 **System:** The Kami spends two points of Gnosis per caern level, up to ten points to make a Level 5 caern. For the next lunar month, she is a caern of that level for all purposes, though she does not have a type. The Kami can terminate this power at any time before the end of the month. When it ends, she regains half of the Gnosis she invested to become a Caern. All Rorqual possess this power for free. 
 
-_**157**_ 
-
 _**THE CHOSEN**_ 
 
 ## Sample Kami 
@@ -5008,8 +4650,6 @@ Agatha serves Gaia unknowingly. Many of the animals she cares for are Kinfolk of
 
 • It isn’t just the animals that Agatha cares for that become Kami. The land beneath her ranch-clinic is soon to awaken as a Kami of the soil, and the elementals of the region are seeking Garou to protect it during the final 
 
-_**158**_ 
-
 _**UMBRA: THE VELVET SHADOW**_ 
 
 moments of transition. The howling close by isn’t coming from a  nearby sept. 
@@ -5040,9 +4680,6 @@ He’s quick, he’s attentive, and he delivers messages word-for-word. If he fo
 
 **----- Start of picture text -----**<br>
 THE CHOSEN<br>**----- End of picture text -----**<br>
-
-
-_**159**_ 
 
 **Skills:** Animal Ken 1, Etiquette 1, Stealth 3, Survival 2 **Knowledges:** Enigmas 2, Investigation 1 
 
@@ -5092,8 +4729,6 @@ slick. Its center is a cluster of long white tendrils with sticky red spherical 
 
 _**UMBRA: THE VELVET SHADOW**_ 
 
-_**160**_ 
-
 it is a Kami. And the hive is pissed. It does not care about humanity, or the people it has stung to death. It does not care who it attacks. It needs to survive. The hive is dying. All over the world, hives like it, are dying. And so it attacks anything it perceives as a threat. Mostly, this is has involved swarming and killing cell tower maintenance workers, but as the hive becomes more aware and sophisticated, it may go after anyone with a cell phone. It doesn’t know if cellphone towers are the actual cause of the decline in bee population. The science is questionable, but more importantly, people believe this is the cause, and that belief has become the hive’s purpose through Gaia. 
 
 **Appearance:** Individual members of the hive aren’t especially impressive, though their stringers are more vicious looking and their stripes seem to reflect glyphs from some angles. The hive is most impressive when it swarms. It becomes a cloud more pollen green-yellow than black, and it seems to glow even in daylight. 
@@ -5136,8 +4771,6 @@ Misha’s 16 now, and she’s pretty sure that she can fix not just her dad, but
 
 **Knowledges:** Academics 1, Computer 3, Enigmas 1, Investigation 3, Law 2, Science 1, Technology 1 
 
-_**161**_ 
-
 _**THE CHOSEN**_ 
 
 **==> picture [556 x 363] intentionally omitted <==**
@@ -5161,8 +4794,6 @@ _**THE CHOSEN**_
 Eons of redwood died around the highway before it was aware of their cries. At first, it didn’t really understand what it was hearing. After a few more years and a thousand more wracking sobs from the forest, Highway 100 decided enough was enough. One day, without ever having had an opinion, let alone one on logging, it called its sympathy to the trees and they called back. The sequoia redwoods sacrificed one of their tallest champions to fall across Highway 100’s middle just as a big, overweight truck was carrying the murdered bodies of their brothers back to the sawmill. 
 
 It happened three more times before people started talking. The accidents made headlines in Northern California. News crews, interviews with timber mill executives, and investigations into safe driving practices put the lumber industry in 
-
-_**162**_ 
 
 _**UMBRA: THE VELVET SHADOW**_ 
 
@@ -5210,8 +4841,6 @@ Opinnartokua knows he nears the end of his long journey, because Her song is gro
 
 **Appearance:** Opinnartokua is an old blue whale. So old, that the surface of his body resembles more the craggy surface of great stone than it does a marine mammal. His body is peppered with scars both miniscule and immense. His hide has seen every weapon man has made to slay whales and break boats, and still he swims. Opinnartokua is a landmark and friend of the Rokea. The shark-shifters and their kin are never far from the rorqual. 
 
-_**163**_ 
-
 _**THE CHOSEN**_ 
 
 **Roleplaying Notes:** Opinnartokua is blind, his fins are slow, he eats too little and he has never mated, but his existence is filled with joy. He loves Sea — Gaia — as few creatures can; she has been his wife since the day he heard her song, when there were no men or shapeshifters on land or in the waters. Though he has never seen her, he knows her very well. The song she sings is the voice of Sea to the prehistoric rorqual, and he is content so long as he can hear it. In recent years, her song has grown quieter. It does not worry him. To Opinnartokua, it means she is getting tired and soon he will finally see his love. 
@@ -5250,8 +4879,6 @@ The truth is, with Shallowbranch’s proximity to the Umbra, anyone who sleeps b
 
 _**UMBRA: THE VELVET SHADOW**_ 
 
-_**164**_ 
-
 ## Plot Hooks 
 
 • Shallowbranch is the source of a contentious battle between conservationists and a small business that wants to uproot her to better facilitate their riverboat tours. If the business wins, it’s unlikely Shallowbranch will survive. If the conservationists succeed, Shallowbranch will become too much of a local landmark to properly perform her duties as a Kami. 
@@ -5288,15 +4915,11 @@ It is only in the Umbra that the Kami’s presence is obvious. The place is floo
 
 **Powers:** Aura of Tranquility, Curse of Gaia, Lord of the Land **Geas:** Let the children dream. 
 
-**Gnosis:** 5; **Willpower:** 3 
-
 ## Plot Hooks 
 
 • Something has changed in the delicate balance of dreams and dream spirits that hover around Shrewton. Nightmares and bad dreams run roughshod over their more peaceful spirit siblings, and as a result, the children of Shrewton are having a hard time sleeping. This is against the Kami’s very being, and it sends out a powerful cry, reaching out far and wide to find Gaia’s champions that they might find the cause of the imbalance and fix it. 
 
 • An adult of Shrewton, a friend of one of the packmates, is trying to leave. She wants to take her son with her, but she’s facing bizarre coincidences that conspire to keep her from leaving. She’s had it rough and the character grows suspicious after hearing her tale. A quick visit to the village will tell the characters that the place is special. Getting in touch with the Kami, especially if they don’t know what such a being is, will be tricky. Trickier still is convincing it to let the child go. Shrewton is single-minded, but not unreasonable. If the pack can bring the Kami as 
-
-_**165**_ 
 
 _**THE CHOSEN**_ 
 
@@ -5307,8 +4930,6 @@ many dreams as the child would produce in a lifetime, or another strong dream pr
 messages begging for help from any of Gaia’s children. If the pack can somehow help Shrewton, it will allow them to take a nearby caern, not to mention all sorts of other boons from the giant Kami. But the Kami asks a mighty deed, one that will require the pack to be creative and to perform some feats that many Garou would never consider. 
 
 **==> picture [462 x 376] intentionally omitted <==**
-
-_**166**_ 
 
 _**UMBRA: THE VELVET SHADOW**_ 
 

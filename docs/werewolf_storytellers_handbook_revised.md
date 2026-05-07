@@ -20,8 +20,6 @@ Four wolves appear from the ice, and the pack trots towards the fire. Arne lifts
 
 Werewolf Storytellers Handbook 
 
-_**2**_ 
-
 received, however, and her audience appears restless and annoyed. Arne reaches the table and changes to his natural Homid form, pulling his recently-dedicated coat tightly around him. Lena, the Kinfolk woman who brought the chocolate, is already pouring four mugs of it for the Ice Runners (the pack’s Ahroun does not indulge in sweets). Arne nudges Lena gently. 
 
 “What story is she telling, then?” 
@@ -58,8 +56,6 @@ How young Krieger had howled when he heard the news! It took four other Garou to
 
 Krieger Wyrmfoe and the Death Bear 
 
-_**3**_ 
-
 heard a Ragabash mention in passing that it was a shame that no bear-changers lived nearby, as they knew the secret of death. 
 
 Krieger followed this Ragabash and asked him what he knew of the bear-changers. “Nothing,” replied the no-moon, “except what I said. But even that is only a story. I have never met a Gurahl, and it is said they are solitary creatures.” 
@@ -93,8 +89,6 @@ The sounds of the other Garou grew distant. The shadows grew deep and cold as Lu
 Krieger glanced around and realized that, although he had grown up here as a cub, he had never been this far into the forest before. The brush here showed no 
 
 Werewolf Storytellers Handbook 
-
-_**4**_ 
 
 signs of being trampled, not by wolf, man, or any other beast. He heard no rustling from the forest, and could no longer hear his fellow Garou on their revel at all. And still the owl flew on. 
 
@@ -130,8 +124,6 @@ Warning-Spans-Rivers waited until they arrived, and then greeted them respectful
 
 Krieger Wyrmfoe and the Death Bear 
 
-_**5**_ 
-
 “Before,” growled Krieger, ignoring the Garou’s good manners, “you would not tell me of the Gurahl, though you clearly knew more than you said. I could not demand truth from you then, but now my pack is with me.” 
 
 With a sigh, the desert wolf replied, “You wish to see a Gurahl? There is one nearby. Follow the smell of humans, but hide yourself well. And,” he said, trotting away “remember what I told you about meddling with death.” 
@@ -156,9 +148,6 @@ By the time Krieger had recovered enough to give the anthem of war, the Gurahl�
 
 **----- Start of picture text -----**<br>
 Werewolf Storytellers Handbook<br>**----- End of picture text -----**<br>
-
-
-_**6**_ 
 
 sand, Garou blood from the creature’s claws as it slashed Stone-Softens’ gut open, but something was missing. He released his grip on the bear and jumped back, barking for his pack to do likewise. 
 
@@ -196,8 +185,6 @@ In moments, the body of his mentor lay before him. The poison that killed him st
 
 Krieger Wyrmfoe and the Death Bear 
 
-_**7**_ 
-
 upon him. He pulled his uncle’s corpse from the sacred earth, opened its mouth, and squeezed the Gurahl’s heart over it. 
 
 The last bit of blood from the heart of the ChildSlayer dripped into his mentor’s mouth. Somewhere nearby, the owl screeched. But there was nothing Owl or his servants could do. 
@@ -220,13 +207,9 @@ The silence was broken not by cries of approval, but by Bloody-Snow, the young A
 
 Werewolf Storytellers Handbook 
 
-_**8**_ 
-
 • Werewolf created by Mark Rein Hagen 
 
 Contents 
-
-_**9**_ 
 
 ## _Credits_ 
 
@@ -254,8 +237,6 @@ http://www.white-wolf.com; alt.games.whitewolf and rec.games.frp.storyteller PRI
 
 Werewolf Storytellers Handbook 
 
-_**10**_ 
-
 ## _Contents_ 
 
 |_Contents_||
@@ -269,17 +250,12 @@ _**10**_
 |_Chapter Five: Breaking the Mold_|_162_|
 |_Chapter Six: Odds and Ends_|_204_|
 
-
-
 Contents 
-
-_**11**_ 
 
 **==> picture [535 x 737] intentionally omitted <==**
 
 **----- Start of picture text -----**<br>
 12 Werewolf Storytellers Handbook<br>**----- End of picture text -----**<br>
-
 
 _[The art of the novel] happens because the storyteller’s own experience of men and things, whether for good or ill — not only what he has passed through himself, but even events which he has only witnessed or been told of — has moved him to an emotion so passionate that he can no longer keep it in his heart._ 
 
@@ -296,8 +272,6 @@ As if this weren’t enough, the Storyteller must also act out the parts of sign
 Add to this the job of acting as the interpreter for the rules and the arbitrator for disputes. Even the bestwritten rules leave room for interpretation and players are creative people who like a lot of license. There will be times when players disagree (sometimes adamantly) 
 
 Introduction 
-
-_**13**_ 
 
 with rulings the Storyteller makes, and such rulings tend to cover things that dice rolls really should not determine. A reputation for being both fair and a good interpreter of the spirit of the game goes a long way. But even that falls by the wayside if players feel their favorite character got the shaft. So let’s add a diplomat’s credentials to the personas a Storyteller has to take on. 
 
@@ -324,8 +298,6 @@ Regardless of your style and the scope of your game, however, the single most im
 If the players are just portraying characters that are basically human with the occasional foray into berserk battle mode, they’re missing the point. While Garou have both human and wolf sides, they’re more than the 
 
 Werewolf Storytellers Handbook 
-
-_**14**_ 
 
 sum of those parts. It’s part of your job as the Storyteller to help them find the place where wolf meets man. At one and the same time, you need to help them unleash the wolf while maintaining the human traits that set them apart from normal wolves. Most players have no trouble gleefully grabbing a handful of dice, snarling out a challenge or two and whaling on the opposition while believing they’re acting out the wolf’s bestial nature. But in actuality, unless they are very sick or injured beyond endurance, wolves don’t normally give in to rage. They fight for their food and to preserve themselves and the pack, but it’s a rare wolf that is ruled by hatred. Rage is a human emotion. The thing that distinguishes human hatred and fury from that of Garou is that the Garou possess the supernatural ability to become the embodiment of their rage by taking Crinos form and letting their anger overrule their saner selves for a time. In directing your chronicle, you should try to focus on both aspects of the characters, sometimes calling the wolf to the fore, and other times seeking to bring forth the human. Never forget, however, that the characters are first and foremost Garou and the blending together of the two aspects is what drives your stories. 
 
@@ -357,8 +329,6 @@ This is a book primarily for Storytellers, who have the job of creating worlds, 
 
 Introduction 
 
-_**15**_ 
-
 Apocalyptic chronicles, alternate takes on werewolves, alternate timelines and crossovers. 
 
 Finally, **Chapter Six: Odds and Ends** contains a few miscellaneous elements to highlight a **Werewolf** game, from a look at the Kami — the incarnate “fomori” of Gaia — to an expanded listing of potential sources of inspiration for the game. 
@@ -382,8 +352,6 @@ Certain themes come with the territory when you decide to run a **Werewolf** gam
 The most obvious theme surrounds what the Garou are and what they consider themselves to be. Whether they call themselves warriors or defenders, the Garou embody Gaia’s need to fight for survival. Forever at war with the forces tearing Gaia’s creation apart, the Garou can never win their fight. And they know it. Eminently suited for battle, even the Garou’s supernatural Rage cannot fully defeat their enemies. For those enemies are so numerous it’s almost pointless to oppose them. Time and again, the Garou throw themselves into the fray, expending their best and brightest in stopgap measures that cannot coalesce into a resounding victory. The Wyrm slithers onward, gaining ever more allies and followers, causing such corruption and destruction that ten Garou lifetimes would not be enough to repair the damage. Like the hydra of legend, wherever one of the Wyrm’s tentacles is severed, two more spring forth to continue the fight. The Garou, however, possess limited numbers and few resources. Every Garou lost in battle sounds the death knell for their kind, for each is irre- 
 
 Werewolf Storytellers Handbook 
-
-_**16**_ 
 
 placeable. All Garou know that they are a dying breed. All know that their enemies are legion. They feel the jaws of the trap closing around them and know that slowly, inevitably, the Wyrm is winning. Little wonder they fall into Harano! 
 
@@ -413,8 +381,6 @@ This is such an ongoing theme it might seem almost silly to bother mentioning it
 
 Introduction 
 
-_**17**_ 
-
 on finding and neutralizing the works of Pentex, Black Spiral Dancers and other Wyrm minions. While this does indeed speak to the idea of corruption, there exists a great potential within the game to explore this theme more fully and on a more personal level. When young Garou first take up their responsibilities, their heads may be filled with glorious tales and pure desire to rid the world of the Wyrm’s decaying touch. They throw themselves into the fray with the gusto of those innocent enough not to have really tasted defeat or corruption themselves. Yet as they continue the fight, they experience things that inevitably erode their innocence, replacing it with knowledge and wisdom the characters may wish they’d never had to acquire. The first bloom of conviction shrivels into the knowledge that this is a lifelong battle, and one that may indeed be futile. They see friends die and enemies prosper. 
 
 How do the characters confront such enemies, continue fighting against overwhelming odds and touch on the Wyrm’s most tainted places without becoming corrupt themselves? Can they do it at all or is it inevitable that as time goes on, they’ll give in to internal corruption of one kind or another? How do the characters react when innocents are caught in the crossfire between them and those they hunt? Or do they even believe there are any innocents left? After a time, the characters may become tarnished soldiers, struggling within themselves to maintain any joy or sense that they are doing something worthy. Veterans can become jaded, believing they deserve special consideration for what they go through or they may lose the ability to feel compassion for others or to see beyond the needs of the immediate moment. Warriors can become addicted to battle, to the blood and stench of combat and be unable to walk away from it even when other solutions present themselves. Excessive pride or feelings of superiority over most others may corrupt some Garou. Many feel that this underlies the Silver Fangs’ insanity — corruption from within. 
@@ -424,8 +390,6 @@ Naturally, there also exist outside forces that can taint Garou who aren’t war
 Since Garou do not generally mate among their own, they look to others for that bond. Too few Kinfolk in existence means that Garou must sometimes look outside their usual group, and such 
 
 Werewolf Storytellers Handbook 
-
-_**18**_ 
 
 lovers may corrupt the Garou either directly or indirectly. What if a character’s lover demands time he would usually spend with his pack? The pack bond is strong, but so is a love commitment. Thus, merely spending time with a lover can lead a Garou to neglect his duties. What if the lover has been carefully groomed to seduce the Garou? By the time he learns that his apparently loving partner is a trap laid for him by Pentex, it may be too late for the Garou to extricate himself. Any of these can prove fodder for a story or two while emphasizing that corruption isn’t something limited to the Wyrm. 
 
@@ -456,8 +420,6 @@ Obviously, you want to focus on the characters as the main movers and shakers of
 Likewise, if the pack is part of a sept-wide raid on a Black Spiral Dancer hive, you’ll take up most of the time describing and running their individual battles. Still, by pulling back from their central position and briefly describing things happening elsewhere, you not only make their battle mean more, but give them a sense of being part of something larger and more important. It’s in such scenes that brave and noble sacrifices most often occur. That presenting their personal actions within the context of the larger picture also encourages players to go beyond individual goals and work for the sept or pack is all to the good. 
 
 Introduction 
-
-_**19**_ 
 
 ## _Playing to the Max_ 
 
@@ -494,8 +456,6 @@ Short answer: No. Long answer: Not if the pregnancy could result in human or hom
 Nope. Metis are the result of two shapeshifters with too-compatible spirit halves mating; it’s kind of like incest, only on a spiritual rather than genetic level. If a Garou mates with a member of another Changing Breed, their spirit halves are incompatible — hence, no metis. The child is the breed of the mother; this may mean that the child can’t be of the father’s shapeshifter race at all (for example, a lupus mother’s pups can’t be Bastet even if their father is Bastet). The chances for “breeding true” are drastically reduced in such a mating, anyway; there’s only a 5% chance that a child will breed true to the mother’s race and only a 5% chance 
 
 Werewolf Storytellers Handbook 
-
-_**20**_ 
 
 of breeding true to the father’s race. If being of the father’s race is impossible, there’s still only a 5% chance of breeding true to the mother’s race — hence such pairing are far from honorable in the sense of “taking a good mate and trying to breed true.” 
 
@@ -552,8 +512,6 @@ They keep them. A Gift is a trick you learn, kind of like tying your shoe, and t
 The youngster has to challenge for each Renown type separately, but generally speaking, the Rite can be extended to cover each Renown type as needed. In such a case, though, the ritemaster must roll for each Renown 
 
 Introduction 
-
-_**21**_ 
 
 type separately; hence, a Rite of Accomplishment converting both Wisdom and Honor would require a separate roll for each. If either roll fails, the entire rite fails; hence, some prefer to undergo each rite separately. 
 
@@ -619,8 +577,6 @@ No, because that’s not the way tribes work. Tribe is a matter of adoption more
 
 Werewolf Storytellers Handbook 
 
-_**22**_ 
-
 Garou, in effect tribeless, until he undergoes his Rite of Passage and is accepted into a tribe. Thing is, Pegasus won’t accept him, so any Rite of Passage meant to bring him into the Furies automatically fails. Same with homid Red Talons; Griffin won’t allow it. As for White Howlers, they just aren’t a tribe any more; there is no more tribal totem, so a White Howler Rite of Passage would automatically fail. You have to be initiated into a tribe to be a member; birth alone isn’t enough. 
 
 **• How many werewolves are there in the World of Darkness?** 
@@ -669,13 +625,10 @@ Not everything has to be shackled to the **Vampire** mythology, you know.
 
 Introduction 
 
-_**23**_ 
-
 **==> picture [535 x 737] intentionally omitted <==**
 
 **----- Start of picture text -----**<br>
 24 Werewolf Storytellers Handbook<br>**----- End of picture text -----**<br>
-
 
 _A tremor ran through the body of the terrifying creature, followed by another and another, until it was shuddering violently. After a minute a young female wolf was standing among the people in the clearing._ 
 
@@ -699,8 +652,6 @@ Well, as you, the Storyteller, sit down to work out how to tell the tale of a ne
 
 Chapter One: The World of the Garou 
 
-_**25**_ 
-
 matter of becoming something you weren’t before, it’s a process of accepting a heritage that has always been part of you. The character was never really human or wolf, even if he lived amongst them. The initial emphasis should be on making the player feel how much their character has changed, and how the world around him senses those differences. As he comes to terms with those changes, then you can work on making the character feel at home in his new existence. Over a period of time, the world of the Garou should become the norm, and increasingly the world of the humans, and to a lesser extent the wolves, should become alien and hard to understand. 
 
 ## _A New Body_ 
@@ -712,8 +663,6 @@ As well as the change itself, the new werewolf has to learn to use four new body
 Even once the werewolf adapts to the physical aspects of the change, there’s a whole new set of sensations for the character to deal with. No two forms receive exactly the same sensory input: hearing or smell becomes more or less acute depending on the form one adopts. The lupus has to learn to deal with forms where its principal sense — smell — is significantly less acute. 
 
 Werewolf Storytellers Handbook 
-
-_**26**_ 
 
 Probably the best way to convey this sense of adjustment to your players is by increasing the difficulty of rolls for physical or sensory actions made in a form other than their birth form (at least while you run through the portion of the story that deals with them becoming used to their new abilities). A modifier of +1 for Crinos and +2 for the two forms that aren’t related to its birth form (Homid and Glabro for lupus, Lupus and Hispo for homid) is likely reasonable. Metis, of course, would suffer no penalty in Crinos, +1 for Hispo and Glabro and +2 for the two other forms. 
 
@@ -745,8 +694,6 @@ Such characters are increasingly rare as the Apocalypse approaches and unless yo
 
 Chapter One: The World of the Garou 
 
-_**27**_ 
-
 ## _A New Life_ 
 
 For a homid, the period before the change is teenage angst writ large. Most teenagers go through a stage of believing themselves to be different — special, even. They feel alienated from their peers. For most, this is just a phase they go through. This is not the case for a young werewolf. Both before and after the change, people sense that there is something different about the child. Some shy away from her, instinctively shunning the predator in their midst. Others become more confrontational, seeking to cow the perceived threat. Of course, these reactions are not reasoned ones; they occur on an instinctual level, much as exposure to a werewolf in one of the obviously supernatural forms causes the Delirium. These social handicaps don’t disappear the moment the cub changes, either. As the werewolf starts to come to terms with what she has become, the predator will probably be closer to the surface and less under control than it will be later in her life. As the Storyteller, it falls to you to make the reactions of the human Storyteller characters in your game fit this mould. 
@@ -770,8 +717,6 @@ The same can’t be said of the homid. Instead of seeing one werewolf submitting
 For the metis, of course, all this comes naturally. He’s always been Garou, so he understands how the relationships work. What is harder for him, though, is that fact that people from outside the community he was raised in are suddenly accorded more respect than the metis himself. The poor creature might know more about the werewolf culture and the set-up of the particular caern than all the other new cubs put together. In most caerns, that won’t matter a jot, and the metis remains stigmatized and his ignorant cousins gain all the attention. Play this up in the reaction of the Storyteller characters to the different cubs. It’s possible 
 
 Werewolf Storytellers Handbook 
-
-_**28**_ 
 
 that the other characters might start turning to the metis for advice. By all means let them, but be prepared to let a Storyteller character upbraid them for paying so much attention to an affront to Gaia. 
 
@@ -803,8 +748,6 @@ Everything that we perceive comes from our senses. Most people focus on sight an
 
 Chapter One: The World of the Garou 
 
-_**29**_ 
-
 thinking. During roleplaying, they can “see” the events unfolding in their mind’s eye. More rarely, an individual may rely on hearing, remembering the words and listening to the experience, able to quote parts of the session, while the visually oriented person may describe things that weren’t ever described by the Storyteller. A very small percentage of people focus on one of the other senses for their primary perception. For this reason, many Storytellers forget to use other senses in their settings. The sense of smell has a stronger memory trigger than any of our other senses. Touch can change our body chemistry immediately. Perception does become reality. 
 
 Wolves rely not on sight, but on smell as their primary sense. Wolves are not wild dogs; they have abilities that their domesticated cousins lost millennia ago. A wolf has a sense of smell many times more powerful than that of a bloodhound. If a wolf catches a scent, he knows not only that he smells a human being, but also what that person last ate. He can also remember it and track the scent for hours. In some ways, a wolf’s sense of smell almost works like postcognition. With a whiff, the wolf learns enough to know events that have taken place many hours before. 
@@ -827,8 +770,6 @@ The Crinos may have the most acute mix of senses found in any form, but a werewo
 
 Werewolf Storytellers Handbook 
 
-_**30**_ 
-
 heritage. Eyes see things at distances beyond the range of humans or wolves. A Crinos’ ears perk up and determine the direction of the faintest sounds. High sounds beyond the normal human range, such as the hum of electrical appliances, dog whistles, even distant bells reach the werewolf’s ears. A Garou becomes aware of deeper vibrations as well, even feeling the deep rumbles below the world. Like many animals, a werewolf can sense impending natural disasters like earthquakes before they happen. Smell is as powerful as sight for a werewolf in Crinos. An enemy doesn’t need to be seen or heard for a Crinos to be aware of him. Touch heightens, although feelings of pain diminish. A werewolf feels every brush of air against her fur. How many claws and blades are dodged because the Crinos feels them before they make contact? 
 
 Still, the constant rush of adrenaline, the roar of blood in the ears, and the pounding rage within the heart of Crinos make perceptions blur. Sometimes, everything becomes a threat and control is a constant battle. An angry tone of voice becomes a direct threat. Sudden movements are unexpected attacks. A Garou can taste the flesh of her opponent before the first bite. While rage varies with individuals, every werewolf in Crinos carries a threatening edge. 
@@ -850,8 +791,6 @@ Garou have powerful racial memories as well. Some werewolves directly experience
 Strong packs may develop a bond, a link with each other. Members of some long-standing packs can almost read each other’s thoughts. Packmates have difficulty hiding emotions from their fellow members. If something is wrong, all the members of a pack will know. They may not share the details, but they will know that something is wrong. Some packs even have a sense of when other members are in danger. There are many stories of a single pack member being attacked and other members feeling pain or a sense of urgency. Sometimes, other members may even feel compelled to go to a certain place, even if they’ve never been there before, to help out a packmate. Theurges debate whether this “pack-sense” is a true sense belonging to all werewolves, or if instead, it is a function of the pack totem spirit. 
 
 Chapter One: The World of the Garou 
-
-_**31**_ 
 
 Regardless, packs that stay together seem to develop this strong bond, even between members who dislike one another. A Storyteller can use this pack awareness to help keep characters together, making them realize that their pack bond is more than just a verbal commitment. 
 
@@ -883,8 +822,6 @@ Worldwide, the yearly birth rate among humanity is a bit more than 20 live birth
 
 Werewolf Storytellers Handbook 
 
-_**32**_ 
-
 poorest parts of the Third World. Garou are not hugely more fertile than the human beings around them, and only about one Garou offspring in ten is itself Garou. That means that it takes about 500 Garou of a particular tribe to reliably produce one new member of that tribe each year. 
 
 The Garou are not, of course, evenly distributed among the twelve tribes of the Garou Nation, Stargazers and Hakken, but it simplifies matters to consider them so for now. We’ll add complications as we go. It takes about 7,500 Garou worldwide to let each tribe have one cub _somewhere_ in the world each year, or the equivalent of one to two new packs each decade… if all the cubs could be gathered together, but that’s another complication to consider later. 
@@ -901,9 +838,6 @@ Overall, there is about one Garou per 500,000 people in areas relatively hospita
 
 **----- Start of picture text -----**<br>
 Chapter One: The World of the Garou<br>**----- End of picture text -----**<br>
-
-
-_**33**_ 
 
 as sensible werewolves usually avoid hassling magicians unnecessarily. Unless you’re running the World of Darkness as farce, the supernatural communities don’t all share a block in some residential suburb, and indeed are likely not aware of each other at all except in the vaguest terms: “It’s good not to go stirring up trouble there, because you get trouble back.” 
 
@@ -941,8 +875,6 @@ There just aren’t as many Red Talons or Uktena as there are Bone Gnawers and C
 
 Werewolf Storytellers Handbook 
 
-_**34**_ 
-
 • **Large:** Bone Gnawers, Children of Gaia, Fianna, Get of Fenris, Glass Walkers, Shadow Lords, Silver Fangs, Uktena, Wendigo; Hakken 
 
 **• Small:** Black Furies (limited by gender), Red Talons (limited by breed), Silent Striders; Stargazers 
@@ -977,8 +909,6 @@ The way **Werewolf** works, it’s presumed that the Fera population is in consi
 
 Chapter One: The World of the Garou 
 
-_**35**_ 
-
 would become a minority — something that would be very wrong for a game called “ **Werewolf** .” Storytellers with a fondness for one particular Breed or a distaste for another may wish to adjust these figures further, but the assumption is that few Fera have been able to prosper since the Wars of Rage. 
 
 The Ananasi and Ratkin (including Nezumi) are the most populous Fera; each Breed might rival the Garou in numbers, and (depending on the Storyteller’s tastes) even exceed them. Of all the Fera, these are the most fertile. 
@@ -1011,8 +941,6 @@ A werewolf may also choose to pay homage to her Goddess in various places throug
 
 Werewolf Storytellers Handbook 
 
-_**36**_ 
-
 ## _Houses of the Holy_ 
 
 In the Final Days, the Umbra is filled with places that reflect the death throes of the end of an age. While many locations in the Umbra are frightening to even the bravest Ahroun, locales still exist that represent a gentler time in Garou history. After the rise of the Gauntlet, werewolves desperate to keep their spiritual roots strong built many temples to honor Gaia and other Celestines. For a period of time, the number of Umbral shrines was roughly equal to the number of caerns developed on the physical plane. As time rolled forward, and the War of the Apocalypse began in earnest, many of the shrines were destroyed, or even abandoned as the primary focus was given to protecting caerns. A few well-known shrines still exist, and while they are considered important, a Garou would, without hesitation, leave an Umbral temple to fall in favor of protecting a caern in danger. 
@@ -1043,8 +971,6 @@ Since spirituality is so innate to Garou culture (and even their nature), many g
 
 Chapter One: The World of the Garou 
 
-_**37**_ 
-
 necessary in werewolf society, they also serve as a religious observance. During moots, werewolves give thanks and praise to Gaia and other spirits that are important to those in attendance. Certain traditions have become an integral part of moots, and are the closest thing that the werewolves have to a formal sermon. One such act of piety is performing a rite. 
 
 Rites essentially reaffirm werewolves’ connection to their spirit nature, Gaia, and each other. Rites come in every flavor, from celebratory to punitive and are an intrinsic part of the Garou belief system. Theurges theorize that without the performance of rites, a werewolf would quickly lose her ties to Gaia. Although the specifics of a particular rite vary from tribe to tribe, there are enough similarities to give werewolves of different cultures some common ground. Because of rites, werewolves who would otherwise be at ideological odds with each other can find a sense of brotherhood. 
@@ -1063,7 +989,6 @@ Too many avenues exist to adequately cover the introduction of religion into a s
 
 **----- Start of picture text -----**<br>
 38 Werewolf Storytellers Handbook<br>**----- End of picture text -----**<br>
-
 
 ## _An Often Thorny Subject_ 
 
@@ -1090,8 +1015,6 @@ Other werewolves do not make such a smooth transition in their religious beliefs
 than a battle versus genocide. It’s a conflict of preserving the beliefs, religion, and lifestyle of the werewolves and their Kin. Those opposing the Garou directly threaten everything that the werewolves hold dear. 
 
 Chapter One: The World of the Garou 
-
-_**39**_ 
 
 Fear of loss drives the Garou, perhaps even more so than any potential reward possibly could. Every day a werewolf can hear Gaia’s cries become a little more distant as the stranglehold of calcification and corruption erode Her energy. Werewolves are the ultimate holy warriors, fanatical in their pursuit of ferreting out any potential threat to their Goddess. Even those that are not outwardly religious would give their lives in order to preserve Gaia and the Garou belief system. 
 
@@ -1123,8 +1046,6 @@ With the formation of the tribes came differing customs, traditions, laws, and p
 
 Werewolf Storytellers Handbook 
 
-_**40**_ 
-
 With the migrations of the individual tribes came new ideas about the way werewolf society should be. While all of the tribes would place courage, strength of purpose, valor, honor and wisdom in their collective credos, the pragmatic approach to most challenges and disagreements between the tribes would be met with some degree of ruthlessness and cunning. Over time, the bickering of the tribes as a whole lessened as the werewolves found themselves distracted by a collective enemy. Nonetheless, some of the old prejudices have carried forward to the present day. 
 
 Cultural, racial, and breed bias can create an atmosphere of antagonism that hampers the overall effectiveness of the Garou as an army for Gaia. Why don’t the werewolves put aside their squabbles and focus on demolishing the forces of the Wyrm? While some say that pride is the poison killing the Nation, the answer is really far more complex. 
@@ -1153,8 +1074,6 @@ While logically, the resolution to a challenge should solve any issue, sometimes
 
 Chapter One: The World of the Garou 
 
-_**41**_ 
-
 sept can be rather large, encompassing several packs. Politically, septs are very diverse from one another, even if they happen to be located in the same geographical region. The bureaucracy of each sept has its own distinct flavor, and a young pack that has grown accustomed to the rules of their sept might find themselves with a case of culture shock upon visiting a neighboring sept. 
 
 Despite their surface differences, the hierarchy of septs follows the basic rules of dominance. Those that have earned the most prestige are regarded as leaders, and fealty is expected. While such a system may seem crystal clear, some werewolves despise the trappings of renown that their leaders cloak themselves in. While an alpha may be challenged, those who desire to move up the rungs of leadership may not have the abilities required to defeat their elders. A werewolf that has become bitter and cynical may discreetly undermine her alpha amongst her septmates. Innocent-sounding comments that make others question the morale, status, and general operation of the sept can start a snowball effect that may be devastating to an alpha’s reputation. While such rumormongering can generally be brought to a screeching halt by an astute alpha, occasionally the insidious whisperings can turn into a full-blown situation. An alpha can find herself scrutinized by her sept, every word and action dissected as her suspicious vassals try to find fault or weakness. 
@@ -1178,8 +1097,6 @@ A werewolf’s pack is probably the most important facet of her social life. Few
 Most disagreements stem from different packs trying to decide if they are getting the respect, the recognition, and the space that they deserve from neighboring packs. While those kinds of attitudes might seem juvenile, acknowledgement of success and prestige is serious business for most werewolves. In a culture built on the concept of renown, a pack’s reputation for influence in any given region is paramount if that pack wishes to be known as serious players in the War of the Apocalypse. 
 
 Werewolf Storytellers Handbook 
-
-_**42**_ 
 
 Packs are sometimes the only family that a werewolf has. As such, relationships between packmates tend to evolve into something more than friendship. Many werewolves consider their fellows to be more like brothers and sisters rather than comrades in arms. Just as there is contention in most families, jealousy, frustration, and ambition can cause friction within packs. In extreme cases these feelings can cause antagonism that leads to scheming. While most quarrels are dealt with before any serious repercussions arise, it is possible for unchecked conflicts to evolve into inter-pack rivalries. The end result of an adversarial relationship within a pack can be dangerous to the entire group as the focus is drawn away from the good of the pack onto the drama of the individuals. Wise alphas put a stop to backstabbing within their packs. Being a member of a dysfunctional pack can be more dangerous than not being a member of a pack at all. 
 
@@ -1207,8 +1124,6 @@ The Grand Elder of a sept is known not only regionally, but also throughout the 
 
 Chapter One: The World of the Garou 
 
-_**43**_ 
-
 ## _The Psychology of Garou Intrigue_ 
 
 Intrigue is a natural element of **Werewolf** games. Pack members vie for the position of leader, a position not always won in battle. The various offices of a sept hold great prestige, and an added ability to pursue one’s agenda. Tribes duel one another at moots for important rights such as caerns, territory and the right to lead. And why is that? Because, at heart, werewolves are not that unlike ordinary people. They have the same wants and desires, but writ large; a Garou’s emotions run hotter than that of any human. Plots and intrigues are bound to follow. 
@@ -1235,8 +1150,6 @@ Each tribe has at least one larger-than-life, living hero. These elders, and the
 
 Werewolf Storytellers Handbook 
 
-_**44**_ 
-
 Rumors circulate through the Garou Nation of discreet meetings between the top alphas that determine the actions of the werewolves as a whole. While many Garou dismiss such talk as nonsense, a few have begun to wonder how much truth there might be behind the tales. The political stance of certain alphas is no secret. And while messages of werewolves working together in harmony despite tribal differences might make for a great speech in front of a large moot, the reality of werewolf leadership structure makes implementation of such philosophies tricky at best. 
 
 Although the likelihood of every elder of note sitting down around a campfire and agreeing on strategies to improve the overall effectiveness of the werewolf army is not great, it certainly is possible for a few leaders to maintain contact with each other. Whether quiet pacts or treaties are actually formed between the key leaders that would, in turn, affect many members of their respective tribes is purely speculation. Such “meddling” would likely manifest itself as an increase in arranged marriages, subtle shifts in territories, and more tolerance between certain groups. While some Garou would see those kinds of activities as a step in the right direction, most would view change with suspicion. Any act that could conceivably weaken a tribe’s position, thus threatening their collective reputation, is to be avoided. 
@@ -1260,8 +1173,6 @@ There is enough political strife, family secrets, and hidden motives inside of t
 Whatever plot device a Storyteller chooses to implement, she should understand inside and out the motives, feelings, and intentions of those who are perpetuating the cover up. A werewolf very well may have honorable goals, but perhaps her methods of bringing these goals to fruition are questionable. 
 
 Chapter One: The World of the Garou 
-
-_**45**_ 
 
 The following are some questions a Storyteller may wish to ask herself when creating a plot chock full of intrigue: 
 
@@ -1305,8 +1216,6 @@ The following section is meant to give the Storyteller a little more ammunition 
 
 Werewolf Storytellers Handbook 
 
-_**46**_ 
-
 our Kinfolk would no longer be our mates — they would be our chattel, our wretched breeding-slaves kept only for the purpose of producing fine offspring, and discarded when no longer useful. Because we are not allowed to love one another as mates, we seek solace in the arms of our Kin — and we love _them_ . We love them, and we remain tied to their world, and we remember what it is to be, in our own way, both human and wolf. If we did not, we would become more and more insular, more distanced from the world as Gaia meant us to live in it. One tribe has already fallen down that path — or should I say, that Spiral. 
 
 **The Ragabash:** Meanwhile, resentment grows up in Claws-the-Silver-Path over there, who’s truly in love with Cassandra but forced into a loveless marriage with Maria. You know who cops the brunt of that resentment when it turns to anger, don’t you? Changing Kinfolk from mere breeding object to mere sex object doesn’t assist them in any great way. 
@@ -1322,8 +1231,6 @@ Viability of the species, now there’s something that was previously valid. Yes
 There’s some real wisdom to working out where the Wyrm is getting stronger and culling it before it can become massive trouble for us later. But making vague statements of “Wherever it dwells” is asking for War of 
 
 Chapter One: The World of the Garou 
-
-_**47**_ 
 
 Rage kind of trouble. Because as we all know, the Wyrm bred in the hearts of the Bastet and it made them betray us by not sharing their secret stuff. We all know the Wyrm corrupts humans, because their kids pull the wings off flies. Our response to both situations? We rip their heads off. We “combat” the problem. This is counter-productive. 
 
@@ -1357,8 +1264,6 @@ I am not for a moment advocating disobedience in battle. That’s a fool’s gam
 
 Werewolf Storytellers Handbook 
 
-_**48**_ 
-
 receives the largest portion. We are wolves at heart, and our station is earned. And, if I may be blunt, this law will never encourage a Garou to be more or less selfish — but at least it will only benefit those selfish Garou who have proved that they are worthy of the benefits they claim. 
 
 **The Ragabash:** This tenet not only gives the most powerful weapons, the most impressive tricks and the most useful gadgets to those who least need them, but it acts to ensure that those who are “in station” stay “in station.” This is where, supposedly, challenges come into play, but suddenly we have a problem. This is the first share of the kill. Underline kill. It is not unfair to argue that the moment a kill is made, we can be said to be at war. Cross-reference this to “The Leader May Not Be Challenged during Wartime.” 
@@ -1390,8 +1295,6 @@ That said, I’d also point out that there _is_ a practical problem with this te
 **The Philodox:** If you cannot appreciate the potential danger of humans (and more the fool you if that is so), then think of the Wyrm. Set aside the possibility that, if humans knew we existed, they would begin exterminating all the wolves they could find, bulldozing the forests and developing new silver weapons. Instead, remember that the Wyrm lives where humans 
 
 Chapter One: The World of the Garou 
-
-_**49**_ 
 
 do. What a human discovers, the Wyrm’s creatures can discover. Secrecy is one of our greatest weapons; we must hold on to it for as long as we can. 
 
@@ -1433,8 +1336,6 @@ Apart from general complaints at the way we handle challenges in the first place
 
 Werewolf Storytellers Handbook 
 
-_**50**_ 
-
 basic comprehension of the definitions of “wartime” and “peace” and that’s not as easy as it sounds. When are you at war? If random street gangs attack three of our Kinfolk, then are we then at war with those street gangs? OK, what about if fomori attack those same Kinfolk? There are absolute limits here, obviously. If a caern is invaded, then we’re pretty much at war. But there are groups out there who would argue that we are now always, twenty-four hours a day, seven days a week, at war. Hell, I’m one of them. Do we never challenge, then? 
 
 We can’t operate that way. I appreciate, once you’re in the field, or if the enemy could strike at any time (and there is a difference between “always at war” and “always vulnerable”), then please, shut the hell up and listen to orders. I cannot stress this enough. The last thing we need is to fall into squabbling at that point. But if we’re at war, the plan is being laid out and it sucks, then for goodness sakes say so. Challenge, please. It is much better to earn some ire before a battle by showing up an incompetent strategist then lose lives by leaving the poor plan unquestioned. 
@@ -1470,8 +1371,6 @@ Veteran chronicles assume that the characters have already gone through their Fi
 The following suggestions may give Storytellers some ideas. As usual, if you don’t like these guidelines, tweak to your tastes. Just make sure that you take into account that most elusive of qualities — game balance. You want to allow your players to start out as powerful and experienced warriors, not super-Garou. Remember, even elders can advance and gain experience, so make sure that you leave them something to aim for. 
 
 Chapter One: The World of the Garou 
-
-_**51**_ 
 
 ## _Veteran Garou Character Creation_ 
 
@@ -1515,8 +1414,6 @@ Fleshing out a character’s relations with the members of his pack and sept pro
 
 Werewolf Storytellers Handbook 
 
-_**52**_ 
-
 **• What have your greatest failures been? Have you ever lost Renown or even Rank, and if so, why? What are your regrets? Have you lost anyone important to you as a casualty of your war?** 
 
 **Werewolf** is, at heart, a game about horror and tragedy as much as it is a game about heroism. Even great heroes of the Garou Nation have their failings and imperfections; some have even made horrible mistakes before regaining their honor in the eyes of their people. If the players are asked to think about the losses their characters have suffered, they’re more likely to produce characters with believable backgrounds and motivations. Not only does this bring the darker aspects of the setting home, but it also gives players a chance to provide you with wonderful plot hooks, everything from quests to redeem themselves in the eyes of those they personally failed to old rivalries and enemies. A character might even begin the game with a metis cub — talk about roleplaying opportunities! 
@@ -1541,8 +1438,6 @@ However, be aware that some groups will really abuse such a setup. If the Gallia
 
 Chapter One: The World of the Garou 
 
-_**53**_ 
-
 ## _The Greatest Honor: Achieving Rank Six_ 
 
 Most Garou characters aim at advancing in rank and gaining the privileges and responsibilities associated with each new step upward. Only the most respected Garou (Rank Five) may learn the powerful and often deadly Level Five Gifts. But what comes next after your character has achieved Rank Five? Where do you go from there? 
@@ -1565,7 +1460,6 @@ The story of a character (or a _pack_ !) attaining Rank Six is, to be honest, qu
 
 **----- Start of picture text -----**<br>
 54 Werewolf Storytellers Handbook<br>**----- End of picture text -----**<br>
-
 
 eration, any challenge might well be anticlimactic. If you do choose to make a challenge part of the process, make it truly memorable; a raid into the heart of Malfeas, the task of learning one’s own genealogy back to the days of the Impergium, or other such nighimpossible tasks. Break out your book of old fairy tales — this is where the mountains of glass, redirecting of rivers, and similar astonishing feats come into play. 
 
@@ -1603,8 +1497,6 @@ When a Garou attempts to convince, cajole, coerce or otherwise bamboozle a spiri
 
 Chapter One: The World of the Garou 
 
-_**55**_ 
-
 require a simple dice roll (although some hefty roleplaying on the player’s part is in no way an unreasonable request). The nature of the roll depends on the method the Garou uses. 
 
 • **Convincing the Spirit:** The Garou uses a reasoned argument in order to convince the spirit that she deserves to learn the Gift in question. The Garou rolls Charisma + Expression (difficulty equals the level of the Gift +4). For example, Miara Rainwalker, a Rank Two Uktena Theurge, wishes to convince a spirit to teach her the Level Three Gift: Exorcism by arguing that her pack has immediate need of someone to enact this Gift and currently lacks a qualified person. Miara’s player rolls her Charisma plus Expression (four dice) against a difficulty of 7 (Level Three Gift + 4) and achieves a single success. The Storyteller decides that spirit reluctantly agrees to teach her the Gift, but may attach some restrictions on its use. More successes would have had a more positive effect on the spirit, while a failure would mean that the spirit refused the request. A botch would incur the anger of that particular spirit. 
@@ -1626,8 +1518,6 @@ In the above examples, both Storyteller and player elected to use the dice as th
 • **Convincing the Spirit:** Miara Rainwalker’s player engages the Storyteller, who acts the part of a spirit minion of Uktena, in a polite and reasoned discussion in which she explains why she needs to learn the Level Three Gift even though she is only a Rank Two Theurge. The Storyteller feels that Miara’s player has made a good enough case to convince the spirit. At this point, the Storyteller can do one of two things: he can inform Miara’s player that the spirit agrees to teach her the Gift, or he can decide that Miara must still make a roll at a reduced difficulty of 4 or 5 due to good roleplaying. 
 
 Werewolf Storytellers Handbook 
-
-_**56**_ 
 
 • **Cajoling the Spirit:** Gregor Wyrmsbane’s player decides to roleplay his character’s impassioned plea. He launches into an extemporaneous poem in free verse that describes a grand battle that revolves on the knowledge of the Gift Gregor desires to learn. The Storyteller is so impressed with her player’s performance that she does not even require a dice roll. She simply awards the Gift to the Garou character (and perhaps gives the player an extra Experience Point at the end of the session for good roleplaying. 
 
@@ -1654,8 +1544,6 @@ Most players and Storytellers familiar with the game know what steps a Garou mus
 Creating a challenge that sufficiently tests a character’s mettle without proving impossible to overcome often tests the Storyteller as well. What kinds of challenges are suitable for your ambitious Garou characters? Simple combats don’t always work, particularly when the challenger belongs to an auspice not touted for its straightahead warrior prowess. Challenges can also vary by tribe. 
 
 Chapter One: The World of the Garou 
-
-_**57**_ 
 
 A Red Talon Galliard may expect a different challenge for a new Rank than a Child of Gaia Theurge. 
 
@@ -1707,8 +1595,6 @@ Rank Four Garou (Athro) have risen nearly to the top of the hierarchy. Mighty wa
 
 Werewolf Storytellers Handbook 
 
-_**58**_ 
-
 • Take the place of the sept’s Truthcatcher or Master of the Rite for a month. Convince a local street gang (or other belligerent group of humans) to participate in community service for a month. 
 
 • Create a praise song for a rival and end your differences with that person by honoring her. 
@@ -1741,8 +1627,6 @@ Rites are the spiritual touchstones through which Garou interact with Gaia’s c
 
 Chapter One: The World of the Garou 
 
-_**59**_ 
-
 them. Likewise, it should be easy to look for places where rites would fit into your storyline and encourage your players to play out the appropriate rite. 
 
 ## _Involving the Pack_ 
@@ -1769,8 +1653,6 @@ The pact made at the beginning of their existence between the Garou and the spir
 
 Werewolf Storytellers Handbook 
 
-_**60**_ 
-
 services and continued support. It also gives the Storyteller an interesting supporting cast member to portray when the troupe enacts a rite appropriate to that spirit’s domain. Below are some of the most significant rites associated with spirits in the Garou arsenal. Feel free to extrapolate and use these suggestions to enhance other rites not detailed here. 
 
 ## _Rite of Summoning_ 
@@ -1790,8 +1672,6 @@ From this, it’s easy to see how important it is for you as the Storyteller to 
 In many ways, this rite should emulate that of Spirit Summoning in terms of player participation as they share a similar purpose. However, as this rite specifically calls for performing a rhythmic piece on some sort of instrument, that should be the primary focus used in the rite. You might consider actually providing a drum or other percussion instruments for the players to use. Maracas, tambourines or even two sticks or lids of pots to clack together might serve for this purpose. There’s something innately primitive and exciting about pounding out rhythms, especially ones that grow in intensity or speed when performed. Adding other instruments (according to the players’ talents) can add the dimension of melody. In essence, you’re making an alarming noise to awaken the spirit just as your alarm clock summons you from sleep or a siren alerts you to an emergency in more mundane circumstances. If you have the room and the troupe is inclined to do so, pacing out the dance around the instrumentalist(s) and howling or 
 
 Chapter One: The World of the Garou 
-
-_**61**_ 
 
 growling as appropriate can also get the blood moving and give greater scope to roleplaying the rite. Of course, nosy neighbors may call the nuthouse or the exorcist in their ignorance, so keep it discreet. 
 
@@ -1818,8 +1698,6 @@ Acknowledged as a means to bring on late menses, catmint has traditionally been 
 Foxglove grows wild or may be cultivated in gardens. It’s best known use is to produce digitalis, a drug 
 
 Werewolf Storytellers Handbook 
-
-_**62**_ 
 
 used in treating heart disease. Its lesser-known properties as a sanctified magical flower involve protecting against faerie magic (adding two to the difficulty roll of any faerie spell or supernatural power used against the wearer). Its spirit might appear very calming and down-to-earth to reflect its properties. 
 
@@ -1851,8 +1729,6 @@ Your job begins once the characters have made the item suitable for habitation. 
 
 Chapter One: The World of the Garou 
 
-_**63**_ 
-
 semi-permanently enter a prison and work for the jailer in perpetuity can be a real challenge. You have to argue your own point of view, even fight to maintain your freedom if you’re being coerced into this, but you must also be willing to be swayed by good enough arguments or impassioned pleas to serve Gaia’s chosen, if that’s what the spirit would eventually do. As always, however, there might need to be a haggling session wherein you as the spirit make known your demands and conditions under which you’ll agree to become a fetish. Whether spirits have a large enough scope of interest to allow for counter offers remains in your hands. Play it as you see it. 
 
 Don’t think that after you’ve given in (or been beaten into submission) you have no more personality and become merely an object to be used at the characters’ whim. Fetishes should be created for specific purposes and ought to have unique properties. Otherwise, they lose their mystic aura and become just another tool like a wrench or a broom. Further, players usually enjoy having something truly different rather than just a ho-hum fetish like any other. So why not have a fetish that pompously offers advice on how to best use it just when an elder Garou happens by or pontificates concerning combat strategies at the most inopportune times? Naturally, if you bedevil the characters with such behavior, you’d better make sure the fetish is useful enough that they can’t bear to just chuck it away. Remember also (and remind the players at need) that the pact the Garou hold with the spirits requires them to always treat a fetish with honor bordering on reverence. 
@@ -1860,8 +1736,6 @@ Don’t think that after you’ve given in (or been beaten into submission) you 
 Some Garou bind unwilling spirits into fetishes, which almost always results in a fetish that is difficult and rebellious. At their discretion, Storytellers might portray these fetish spirits as uncooperative at the most crucial times or have them make demands the characters are loathe to grant in order to function properly. Though the Garou consider such fetishes cursed, the pact still requires that they show honor to the spirit inside such an object. It’s somewhat ironic (and this may be played upon) that forcing a spirit into a fetish permanently against its will can hardly be considered honoring it. If your troupe’s characters insist on doing so, you should exact a heavy price and make certain they do it only out of extreme need and sincere desperation in order to serve Gaia’s cause. If they’re making the fetish just to acquire another cool toy for themselves, Garou deserve 
 
 Werewolf Storytellers Handbook 
-
-_**64**_ 
 
 what they get when a horde of spirits allied to the one they’re harassing turn up to beleaguer the upstarts who are standing a hair’s breadth from breaking the timehonored pact. This action would spell disaster for all Garou everywhere so make sure the players realize the severity of what they’re doing. 
 
@@ -1891,8 +1765,6 @@ In many troupes, the Storyteller and players consult to determine which totem th
 
 Chapter One: The World of the Garou 
 
-_**65**_ 
-
 The actual rite calls for a pack to anoint their eyes with a holy substance in order to grant them the magical sight to find the trail of the spirit to whom they wish to dedicate themselves. While it calls for mugwort or tobacco or some similar substance, creative Storytellers might have their troupes search for a particular herb associated with or attractive to the specific spirit and use it instead. At the Storyteller’s discretion (depending on how hard it is to acquire this information or the rarity of the substance) using this element in the rite could make the spirit in question become better disposed toward the pack, accepting them more readily as its children. Naturally, even using special ingredients is no substitute for good roleplaying. Members of the pack should still be required to present their case to the totem through both speech and actions. 
 
 While the rite may require the characters to undertake some sort of quest to prove their worth to the spirit, the Storyteller could help the pack improve their chances of being assigned an easier task or needing no special assignment at all by wowing the spirit on first meeting. 
@@ -1910,8 +1782,6 @@ No cub is accepted as a true Garou until she undergoes her rite of passage. Alth
 It’s up to the Storyteller to devise a true rite of passage for the characters that will test them and prove their honor, wisdom and courage to the tribe so they may gain acceptance. As when dealing with spirits, there is little point in sending an Uktena pack into a 
 
 Werewolf Storytellers Handbook 
-
-_**66**_ 
 
 head-on confrontation with Wyrm creatures. The tribe won’t honor them for it and may even wonder if they truly belong elsewhere. A quest to uncover secret knowledge guarded by Wyrm creatures that must be defeated, bypassed or tricked into surrendering their secrets, however, is imminently suitable and can gain the characters instant respect for successfully completing it. Playing the elders that send the cubs off to complete their rite of passage requires Storytellers to assume roles that impress upon the cubs just how serious — and deadly — rites of passage are supposed to be. After all, if they cannot complete a difficult, but not impossible quest, they hardly deserve a place within the tribe. 
 
@@ -1932,8 +1802,6 @@ All Garou perform at least some seasonal rites to honor Gaia and mark the turnin
 Performed by the Black Furies at the time of the first new moon after the Winter Solstice (December 20, 21 or 22), the Mysteries hark back to ancient times. Greek females would gather to celebrate the mysteries associated with the female sex: birth, death, renewal and questioning of their place in the ongoing cycles of life. The Furies meet within caves, often with trees 
 
 Chapter One: The World of the Garou 
-
-_**67**_ 
 
 atop the tor that houses them, during this dark of the moon. Those too old for childbearing unwind black string and tie it to a rock or tree. Those who have borne children use red string, while those who are still virgin utilize white string, symbolizing the threefold aspect of the goddess as maid, mother and crone. The ritemaster shares a tale of a great heroine who has walked a path through darkness to knowledge and the Furies dance, intertwining their stings into a pattern, then share a cup of blood and wine. The rite ends at dawn. 
 
@@ -1965,8 +1833,6 @@ The term “Middle Kingdom” refers to an area of shared spiritual influence. C
 
 Werewolf Storytellers Handbook 
 
-_**68**_ 
-
 shapeshifter a particular role to play. Unfortunately, the various kinds fell into quarrels and then into war. 
 
 In the lands of eastern Asia, the Middle Kingdom, this war did not become the total catastrophe known as the War of Rage. Changers did fight each other, often bloodily, but no single kind drove another to extinction, and through it all the kinds retained some common purpose. The Beast Courts of the Emerald Mother were, and are, literal courts, formal gatherings of the elders of each kind with authority to give orders and dispense justice. While the Courts have sometimes been greatly strained and in some places cease working for a while, there is a more or less continuous tradition of governance in the midst of chaos. 
@@ -1994,8 +1860,6 @@ Now the Kuei-jin exist in a peculiar undead condition. A human soul which escape
 Unlike most Western Leeches, the Kuei-jin claim an extreme sense of moral duty. They exist precisely to do the good and necessary deeds they didn’t in life. This gives them a point in common with the Beast Courts, though there remains much tension between those chosen by the Green Mother to protect life and those who must prey 
 
 Chapter One: The World of the Garou 
-
-_**69**_ 
 
 parasitically on life. Shapeshifters and vampires do not pal around, nor do they often go on vacation together. They do have common enemies, like the spirits that would annihilate the world or paralyze it in the dark chaos of the Sixth Age, and mutual concerns, like the decline of spiritual understanding or moral ambition among human beings. So they sometimes cooperate on matters where their interests overlap, and otherwise they mostly stay out of each other’s way. 
 
@@ -2035,8 +1899,6 @@ Tradition also establishes roles for each Court. In ~~p~~ ractice, most Courts l
 
 Werewolf Storytellers Handbook 
 
-_**70**_ 
-
 others are by no means unheard-of, and necessity dictates some very unlikely assignments on occasion. 
 
 ## _Honor_ 
@@ -2071,8 +1933,6 @@ The Hakken are a tribe of werewolves found only, as far as observers know, in th
 
 Chapter One: The World of the Garou 
 
-_**71**_ 
-
 Family lineages provide the foundation for Hakken organization. Noble families preside, and lines of retainers serve them. In the classic Hakken formulation, the _daimyo_ or lord is the heart and mind, the warriors the hands and feet; the elders are the senses, the juniors the body. It all adds up, when things work right, to a single transcendent organism aware of and capable of more than any of its individual members. 
 
 Hakken serve the Beast Courts and seldom feel much conflict between their duties to court and to clan. Providing excellence in military or other service to the Court, thereby ensuring its success and prosperity, serves the clan as well, bringing glory to the community which produced such worthies. On the other hand, the Hakken distinguish between service to the Court and service with other _hengeyokai_ : they work reasonably well with the Kitsune and Tengu, both of which have long histories in areas of Hakken strength, but are generally unhappy about being assigned to sentai with other breeds. They strike to excel in such situations, as always, they just don’t like it and seek any opportunity for honorable change. 
@@ -2105,8 +1965,6 @@ So far the Nagah remain a matter of rumor as far as the favored few outsiders al
 
 Werewolf Storytellers Handbook 
 
-_**72**_ 
-
 now. Their allies in the Courts readily provide conflicting rumors and misleading accounts in the rare instances when an outsider starts asking the wrong questions. 
 
 ## _Nezumi_ 
@@ -2126,8 +1984,6 @@ A few Nezumi elders work with other Breeds, teaching them the arts of Low War. T
 The weresharks of the Middle Kingdom wear the same forms as their kin elsewhere, but lead tremendously different lives. As creatures of the sea, they naturally cannot participate fully in the land-based routine of the Beast Courts, but they do belong to the Courts and do serve with honor and distinction. They’re seldom sophisticated, and they have very little use for the intricacies of court politics or highly detailed status systems. They are not just brave but 
 
 Chapter One: The World of the Garou 
-
-_**73**_ 
 
 determined and persistent, and they seek to act with sound judgment as well as the tremendous force that comes naturally to them. 
 
@@ -2169,8 +2025,6 @@ In the summer of 1999, beings of godlike power went to war in the fertile lowlan
 
 Werewolf Storytellers Handbook 
 
-_**74**_ 
-
 thousands of people and blighted the land. The Gauntlet actually disappeared altogether for several days over hundreds of square miles, allowing in unprecedented destructive force. In the end… somebody won, presumably, since the battle came to an end and the work of covering it up began. _Everyone_ seems interested in burying the truth the matter deeply. Human governments talk about terrorists and psychoactive chemical warfare, while the _Kuei-jin_ speak cryptically of the sacrifices of their elders and technophilic magicians occasionally allude to super-weapons in the heavens. 
 
 Most of the cover-up and related debate pass by the Beast Courts without comment. Some sentai focus on what they see as the really important task, which is healing the land. Akosha’s Eye, a Red Talon Theurge from her tribe’s stronghold across the subcontinent in western India, took the early lead in direct action and in organizing others, both of the Beast Courts and outside. Her clashes with strange Wyrm creatures on both sides of the Gauntlet have left her a legacy of wounds which will not heal properly, and after two years of great physical exertion, she had to cut back and concentrate on training her successors. A Theurge from the small Bangladeshi population of Hakken, Syeda Strikes-the-Side, now takes the leadership role in the field, working with a dedicated and highly diversified little community. With varying mixtures of affection, admiration and disdain, observers sometimes call it the Court of the Great Hole. 
@@ -2193,8 +2047,6 @@ Most Garou know in a vague sort of way that the Stargazers lost their most promi
 
 Chapter One: The World of the Garou 
 
-_**75**_ 
-
 given their allegiance to the Beast Courts. It doesn’t much matter to most Garou, so more recent news makes it way around slowly, if it all. 
 
 In principle, the elders of the great Beast Courts are glad to have the Stargazers among them. The practice is somewhat more complex. The Stargazers are held by most to be long-lost brothers who have lived along the barbarians for too long — welcome, and in many cases properly members (by the Courts’ standards), but outsiders nonetheless. It will take generations to teach them right thought and right conduct and for these principles to become innate to the Stargazers as they are to the Hakken or Zhong Lung. Elders with an interest in teaching the newcomers flock to courts throughout western and southern China, running special academies with courses in history, tradition and the spiritual realities of the Middle Kingdom. Few Stargazers take much comfort in the thought that they get very special schools all their own; they regard themselves fully as mature and civilized as any of the Courts’ established breeds, and more 
@@ -2208,14 +2060,11 @@ The Hakken have little use for their cousins and would prefer to see the Stargaz
 **==> picture [14 x 10] intentionally omitted <==**
 
 **----- Start of picture text -----**<br>
-76<br>**----- End of picture text -----**<br>
-
 
 **==> picture [184 x 14] intentionally omitted <==**
 
 **----- Start of picture text -----**<br>
 Werewolf Storytellers Handbook<br>**----- End of picture text -----**<br>
-
 
 for werewolves unfamiliar with Beast Court ways. Every court with Hakken elders hosts very complex games of intrigue behind the scenes, with efforts to maneuver the Stargazers into situations where they must become disgraced. The Hakken would be perfectly happy to see the Stargazers wander elsewhere, anywhere else but the Courts. 
 
@@ -2227,13 +2076,10 @@ And the Kumo, it’s said, await the chance to welcome their new neighbors… pr
 
 Chapter One: The World of the Garou 
 
-_**77**_ 
-
 **==> picture [535 x 736] intentionally omitted <==**
 
 **----- Start of picture text -----**<br>
 78 Werewolf Storytellers Handbook<br>**----- End of picture text -----**<br>
-
 
 _Once again I lost myself in the moment, in the everlasting now of my wolf-life. It’s as though I live with a separate notion of time when I’m a wolf, in a perpetual present renewing itself constantly, and I have no concept of tomorrow or yesterday, no sense of a time other than the very night of my transformation. My whole memory is tied to the physical, the tangible objects of my desire. My only future is the hunger I feel that causes me to stalk._ 
 
@@ -2250,8 +2096,6 @@ the labyrinthine soul-deadening webs of the Weaver. The Glass Walkers and Bone G
 So the question is as follows: How do you get this point across to the players and by extension, their characters? Unless the characters are based in a city setting, Storytellers have their work cut out for them adequately portraying the city and its denizens in such a fashion that you evoke the disgust-seduction reaction. Some of the ideas presented below can help bring home the alien allure of forbidden territory. 
 
 Chapter Two: The Battlefield 
-
-_**79**_ 
 
 ## _A Note for Our Urban Readers_ 
 
@@ -2275,8 +2119,6 @@ Obviously, to those Garou that think of the city as “home,” devastatingly gr
 
 Werewolf Storytellers Handbook 
 
-_**80**_ 
-
 characterize it as threatening, frightening and alien. That way, you can save those aspects for the truly bizarre and obviously sick, damaged or corrupted things such Garou may encounter. 
 
 ## _The City as Hunting Ground_ 
@@ -2297,8 +2139,6 @@ The main trap many Storytellers fall into, however, is trying to tell the player
 
 Chapter Two: The Battlefield 
 
-_**81**_ 
-
 may be sad that they failed to prevent such a thing, while still others may be angry to have missed the battle. If you want your players (and the characters) to feel something, you’re going to have to lure them into it through your presentation. You can’t say, “You experience revulsion when…” but you can state, “The clotted mass blocking the sewer grating writhes with crawling maggots…” and let them decide if that disgusts them. 
 
 Write down a list of all the words you can think of related to things like horror, beauty, purity, corruption, death, nature, fear and anger. What about concepts like honor, loyalty, cowardice and love? Use the list in your portrayals to make things come alive in your players’ imaginations. Consider how different types of words make you feel. Words carry emotional charges and can be used to convey negative or positive feelings and even create associative images in people’s minds. Good Storytellers know how to find these kinds of words and use them when they craft a tale, sprinkling them through the telling at important junctures. 
@@ -2318,8 +2158,6 @@ It’s fine to let the setting become the background against which the story is 
 You’re already trying to evoke a sense of mood with the words you use to describe the city, so you may as well use them to outline your theme too. Dozens of aspects of the city lend themselves to good themes for city-based stories anyway. Think of the decay most cities experience. Neighborhoods abandoned by all but junkies and whores, broken down stripped cars, graffiti smeared along the walls, jumbled and broken building ruins in overgrown, trash-littered lots all call to mind the decay and soul-sickness Garou can experience in response to the city’s atmosphere or to an encounter gone very wrong. If your theme concerns truth versus appearance or the masks even other Garou wear, emphasizing the artificiality of the city can mirror this. Concrete and asphalt take the place of stone and dirt. Plants seen inside a restaurant through a window on closer inspection turn out to be replicas made of plastic. Thinking about running a story about the allure of the forbidden? What better place exists to portray that theme than the seductive, taboo city? If your troupe is into the truly dramatic or has gone through prior stories that have left them feeling wretched and empty inside, bring them to the city. Show them how the crowded space, lack of privacy and 
 
 Werewolf Storytellers Handbook 
-
-_**82**_ 
 
 tedious, repetitive jobs most people endure combine with governmental control and the depersonalization and callous indifference that characterizes large urban areas speaks to the characters’ feelings of loneliness and worthlessness. Consider how violent and perverse city life is. The Garou are used to being the baddest muthas around. Show them how relatively tame they are with gang warfare and terrorist bombings. Let them witness children murdering other children in a school or watch as a hate group burns a church or synagogue. Present them with a serial killer. At least the violence the Garou unleash seems to have a point and occurs to serve a good cause. Still, making the characters consider their use of excessive violence gets a boost from witnessing the insanity that prevails within the city. 
 
@@ -2345,8 +2183,6 @@ Glass Walkers and Bone Gnawers need no excuse to embrace the city. Some see the 
 
 Chapter Two: The Battlefield 
 
-_**83**_ 
-
 ## _Abundant Opportunity_ 
 
 Some rural Garou find that the city fascinates them. The city’s excitement, constant motion and sheer size combine to draw them in and set their hearts pounding. Some find that after their exposure to the city’s rhythms, they can never be happy leaving it for good. Many rural Garou see the city as a curiosity. They study it as a way to learn about humans and the Weaver’s works. Further, being in the city provides Garou with their best opportunity to encounter the enemy face-to-face on a daily basis. The main problem Garou must deal with in tracking their enemies and battling them is picking a target. So many possible targets abound, it’s sometimes difficult for Garou to prioritize which to take out first. 
@@ -2364,8 +2200,6 @@ For example, Cara’s character Darien Farwalker, a Silent Strider Theurge, trie
 _Your body touches a sticky film dense with a griminess that clings to your skin and attempts to hold you in place. Thousands of tiny web-like strands grab hold of you and try to keep you from pushing your way past the barrier between the worlds. Finally, you emerge, soiled but intact, in the alley’s Penumbral reflection._ 
 
 Werewolf Storytellers Handbook 
-
-_**84**_ 
 
 Cara can feel her character’s struggle just to do what would come so easily in a wilderness setting. The difference between the pristine Umbra near Darien’s caern and the dismal spirit world of the city becomes more real and sets the tone for the encounters to come. 
 
@@ -2400,8 +2234,6 @@ Use contrasting images to highlight the differences between the exotic urban Wyl
 Wolf-born Garou find cities almost unbearable. The most extreme of them refuse to enter cities of their 
 
 Chapter Two: The Battlefield 
-
-_**85**_ 
 
 own accord. Unfortunately, the war isn’t going so well that a pack can always choose their battleground. Lupus have to make do in the city just as the other breeds do — but there they face problems all their own. Storytellers should not hesitate to use the plight of the lupus Garou to flesh out and add depth to her chronicle. 
 
@@ -2445,8 +2277,6 @@ Once the characters have arrived in the city, you need to immerse them immediate
 
 Werewolf Storytellers Handbook 
 
-_**86**_ 
-
 Lupus or metis Garou, accustomed to living in the wilderness or within the confines of a rural sept, should experience the impact as a shock to their system. Describe the blare of automobile horns, the ceaseless background noise of traffic and machinery, the sightobscuring haze from pollution, the reek of factory smoke and car fumes, the wail of sirens and the overpowering press of humans crowded together in an unhealthy land of narrow concrete streets and towering buildings. Homid Garou should also feel beset by these sensations, but they may also feel twinges of guilt for their human relatives’ deeds, or a shade more sympathy for the humans in this oppressive environment. 
 
 ## _City Encounters_ 
@@ -2477,8 +2307,6 @@ More likely, you will make dozens of volunteers risk their lives and force the g
 
 Chapter Two: The Battlefield 
 
-_**87**_ 
-
 ## _The Truth About the Wild_ 
 
 The truth about the wilderness is this — life is hard. There is no “dying of old age” in the woods. If you are an animal, your life will almost certainly end either when something makes you too slow to run and a predator eats you, or you something makes you too slow to hunt and you starve. It could be arthritis, hunger, sickness, or plain old bad luck, but you get off your game and that’s the end of it. 
@@ -2503,8 +2331,6 @@ Storytellers who have been having problems getting members of the pack to rolepl
 
 Werewolf Storytellers Handbook 
 
-_**88**_ 
-
 together, they have a conversation, and then turn to the players and ask then what they’re saying. If your players are used to roleplaying, they probably take to it well, but you can also use this to provoke less-experienced players to roleplay. Set up the circumstances, let them perform a few acts to lead into the conversation, and then indicate they should talk. If it works, you’ll get one-on-one interaction. Don’t pressure the players beyond the necessary nudges — if the conversation isn’t going to catch, it isn’t going to catch, and sometimes a halting conversation is the kind that really should occur. Keep alert, and when it ends, cut gracefully to the next scene. As a bit of additional advice, don’t make it so that Bob and Joe talk, then Joe and Jane talk, then Jane and Bob talk. That’s patently contrived and feels more like a scheduled rap session than genuine roleplaying. It’s okay to have everyone interact, but try to make it seem naturalistic and break it up with action or group roleplay. 
 
 The bonding is equally easy to inject — there’s a reason that wilderness experiences are used as a way to teach troubled youths teamwork. There are countless situations where several characters will need to work together. Anything from clearing a rockslide to climbing a cliff to fording a river. Even dividing up and accomplishing the day-to-day chores is accomplishment when you’re living out of a rucksack. Present problems that the characters can’t solve alone, force the players to devise solutions _in character_ , and then let them carry the plan out. Use all of the crazy “group effort” and “helpers” rules from the Systems chapter of the **Werewolf** book, and genuinely make overcoming the obstacle as a group into an important and rewarding challenge in the game. Make the characters work and plan together, and they’ll soon develop the sort of bonds that are supposed to typify Garou packs. 
@@ -2522,8 +2348,6 @@ Also, one of the most effective things about the wilderness as a setting is that
 Finally, keep in mind that that one of the defining aspects of being out in the wild is the inability to get to anywhere else quickly. This can prove quite troublesome if the adventure you planned turns out to be duller than you expected, or the characters are clearly not up for quality time with the snakes and the bugs. Try to think out ahead of time how long (in terms of session time) the wilderness trek you’re planning on will take. It’s a rare gaming group that wants to spend their third straight game session walking through foothills of the Rockies. Get a sense of how long your group can tolerate fairly mundane challenges. If that’s an hour, then make sure the wilderness excursions don’t last much longer than that. If it’s one or two sessions, then set that as your upper limit. Be sure to underplan a little, because things will naturally take longer than you expect, and you don’t want to have everyone coming back to the next session for “just one more hour of slogging through the bayou!” Also, if you’re pre-planning events, make a list of what 
 
 Chapter Two: The Battlefield 
-
-_**89**_ 
 
 encounters or events are must-happens, and which are luxuries, that way if things seem to be dragging, you can know what to cut out and what to keep when you’re speeding things along. 
 
@@ -2557,8 +2381,6 @@ Doubtless, many of these lessons are simple ones, and really no more than the re
 
 Werewolf Storytellers Handbook 
 
-_**90**_ 
-
 sojourn in the wild and finds that the problems he faced were exactly like the ones he confronts in his life now? 
 
 As a Storyteller, this is a chance to have spirits who would otherwise be setting elements and plot or clue dispensing machines become active parts of your game. Those ancestor-spirits are no longer just a mechanical edge; now they’re putting the character through her paces. The spirit patrons of the characters’ caern aren’t just potential totems, but active entities who touch the characters’ lives and influence their doings. It’s also a chance for you to directly steer the game through the intervention of your Storyteller characters. If you see the characters heading toward a fight they can’t win or just falling off the tracks of smart thinking, it’s a chance to give them a message without breaking the illusion of free will by taking them aside and telling them what’s best. 
@@ -2576,8 +2398,6 @@ For Storytellers, a travel story — particularly a tense one as the characters 
 Finally, characters can be tossed into a situation where they’re genuinely unprepared. They may be Kinfolk or even Garou in some sort of traumatic situation like an airplane crash, a moon bridge mishap or an attack on an isolated caern that sets them to unprepared flight. Whatever the case, the characters are left with only their wits and what they can gather. This probably isn’t much of a threat for the Garou, but it can be, if the conditions are harsh or the pack is largely hopeless city-slickers. This is a very legitimate challenge for Kinfolk, and can win them a lot of positive prestige among their skin-changing relatives, 
 
 Chapter Two: The Battlefield 
-
-_**91**_ 
 
 even serving as a chance to try out or learn Gifts without being totally overshadowed by the full-blooded members of the family. 
 
@@ -2605,8 +2425,6 @@ The second most important rule of survival, beyond planning, is to control your 
 
 Werewolf Storytellers Handbook 
 
-_**92**_ 
-
 perature to allow them to survive in a broad range of conditions. However, the human body is mostly suited to fairly warm temperature — anything below 60 degrees Fahrenheit is uncomfortable without clothing, and temperatures below that can cause hypothermia. In hypothermia, the body loses heat faster than it can generate it, until its core temperature drops below that at which the human body can function. For a naked human, hypothermia can be a risk at even 50°F. Hypothermia is characterized by severe shivering, replaced by a sense of warmness and physical weakness as the body fails. If it remains uncorrected, the victim will eventually go into shock and freeze to death. 
 
 The remedies to this hazard are simple. First, the character can move vigorously, which causes his muscles to generate heat and warm his body. This is only effective at relatively warm temperatures, or in conjunction with other forms of protection. Second, the character can remove himself from the wind. As a character radiates heat, it warms the air around him. Since the amount of heat transferred between two bodies depends on their relative temperature, this slows the rate at which the character’s body loses heat. Wind constantly pushes new air against the character, causing his body to lose heat quickly. This makes it seem much colder than it is, and high winds plus subfreezing temperatures are a combination that can rapidly sap the strength of characters exposed to them. Characters trapped in high, cold winds should seek the shelter of any sort of structure that can function as a windbreak. Huddling also works, and several characters huddled close together can stay warm by minimizing the amount of surface area any given character exposes to the cold. 
@@ -2630,8 +2448,6 @@ However, this is not the only place that frostbite can occur, and characters exp
 Heat is not as great a threat to the human organism as cold. The human body has a phenomenal cooling system that, if provided with enough water, can sustain it in the hottest of conditions — unsurprising in a species that evolved near equatorial Africa. The body secretes water, which evaporates, transferring heat into the sur- 
 
 Chapter Two: The Battlefield 
-
-_**93**_ 
 
 rounding air more efficiently than simple radiation. Other than the very old, the very young, the sick and those with breathing ailments, very few humans need fear death from heat exposure. Nevertheless, heat-related equivalents to both hypothermia and frostbite do exist. 
 
@@ -2659,8 +2475,6 @@ In the case of true immersion, however, the foot turns blue and becomes covered 
 
 Werewolf Storytellers Handbook 
 
-_**94**_ 
-
 ## _The Wolf in Summer_ 
 
 In hot weather, all the phenomenal insulating properties of the wolf’s coat become something of a liability. It only sweats from its nose, tongue and toepads, and while the rest of the beast’s body can radiate heat, it is insulated by fur and doesn’t have sweat glands to raise the efficiency of radiation. This is not so much a survival hazard as a major limitation on the animal’s activity. While very hot temperatures are not incredibly healthy for wolves, they are not directly fatal so long as the wolf has shade and water. However, if the animal indulges in any sort of strenuous activity for any period of time, it risks hyperthermia, as its body will be producing heat as quickly as or more quickly than an active human, and has a far less efficient system for dumping it. Storytellers may wish to begin imposing penalties on Hispo or Lupus-form characters in extremely hot conditions after as little as ten turns of activity. 
@@ -2684,8 +2498,6 @@ There are excellent filters and purification kits available that make drinking w
 Characters in cold areas may have to melt snow or ice for water. Snow is not good for you to eat in any kind of volume — you really must melt it first. Characters in arid areas may not be able to find surface water of any sort. It may be possible to dig for water in “creases” in the terrain (where steep slopes meet a flat surface) and, of course, the presence of plant growth indicates water. Likewise, seasonal streambeds often carry a year-round sluggish current through the sediment. Characters in arid situations will normally require a solar still to gather enough water to survive. Such a still is little more than a fairly large hole — preferably one dug in damp earth. The hole is filled with chopped vegetation if any is available (the roots of desert plants work best), and a bowl, cup or other wide-mouthed container is set at the bottom. The 
 
 Chapter Two: The Battlefield 
-
-_**95**_ 
 
 mouth of the hole is covered with a sheet of polyethylene or other rugged, flexible plastic, with a weight in the center to tent it downward to form a downwardpointing cone whose point is directly over the cup at the center of the hole. The sun shines on the still, heating the air inside up and causing moisture to evaporate from the moist earth and chopped roots. The water condenses on the plastic, beads into droplets, flows down the sloped polyethylene, and drips off the point of the cone and into the cup. Every morning, after the dew has formed for the day, the character simply lifts the edge of the polyethylene and gets the water out. If there’s a plastic hose available, the character can even slide it down into the container when they’re constructing the still, and drink from the accumulated water whenever he’s thirsty. It’s hard to get enough water to drink from just one still, but several can sustain a character and refill his canteens over the course of several days. 
 
@@ -2713,8 +2525,6 @@ Secondly, hunting is time-intensive. The game must be stalked and killed. The ki
 
 Werewolf Storytellers Handbook 
 
-_**96**_ 
-
 werewolves using Hispo form; Garou have many hunting advantages over their wolf and human relatives. But unless the characters are willing to leave the bulk of a kill there to rot and take only a few cuts, the carcass must be dressed and the meat prepared. Take some meat out of your refrigerator and leave it on the table. It doesn’t take very long until it gets smelly and generally inedible, does it? It doesn’t take any longer just because you’re out in the woods. Characters have a day or two to smoke, salt or eat the meat, with maybe another day or two after that if they’re willing to go into Lupus form and exploit the tougher canine digestive system to stomach the ripening meat. 
 
 So in general, unless the group is traveling very light, it’s probably wise for Garou to bring along some or all of their food rather than hunting, because hunting takes time and draws attention. In any case, modern survival foods generally engineered, have a better calorie-to-weight ratio than wild food. Meal planning for characters that don’t intend to hunt must focus on light, high-energy foods — food bars, nuts, chocolate and fatty meats. Lightness of food is critical for wilderness sojourns of any real length; two pounds of food a day doesn’t sound like very much, but it sure is a lot when you have to carry twenty days worth on top of twenty pounds of water and your camping gear. Food should be stored in waterproof containers, and hoisted into a tree away from camp every night. Characters should not store food in their tents, because most of god’s animals are extremely hungry most of the time, and Mister Bear will not take no for an answer when he tries to stick his nose in your backpack. Sure, werewolves can beat a Kodiak in a fistfight, but do you really want to have that fistfight on top of your campsite? 
@@ -2740,8 +2550,6 @@ Note that the idea of stories that exist in fixed form and carry a fixed meaning
 As an example, consider Uncle Sam. Uncle Sam’s general figure, the tall and lanky man in red, white and blue suit and white hair, first appears in political cartoons in the middle of the 19th century. He’s been 
 
 Chapter Two: The Battlefield 
-
-_**97**_ 
 
 used to recruit soldiers and to represent the spirit of the nation admonishing warmongers, as a symbol of America’s benevolent leadership and with evil leer as the demon of American aggression, as the endorser of commercial goods and as the noble critic of commercialism degrading the country. His proportions vary, because whatever real person or people inspired the original illustrations are all long dead and he now reflects archetypal features. 
 
@@ -2771,8 +2579,6 @@ Opportunities and pitfalls travel in pairs through the landscape of potentially 
 
 Werewolf Storytellers Handbook 
 
-_**98**_ 
-
 swer to any question about whether a particular piece of reality belongs in your chronicle, but there are concerns you should keep in mind as you see what feels right for your specific circumstances. 
 
 ## _Details_ 
@@ -2793,9 +2599,6 @@ Details matter when the characters are at home, too. How close is too close to s
 
 **----- Start of picture text -----**<br>
 Chapter Two: The Battlefield<br>**----- End of picture text -----**<br>
-
-
-_**99**_ 
 
 about. So you have a great deal of freedom to say “this aspect of the game world really accounts for this interesting thing I found in history or current affairs.” 
 
@@ -2818,8 +2621,6 @@ Indeed, a certain level of apparent contradiction is thematically sound in **Wer
 So it’s appropriate to introduce a myth from time to time whose explanation seems true and yet does not fit smoothly with the forces Garou venerate. Many mythic creators combine elements of two or even three aspects of the Triat. Some cultures ascribe different personalities and responsibilities to the spirits of the planets. Totemic animals don’t have consistent natures, and afterlives vary wildly. The Garou as a race suffer from arrogance and self-blinding pride, and it’s no bad thing to show characters that sometimes there is, irrefutably, more than they can account for. Don’t do this often enough to make them feel that their beliefs are trivial or profoundly broken, because in the World of Darkness the Garou understand (or can understand, if they pay attention) much of the cosmic order. It’s just that there’s always something more. 
 
 Werewolf Storytellers Handbook 
-
-_**100**_ 
 
 ## _The World_ 
 
@@ -2849,8 +2650,6 @@ A key point in representing animals is to understand how they perceive the world
 
 Chapter Two: The Battlefield 
 
-_**101**_ 
-
 imagine, revealing to her who and what is upwind, the sex and health of the wolf who marked a tree and how long ago he passed by, and any number of other clues about her environment. Finally, she has whiskers that help her feel around her in the darkness of a den — and possibly which way the breeze blows. 
 
 Many critters discover their world through senses that are more than a little alien to us. Some bats and dolphins use focused sound waves to navigate. Many fish (notably torpedofish and sharks) hunt by sensing the electricity generated by the prey’s own muscles. The compound eyes of bees register far into the ultraviolet spectrum. Hawks have a narrower range of hearing but can easily pick up movement and focus on a rabbit while soaring high above. Some birds, sea turtles and fish can travel hundreds or even thousands of miles annually to find a specific tree, beach or stream, using navigational aides that are often beyond our ken. Even dogs have been known to journey incredible distances to return home. Sometimes we just don’t know how animals know what they do, a good example being dogs that sense the change in their epileptic owners up to half an hour prior to a seizure. 
@@ -2878,8 +2677,6 @@ The future is a much more abstract concept. Instinct covers a lot of ground, tim
 And just as they make intuitive connections between an action and a positive effect, they can also discern negative repercussions, provided the effect happens soon enough after the cause. When a bird becomes 
 
 Werewolf Storytellers Handbook 
-
-_**102**_ 
 
 ill after eating a bad-tasting butterfly, it will avoid all similar butterflies in the future. The longer the time between cause and effect, the more tenuous the connection in the mind. If a wolf experiences a painful electric shock when it bites a sheep, it connects sheep with pain and may avoid them for a while; if the wolf bites a sheep and three days later a party of bounty hunters appear to harry it, the wolf will see no connection between the cause (stock killing) and effect (men with guns). 
 
@@ -2919,8 +2716,6 @@ Garou are powerful predators who fairly radiate their primal rage. Prey species,
 
 Chapter Two: The Battlefield 
 
-_**103**_ 
-
 sometimes even as creatures that would kill _them_ for food. Large, tough beasts such as bull elephants or grizzly bears might be less inclined to run than a rabbit, may take a belligerent stance. On the other hand, a blue whale probably feels no particular threat at all. 
 
 Besides reactions to the Garou-ness of a character, there may be behavioral differences based on the character’s form. The dog that is more inclined to be friendly to a human will probably bristle at a wolf; a young wolf might have the opposite reaction. 
@@ -2953,8 +2748,6 @@ As a Storyteller, you need to make your players realize that whenever they enter
 
 Werewolf Storytellers Handbook 
 
-_**104**_ 
-
 What is it like to meet a spirit? To talk to one and to have one talk to you? The following guidelines may help Storytellers bring the residents of the Umbra to vivid, sometimes frightening but always interesting, life. 
 
 ## _Seeing Is Believing: Describing the Spirits_ 
@@ -2977,8 +2770,6 @@ By focusing on two major elements, the owl’s expression and the sense of quiet
 
 Chapter Two: The Battlefield 
 
-_**105**_ 
-
 players on their toes. They can’t afford to say the wrong thing or offer Owl any disrespect. 
 
 ## _Plant Spirits_ 
@@ -2998,8 +2789,6 @@ Roses symbolize romance and passion, but they also carry a hint of opulence and 
 _A storm rages in the Umbra. Bolts of black and indigo lightning strike the ground around the young Black Fury and her packmates. The ground shakes with each impact and the_ 
 
 Werewolf Storytellers Handbook 
-
-_**106**_ 
 
 _very air that surrounds the Garou surges with hostility. A jagged form solidifies from a shard of lightning. Anger hangs in the air, questioning why you have intruded into his territory._ 
 
@@ -3031,15 +2820,11 @@ Spirits have a different way of speaking than mortals. They do not have the same
 
 _Owl arches its wings and turns its eyes on the pack’s leader._ 
 
-_“Speak.”_ 
-
 _A single word, both greeting and command, echoes in your ears. The young Ahroun begins speaking, but his voice falters. He grows wordy. Owl ruffles its feathers. “Enough. Too many words. Start over.” The pack leader takes a deep breath and begins again, choosing his words more carefully this time._ 
 
 Spirits do not speak as humans do. How they use words and how they put sentences together, what they talk about, how patient or impatient they are all depend on their nature. Animal spirits, such as Owl or Lion or Turtle, speak with the same cadence as their animal 
 
 Chapter Two: The Battlefield 
-
-_**107**_ 
 
 selves. Owl’s language should use short words, possibly with soft “oo” sounds to mimic the owl’s distinctive cry. Lion, on the other hand, uses harsh guttural words that echo the animal’s roar or growl. When speaking as Turtle, the Storyteller should keep in mind the creature’s reputation for slowness, drawing out words and thoughts to match Turtle’s plodding, methodical pace. 
 
@@ -3077,8 +2862,6 @@ One of the most important aspects of spirit nature is that spirits don’t reall
 
 Werewolf Storytellers Handbook 
 
-_**108**_ 
-
 argues that no harm will come to it. An oak-spirit cannot argue for bending in the wind, just as the spirit of a blade of grass cannot decide to stand fast and unbowed. This is a very important aspect of an animistic world; sometimes things are the way they are not because science has yet to contradict them, but simply because that’s the way they _are_ . It may seem like a simplistic way out, but if you allow a spirit to go against its own nature with nothing short of painful, Herculean struggle, you lose the power of symbolism that makes the spirit world so important in the first place. 
 
 Of course, there are always exceptions — sort of. For example, the more powerful the spirit, the more leeway it has to interpret its role and duties. A shark Gaffling cannot resist an offering of bloody meat, but the Incarna of Shark himself might do so long enough to question the person making the offering, or to strike a complicated deal involving the trade of meat for favors. This is partly because Incarnae and Celestines represent a variety of concepts within themselves. Great Fenris is anger, _and_ battle lust, _and_ a harbinger of Apocalypse, _and_ an aspect of Wolf, _and_ strength, and so on. Great Pegasus stands for a number of important things, of which the protection of Woman and the defense of the Wyld are but two. With these added aspects comes flexibility, and with an Incarna’s wisdom and willpower comes the power to choose its own path — so long as that path serves its ultimate nature, that is. Even the Wyrm cannot choose to build rather than destroy. 
@@ -3103,13 +2886,10 @@ While there are no hard and fast rules for roleplaying spirit encounters, the fo
 
 Chapter Two: The Battlefield 
 
-_**109**_ 
-
 **==> picture [536 x 734] intentionally omitted <==**
 
 **----- Start of picture text -----**<br>
 110 Werewolf Storytellers Handbook<br>**----- End of picture text -----**<br>
-
 
 _“If we ever meet again, Hazel-rah,” said Dandelion, as he took cover in the grass verge, “we ought to have the makings of the best story ever.”_ 
 
@@ -3138,8 +2918,6 @@ _Matt grins. “Not necessarily. Let’s go through the basics and then you guys
 All role-playing games begin with the characters. Therefore, character creation should be the first (or one 
 
 Chapter Three: The Chronicle 
-
-_**111**_ 
 
 of the first) steps along the way. The best way to arrange character generation (often termed _chargen_ by aficionados) is to get all of the players together to create characters at the same time. This is especially true for **Werewolf** , as the pack as a whole should receive the same attention as the individual characters. 
 
@@ -3175,8 +2953,6 @@ The astute reader might well point out that any of these ideas would work just f
 
 Werewolf Storytellers Handbook 
 
-_**112**_ 
-
 son why a player _couldn’t_ play a Red Talon, so if a player comes up with an evocative reason for the character being at the caern, why not allow it? Maybe the Red Talon was born in a zoo and decided to return to the city after her Rite of Passage. Perhaps the Talon is in disgrace from her tribe and is sent to join an urban pack as punishment (what would _that_ do to the pack dynamics?). 
 
 The aim here isn’t to squelch a good character concept, of course, but simply to keep the game on the level that you want it. If a player really had her heart set on playing a Red Talon, and you decide that Talons, for whatever reason, really aren’t welcome at this sept, ask if perhaps the same basic concept wouldn’t work for a lupus-breed werewolf of another tribe. 
@@ -3205,8 +2981,6 @@ One of the first decisions the troupe will make as a group is what totem the pac
 
 Chapter Three: The Chronicle 
 
-_**113**_ 
-
 First, she can allow the players to choose the totem before the game actually starts. The players total their Totem ratings and decide what totem best represents them and their characters, and decide how to spend any Totem points beyond the totem’s base cost. The advantage to this method is that it gives the players a good degree of control over their pack’s purpose, which in turn gives you, as Storyteller, a clue as to what kind of stories the troupe wishes to tell. On the downside, inexperienced troupes may simply choose whatever totem they feel to be the “best”; i.e., greatest bonuses for easiest Ban, and not worry about what it may mean in the long run to serve Coyote (for example). If you choose this method, make sure the players understand what they’re committing to by choosing a particular totem. 
 
 Another method is to let the players choose the totem, but during play. This likely involves a spirit quest of some kind; perhaps an Umbral journey (likely with a more experienced Garou as a guide, perhaps the mentor of one of the characters) in which the characters are faced with several possible totems. These totems, all vying for a promising young pack to represent them, present tasks or challenges and decide based on how the pack meets these challenges what spirit best exemplifies the pack (the totems in question, of course, should be those that the pack’s collective Totem rating make possible). This method of choosing a totem need not be so involved, however. The pack could simply ask an elder to perform the Rite of the 
@@ -3227,8 +3001,6 @@ Preludes, as the main rulebook suggests, should be solo time with the Storytelle
 
 Werewolf Storytellers Handbook 
 
-_**114**_ 
-
 a separate room. This is the player’s time to decide and roleplay the character’s “formative moments” of her lycanthropic life, and the less distraction involved, the better. What happens during a werewolf’s First Change should shape that character’s outlook fairly seriously. For example, a character that changes in response to an attempted mugging or rape is likely to wind up killing her attackers. This may result in the character feeling that she is some sort of avenger, but it just as easily might wrack the character with guilt. However, if the character’s First Change is in response to something less violent — simply being out under her auspice’s moon and changing to run — the character is likely much less stressed about it. She may still feel that it is something to hide, but may learn to control it (since her shapeshifting does not seem, to her, to be attached to uncontrollable rage) before other Garou find her. 
 
 Preludes should also take a character’s Backgrounds into consideration. The prelude should give the player a hint as to how difficult it will be to maintain Backgrounds such as Resources and Allies over the course of the chronicle. Perhaps the Curse results in a character losing her job (reflected by that character not having any dots in Resources), or a friend of the character sees her change and loses her mind to the Delirium. At the same time, a character with the Ancestors Background should receive dreams and whispers as her spiritual guides try to assist her (which may have the effect of pushing her to the brink of sanity). A character likely won’t have a fetish during the prelude, unless it is some sort of family heirloom that she’s also owned. If that’s the case, what happens if she sets it off by accident? 
@@ -3246,8 +3018,6 @@ Another possibility for preludes is a game called “hot seat.” This involves 
 Whatever method of prelude the Storyteller chooses, she should pay very close attention to what each individual player focuses on. If two different characters include the deaths of their fathers in their concepts, but one player writes a detailed description of her life with her father, the circumstances of his death, and the day of the funeral, whereas the other player spends more time considering how her character has adjusted to her role as a Garou and other post-First Change events, you have some good clues as to what each player finds important. Perhaps the first player could run across an uncle she barely knew later in the chronicle, a relative who can tell her things about her father that she never got to discover. Maybe the latter character, by throwing herself so completely into her life as werewolf, is trying 
 
 Chapter Three: The Chronicle 
-
-_**115**_ 
 
 to escape something from her human life. Even if the players can’t tell you straight out what is important to them, the things they choose to detail should give you more than enough material. 
 
@@ -3285,8 +3055,6 @@ The Storyteller should not be heavy-handed when applying the theme to stories. I
 
 Werewolf Storytellers Handbook 
 
-_**116**_ 
-
 ## _Mood_ 
 
 The _mood_ of a chronicle should “set off” the theme. The mood describes the general feel of the chronicle, and can be expressed by such things as weather, attitudes of Storyteller characters, and the music the Storyteller plays during the game (if any). The mood should enhance the player’s understanding and appreciation of the chronicle, so if the players just don’t seem to be “getting it,” the Storyteller might need to make the mood a bit less subtle. 
@@ -3320,8 +3088,6 @@ Placing such importance on the character’s motivations and goals encourages th
 A detailed discussion of the different types of folkloric patterns in literature is beyond the scope of this book 
 
 Chapter Three: The Chronicle 
-
-_**117**_ 
 
 (though the Bibliography contains several good suggestions). However, several suggestions on using such patterns in **Werewolf** chronicles are presented here: 
 
@@ -3360,8 +3126,6 @@ For example, stories have circulated for years about giant alligators in New Yor
 Rather than using urban legends as plot hooks directly, the Storyteller may simply take their style and implement it for a story. Urban legends usually have a poetic or ironic twist, or at the very least, a simple moral. The familiar story about the babysitter who receives phone calls from a madman on an upstairs phone, for example, has a very clear moral — child care demands a great deal of responsibility, and the children _do_ need to be checked often, threatening phone calls or no. The “kidney thieves” story usually involves a traveler who meets a stranger at a party or club and wakes up missing organs — this story cautions us to take care when traveling. The Storyteller can work in these simple yet brutal methods of driving home the truths of living in Garou society. Perhaps a member of the sept develops a wasting disease that 
 
 Werewolf Storytellers Handbook 
-
-_**118**_ 
 
 spreads to the others and misses the pack by sheer chance. The pack investigates and eventually discovers that the first Garou to contract the disease killed and ate a human being, and thereafter became sick. Whether or not the disease is curable, the pack has witnessed a gruesome, firsthand reminder of one of the tenets of the Litany. 
 
@@ -3422,9 +3186,6 @@ A major caveat of this method is not to try everything on the list in one story.
 **----- Start of picture text -----**<br>
 Chapter Three: The Chronicle<br>**----- End of picture text -----**<br>
 
-
-_**119**_ 
-
 characters to see if the concepts they dreamed up will stand against the rigors of roleplaying, and to see if those concepts are appropriate to the chronicle. The Storyteller is testing moods, themes, ideas, his own characters, and his storytelling and gamemastering abilities. The first story needs to have effort poured into it — it is, after all, the measuring stick by which every other story in the chronicle will be judged. 
 
 ## _Length and Breadth_ 
@@ -3461,8 +3222,6 @@ The danger here should be obvious. No matter how exciting a plotline was when th
 
 Werewolf Storytellers Handbook 
 
-_**120**_ 
-
 ## _Chronicle Development_ 
 
 _Matt closes the door behind his players and walks back into the living room. He puts away the books and the character sheets, and flips open a notebook to write down the events of the recently concluded story._ 
@@ -3497,8 +3256,6 @@ Each member of the pack has her own story to complete. As Storyteller, you must 
 
 Chapter Three: The Chronicle 
 
-_**121**_ 
-
 One of the simplest is to guide experience point expenditure. Buying new Traits should always be a joint effort between player and Storyteller. The Storyteller is the final judge of whether or not a character is ready to buy a new Trait or increase an old one, and because increasing an Ability or Attribute is a twenty percent increase (as each such Trait has a five dot maximum), a substantial amount of study and practice should take place before raising the Trait. Be particularly careful about letting players raise Abilities to four and five dots. Having such a score indicates that the character is among the world’s best at the Ability! Also, take into consideration the character’s foibles when allowing (or restricting) experience purchases. If a character is uncomfortable in the spirit realms and prefers talking to material beings to trying to deal with spirits, it doesn’t make sense for the character to buy a new Gift every session. In fact, you may well rule that the sept’s Theurge needs proof that the character can handle learning a Gift before he summons a spirit to teach it. Likewise, if a character wishes to learn a new language, make sure that she is devoting the necessary time to it. If you plan on taking a great deal of downtime between stories, the player can simply say “My character devotes three hours a day to studying,” but if the character needs to learn the language while a story is actually going on, her player needs to find the time for the character to hit the books. 
 
 Before experience is spent, of course, it has to be earned. Another way to guide character development is by the Learning Curve point award (see page 180 of **Werewolf** ). If the character learned anything during a session, the lesson grants an experience point. However, the Storyteller should make sure that what the character learned isn’t going to be forgotten by the next chapter, especially if the character gained some interesting insight into the pack, the Garou, or herself. If a character comes to the conclusion that the elders in the sept are just posturing and aren’t really as great and wise as they’re made out to be, write that down so that you can refer to it in later games. Perhaps the Wyrm’s minions might use the character’s rebellious thoughts against her. And what if she voices her attitudes and the elders find out? That might make for difficult rank challenges later on. 
@@ -3516,8 +3273,6 @@ As the pack progresses towards whatever goals it may have set, keep in mind the 
 Inspiration for new stories is all around us. Read the news — there’s always some crisis occurring somewhere, and perhaps the latest one would make for a 
 
 Werewolf Storytellers Handbook 
-
-_**122**_ 
 
 good **Werewolf** story. Likewise, books, film, television, and even music can suggest a story. 
 
@@ -3549,8 +3304,6 @@ In general, just remember that published sourcebooks are resources for **Werewol
 
 Chapter Three: The Chronicle 
 
-_**123**_ 
-
 that the players control. These characters learn from their mistakes and experiences just as the players’ characters do, and their motivations and goals — especially with regards to the pack — can and should evolve. If the Storyteller characters are not wellrounded and interesting, they’re little more than the healers and vendors of computer “role-playing games.” The more detail the Storyteller puts into her characters, the more the pack will feel that the story is a living, ongoing drama. 
 
 This doesn’t mean, however that the supporting cast has all the answers. Sometimes they lie. Sometimes they don’t know what they’re talking about — or just misunderstand what they’re asked. If you have a good grasp of a character’s background and knowledge (sometimes it’s a good idea to make a “what she knows” list on the back of a Storyteller character’s sheet or in a notebook), you run a much-reduced risk of portraying the character inconsistently — and the more consistent a character is, the easier it is for the players to notice when something does change…. 
@@ -3570,8 +3323,6 @@ Kinfolk, even more than Allies, require a character’s attention. They are fami
 If the pack fights a pack of Black Spiral Dancers and kills one, the survivors will probably remember the “Gaian scum” that murdered their packmate and will return to even the score eventually. But those Dancers don’t have to simply show up slavering and foaming, spoiling for do-or-die combat. Perhaps they watch the 
 
 Werewolf Storytellers Handbook 
-
-_**124**_ 
 
 characters closely for months, learning their strategies and weaknesses. Perhaps they set up ambushes or learn Gifts to compensate for their own shortcomings. 
 
@@ -3601,8 +3352,6 @@ If the Storyteller decides that she does wish to allow a new player, what then? 
 
 Chapter Three: The Chronicle 
 
-_**125**_ 
-
 Gaining players is normally a bonus to a chronicle. A new character can take the chronicle in new directions, spice up pack dynamics, and, if necessary, shake a game out of a rut. Losing a player can do this as well, but rarely does it go as smoothly. 
 
 Players can drop out of games for any number of reasons. Family or job concerns can force people to reexamine their priorities, and hobbies often have to take a back burner to more important obligations. Sometimes a player will quit a game she finds boring — this is why it is so important to maintain communication between Storyteller and players. A player that feels she can talk to the Storyteller if she starts losing interest in the game is much less likely to simply quit. 
@@ -3630,8 +3379,6 @@ On the other hand, it is a game. If the player would obviously feel cheated by l
 If you do decide to lower the proverbial boom, however, play the moment up for maximum drama. Run the character’s Gathering for the Departed, making sure the rest of the pack gets a moment to say a few words. Show the reactions of any Storyteller characters close to 
 
 Werewolf Storytellers Handbook 
-
-_**126**_ 
 
 the deceased, particularly Kinfolk and close friends. And what if the character has friends who don’t know about the Garou? It falls to her packmates to make up some kind of story to tell her friends. A packmate’s death may very well fuel a story on its own. _Never_ cheapen the moment by glossing it over, simply bringing in a new character at the end of the session. That’s disrespectful to the character, the player, and the story. 
 
@@ -3665,8 +3412,6 @@ Decide on what is going to happen during the last story. What event is going to 
 
 Chapter Three: The Chronicle 
 
-_**127**_ 
-
 Moot? Open a new caern? Or perhaps the stakes are somewhat smaller — perhaps the chronicle ends with the once-inexperienced pack holding sept positions and running a moot at their home sept for the first time. 
 
 The final chapter need not be traumatic, either. A wedding or birth can hold all the drama and excitement of a battle to the death (ask any married person). Perhaps the final chapter is a celebratory moot. Much could go wrong, true, but the atmosphere will be very different. Use the final chapter to play up the theme and mood of your chronicle, and make it a logical conclusion. 
@@ -3696,14 +3441,11 @@ During a long chronicle, a pack of Garou can make enemies in high places fairly 
 **==> picture [20 x 9] intentionally omitted <==**
 
 **----- Start of picture text -----**<br>
-128<br>**----- End of picture text -----**<br>
-
 
 **==> picture [184 x 14] intentionally omitted <==**
 
 **----- Start of picture text -----**<br>
 Werewolf Storytellers Handbook<br>**----- End of picture text -----**<br>
-
 
 ## _Running the Apocalypse_ 
 
@@ -3741,13 +3483,10 @@ You may wish to take a break from Storytelling for a while. One of the other pla
 
 Chapter Three: The Chronicle 
 
-_**129**_ 
-
 **==> picture [536 x 737] intentionally omitted <==**
 
 **----- Start of picture text -----**<br>
 130 Werewolf Storytellers Handbook<br>**----- End of picture text -----**<br>
-
 
 _Though the hero may win the day, it is his terrifying opponent who gives vitality to these tales. Monsters and dragons come in all shapes — and can, of course shift shapes at will… Evil may enter the world in the guise of a single creature, but its family multiplies quickly, and there is never an end to the trials of a true hero._ 
 
@@ -3764,8 +3503,6 @@ the truth of the matter is that the cosmic dance between Wyrm, Weaver and Wyld i
 If there’s a way to win the Apocalypse at all, it will be thanks to a clever understanding of the Triat: what they should be doing, where they’ve gone wrong, and how to get them back on track. In chronicles where there’s some hope of winning the Apocalypse, it’s key to show your players in-game things that promote that understanding. And in chronicles where there is no hope, only the possibility of racking up an impressive resume of deeds before your glorious end, it’s still important to show your players the real face of their enemy, so at least they know why they’re fighting. 
 
 Chapter Four: The Adversaries 
-
-_**131**_ 
 
 ## _Other Resources_ 
 
@@ -3796,8 +3533,6 @@ Remember, in a perfectly functioning universe, most everything in the physical w
 This is, by the by, the main reason that werewolves tend to be so nervous or trigger-happy when they sense the “taint” of one of the Triat on a person, supernatural being or section of the world. In a perfect world, one that had no need of Garou, such beings or places would be few and far between. The presence of Triatic taint implies a problem, the sort of problem that the Changing Breeds were allegedly created to resolve. The wise Garou, when confronted with such a “tainted” entity or locale, first asks himself why the taint is present, and then asks himself 
 
 Werewolf Storytellers Handbook 
-
-_**132**_ 
 
 what he can do to resolve the trouble (if indeed the spiritual scent indicates a problem). Not all shapeshifters are this wise, of course, but it would be doing the Changing Breeds a disservice to assume that even the wisest elders don’t act with at least a little forethought. 
 
@@ -3847,8 +3582,6 @@ Below the Triatic Wyrms are the Urge Wyrms, manifestations of each of the Wyrm�
 
 Chapter Four: The Adversaries 
 
-_**133**_ 
-
 The final four greater aspects of the Wyrm are those that were born when the Wyrm’s corruptive force contacted the four elemental forces of air, earth, fire and water — Hoga, the essence of Smog; H’rugg, the essence of Sludge; Furmas, the essence of Balefire; and Wakshaa, the essence of Toxin. These four elemental forces, and the corrupt elemental spirits that serve them, are the aspects of the Wyrm that have the most to gain from pollution of the natural world, and are therefore most interested in such activities. Rumor has it that there are two more essences relevant to the Asian spirit world, corrupted versions of metal and wood, although the Garou Nation has yet to formally recognize these. 
 
 ## _“The Wyrm Did It!”_ 
@@ -3874,8 +3607,6 @@ By all means, avoid the temptation of having the Wyrm’s forces directly at wor
 Considering the once-noble purpose of the Wyrm, it may be tempting to bring in some agents that still serve the Balance Wyrm as it was, to showcase that the Wyrm’s corruption is not inborn. Old Wyrm-spirits that have resisted corruption are the primary tool of 
 
 Werewolf Storytellers Handbook 
-
-_**134**_ 
 
 choice, but these should be few and far between. It’s no easy thing avoiding your now-corrupt brethren for millennia on end. Such spirits are best used as the objects of great quests, potential sources of information and power that might be the Garou’s last hope for healing the Wyrm. (And, of course, they’d register to Sense Wyrm, which would be yet another way to reinforce to your players that sensing “Wyrm-taint” is _not_ the same thing as detecting evil intent.) 
 
@@ -3904,8 +3635,6 @@ The Weaver and its minions are perhaps the most versatile group of supporting ca
 For most werewolves, the Weaver represents the alien — human ideals taken to their spiritual extreme, denying the natural cycle. Weaver-focused stories are optimal for stressing this sense of alienation and oppression. The Weaver can also be used to challenge a few of your players’ perceptions — are all laborsaving devices necessarily a good thing? Do we really all need cars and highways? Or, if your players are more Luddite in outlook, you can challenge their assumptions just as easily; is all progress really bad? What if a particularly perceptive human who could make real progress in the fight for Gaia was born with an ailment that would be fatal without Weaver-medicine? It seems strange to classify the Weaver as flexible, but the role she serves in the average Werewolf chronicle is just that. 
 
 Chapter Four: The Adversaries 
-
-_**135**_ 
 
 Remember that the Weaver can be as subtle or as unsubtle as the story demands. To set your players on edge, you can easily describe a very faint but persistent droning in their characters’ ears while they’re in the Penumbra of an urban area. Although certainly no threat, this sound neatly conveys the unrelenting, pervasive nature of the Weaver. On the other hand, you can certainly get the players’ attention by setting a massive chrome-and-glass spider-spirit the size of an eighteen-wheeler on their heels. But even though such a threat is more immediate, don’t forget to make the pursuer just as relentless, in order to properly convey the Weaver’s unyielding, mad obsession. 
 
@@ -3936,8 +3665,6 @@ Like the other members of the Triat, the Wyld is amoral. It acts on what can bes
 Yes, the Garou defend the Wyld from the depredations of its siblings. Yes, some strike pacts with Wyld- 
 
 Werewolf Storytellers Handbook 
-
-_**136**_ 
 
 spirits and call these spirits “friend” — after a fashion. However, the Wyld _itself_ does not respond with gratitude. The difference between a pact with a Wyld-spirit and an allegiance with the Wyld is roughly equal to the difference between one’s relationship with one’s pet dog and one’s relationship with Nature itself. 
 
@@ -3970,8 +3697,6 @@ The answer to this question has been left deliberately vague. Some Storytellers 
 The Changing Breeds themselves don’t know the answer to this question, although they have their own ideas, and often blatantly disagree. Therefore, don’t worry about any “book-legal” right or wrong answer to the question — your answer is the one that matters. 
 
 Chapter Four: The Adversaries 
-
-_**137**_ 
 
 ## _Pentex_ 
 
@@ -4011,8 +3736,6 @@ Before we get to the nuts and bolts of who works for Pentex, what they do and wh
 
 Werewolf Storytellers Handbook 
 
-_**138**_ 
-
 • Seldom, if ever, is this monolithic megacorp going to let its name be used in the field. Even people who work directly for Pentex itself, like their First Teams or other agents, don’t run around in jackets sporting the Pentex logo. Any werewolf (or other being, for that matter) who finds out that an entity called Pentex actually owns the chemical company Magadon is either lucky or nosy. Either option spells a lot of trouble for the snoop in question. The powers that be at Pentex won’t sit still should they learn someone is digging around in their garbage. 
 
 • There are fates more brutal than death. If Pentex can corrupt, maim or coerce an opponent, that’s usually more effective (and enjoyable) than simple murder. Consider the delightful arts of blackmail and intimidation should a character find out too much about Pentex or a subsidiary. Poisoning a valuable family member, then rationing the antidote, can force even a rowdy werewolf to be on good behavior… or thirst for revenge. If a player is willing and interested (because this action will probably mean the death or retirement of his character), ponder having a “ringer” within the pack, who will ultimately betray them, for reasons good or ill. 
@@ -4022,8 +3745,6 @@ _**138**_
 • Not everyone at Pentex or its subsidiaries is a bad person. Some are simply hapless workers slaving away the best they can so they don’t get downsized in the next “corporate restructuring.” Plenty are awful examples of humanity, to be sure; the job environment rewards those callous enough to put their welfare (or the company’s) over any pesky ethical considerations like environmental issues or proper assignation of credit. There are those that are worse — fomori, willing servants of the Wyrm, or people who manage to be evil without any outside influence whatsoever. But the worst thing that can be said about a great deal 
 
 Chapter Four: The Adversaries 
-
-_**139**_ 
 
 of Pentex employees is that they’ve learned too well to keep their head down and not make trouble. To paraphrase the old saying, evil prospers when good people stand by and do nothing. 
 
@@ -4052,8 +3773,6 @@ Well, the first thing to establish is that “what Pentex wants” is kind of a 
 Those “in the know” are the vast minority at Pentex. It’s entirely possible that there are people even on the Board who don’t know what the Wyrm is, and would be terrified at the thought of being played as its puppets. Further, those Pentex figures who _do_ know of the Wyrm (and who, in most cases, worship it) have their own variety of motivations. Some are slavishly loyal to the face of the Wyrm they know best (most often a Maeljin Incarna or other high-ranking Wyrmspirit); others naively think they’re the ones playing the Wyrm’s forces for fools. The agendas of these “enlightened” executives vary greatly, but generally fall into a similar pattern — the desire to break the human spirit, making all of humanity an ideal market of consumers. When the world has nothing to offer that’s more attractive than what Pentex can provide, Pentex will own the ultimate monopoly. When the “enlightened” order another environmentally destruc- 
 
 Werewolf Storytellers Handbook 
-
-_**140**_ 
 
 tive measure, it’s often as much to destroy something else that might distract people from their ideal “world of consumers” — and if those damned pesky Garou suffer from the measure, too, that’s all the better. 
 
@@ -4093,8 +3812,6 @@ The Special Projects division is the smallest entity within Pentex, but also the
 
 Chapter Four: The Adversaries 
 
-_**141**_ 
-
 development of biotech. Iliad focuses on creating fomori while Odyssey concentrates on the development of psychic abilities. 
 
 ## _Other Units_ 
@@ -4132,8 +3849,6 @@ Pentex, along with its subsidiaries, has some basic, broad-spectrum strategies t
 Even though Pentex is active worldwide, many of its plots focus on causing problems at local levels. It can’t create an apathetic public without getting out in the field, after all. What it can do is create a lot of misery in 
 
 Werewolf Storytellers Handbook 
-
-_**142**_ 
 
 ## _Spook Speak_ 
 
@@ -4195,8 +3910,6 @@ Not even the members of the Pentex board have all the pieces to the myriad plots
 
 Chapter Four: The Adversaries 
 
-_**143**_ 
-
 ## **Use Enemies Against Themselves** 
 
 Pentex may not be experts on the werewolves, but they have discovered that there’s some natural friction between local “litters.” They’d love to encourage these disagreements into a full-blown war. Moreover, seeing that there are distinct differences between werewolves of the western world and the Asian shapeshifters, Pentex has several agents investigating whether or not there’s potential for a cross-cultural dispute. Anything to get the werewolves to divert their energies away from Pentex and towards each other is worth pursuing. 
@@ -4247,8 +3960,6 @@ Your players might never meet these people, but as the Storyteller, you should k
 
 Werewolf Storytellers Handbook 
 
-_**144**_ 
-
 **• Meyers, Feinstein and Hargrett:** With multinational interests, Pentex’s board of directors saw the need to have a subsidiary law firm with offices around the world. Meyers, Feinstein and Hargrett have practices set up in major US cities and international offices in London, Bangkok and Johannesburg. The firm can have a young, eager and utterly unscrupulous attorney at the elbow of a needy subsidiary employee within a matter of hours, no matter where the crime or problem occurs. 
 
 ## _Plots Within Plots_ 
@@ -4285,8 +3996,6 @@ Certain werewolf Gifts can detect the presence of taints. Otherwise, it’s next
 
 Chapter Four: The Adversaries 
 
-_**145**_ 
-
 • **Consolidex Worldwide:** Despite low returns, this investment firm, which sells no-load mutual funds, continues to attract young, naïve investors even in the slowing market. Consolidex in turn reinvests this money, skims off the top and spreads the funds to other Pentex subsidiaries. 
 
 • **Endron International:** Endron is the oldest company under the Pentex umbrella and one of the more destructive. They specialize in the production of petroleum products; if it weren’t for some careful bribes on the part of Pentex’s PR, OSHA would have shut down Endron long ago. Their factories have no safety standards, and the products produce dangerous levels of emissions. Maybe Endron is old-fashioned in its methods, but the company is still a major bastion in the Pentex family. 
@@ -4309,7 +4018,6 @@ falsely represent their products, selling fake crab and other items as the real 
 
 **----- Start of picture text -----**<br>
 146 Werewolf Storytellers Handbook<br>**----- End of picture text -----**<br>
-
 
 customers each successive generation. Even though the company publicly denounces underage drinking, most ads don’t feature anyone over 22 years of age. 
 
@@ -4346,8 +4054,6 @@ What espionage story doesn’t have some variation of Deep Throat? As much as Pe
 One essential element for conspiracies is the level of detail. As Storyteller, you’re going to need to have things a little more fleshed out than you would for a more physical session; this includes tasks like constructing interesting personalities for the Storyteller characters as well as having it clear in your own head just what everyone’s plots and agendas are. Also, make sure the players keep careful records of your labyrinthine plots (the ones they discover, that is). Consider awarding an extra experience point on occasion to the player that makes good notes to share with the group. Likewise, if a lot of time must lapse between sessions, try to keep everyone up to date and in the loop on what’s going on. Email or chatrooms can be most effective to remind everyone of what’s transpired, who’s been involved and what the pack’s next plans are; they also provide a ready written record. This is a lot more convenient than trying to rehash every nitpicky detail at the beginning of each new game session. 
 
 Chapter Four: The Adversaries 
-
-_**147**_ 
 
 ## **Rumors —** 
 
@@ -4387,8 +4093,6 @@ A Pentex subsidiary hires a Kinfolk or other important friend of one of the char
 
 Werewolf Storytellers Handbook 
 
-_**148**_ 
-
 ## **After the Fall** 
 
 Unfortunately for Pentex, an unlucky First Team miscalculates. On a mission, they make enough mistakes to compromise their position and also litter the area with bodies. Perhaps a routine test of a new subsidiary product backfires, or there is some kind of information leak that allows media to make an unexpected appearance. In any case, the characters stumble on the scene of this mess before a cleaner arrives. They’ll have some time to try and work out exactly what happened, and probably gather some useful information and evidence, but eventually a cleanup team will turn up, ready to snuff out any onlookers. The werewolves will have to not only mop up the mess, but also potentially deal with _two_ squads of highly-trained soldiers (and the cleaner crew will definitely be more adept than the previous batch), to say nothing of protecting any innocent bystanders. 
@@ -4415,8 +4119,6 @@ It is very easy to write the Black Spiral Dancer tribe off as a swollen cult of 
 
 Chapter Four: The Adversaries 
 
-_**149**_ 
-
 thing to do. It is certainly easier to summon courage against an enemy when the enemy is vastly inferior. 
 
 This mindset is a grievous error in regards to the fallen tribe, and it has become a weapon that the Black Spiral Dancers exploit at every opportunity available to them. 
@@ -4431,7 +4133,6 @@ It is important to convey the horror of such a weapon when using the Black Spira
 
 **----- Start of picture text -----**<br>
 150 Werewolf Storytellers Handbook<br>**----- End of picture text -----**<br>
-
 
 mares centered on her involvement in the complete massacre of the men of a colonial New England hamlet and the unnatural violation of the girls and women of the town as she laughs and watches. It may be revealed later to the character that one of her early American ancestors fell to the corruption of the Wyrm and betrayed the Kinfolk he was sworn to protect. 
 
@@ -4452,8 +4153,6 @@ The Wyrm’s imprisonment within the Pattern Web of the Weaver has served to mot
 The Black Spiral Dancers once hid in the shadows and the dark, labyrinthine tunnels of their Hives from their Gaian cousins and from the eyes of men. In modern nights, the Tribe of the Fallen is quite literally everywhere. The stain of the Wyrm spreads like crude on lace across the Pattern Web. There is no city on the face of the planet that is without some trace of the Wyrm’s kiss. Where the Wyrm is present, so too are the Black Spiral Dancers to protect its interests. The adaptation of the tribe to the urban sprawl of man and the price it carries with it rivals that of the Bone Gnawer and Glass Walker tribes. In fact, no other organized tribe of werewolves is better suited to thrive and sustain itself within the filthy pockets of human ingenuity than the Tribe of the Fallen. While they may not be obvious and may seek to remain in the shadows of the skyscrapers and depths of the sewers, the Black Spiral Dancers crawl through the cities of men like termites through a rotten log. This being the case, it is no easy task to simply identify a Dancer among a crowd without the use of Gifts. Permeating every possible level of society as is necessary for their cause, the Black Spiral Dancers occupy a place in virtually every level of the pyramid of human society from the most re- 
 
 Chapter Four: The Adversaries 
-
-_**151**_ 
 
 spected CEO to the lowliest welfare case. This saturation of society assists the Tribe of the Fallen in their efforts to remain invisible shadow players behind the veil of human folly. While they may not directly take part in the affairs and actions of _Corporation X_ or the _Brotherhood of Z_ , they will most certainly do everything within their power to make sure that any and all obstacles that might stand in the way of _Corporation X_ or the _Brotherhood of Z_ are removed in the event that their agendas match those of the Wyrm. 
 
@@ -4477,8 +4176,6 @@ It is important that the Black Spiral Dancers make sense. The template of the gi
 
 Werewolf Storytellers Handbook 
 
-_**152**_ 
-
 Werewolf; _heroism_ . Every great champion from Beowulf to Luke Skywalker is a great champion because he bested a superior foe through his wits, courage, convictions and abilities. Make your players’ characters into heroes by making their foils worthy and fearsome adversaries. Bring out their werewolves’ rage by confronting them with an enemy that defies the rules and uses the characters’ weaknesses against them. Steer your players towards overcoming their character s’ flaws and innate weaknesses through the necessity of survival and through the courage of doing what they know in their hearts to be the righteous thing to do, regardless of their apprehension or fear and regardless of the odds against them. No other antagonist in **Werewolf** is as useful a vehicle in achieving this in a chronicle than the Black Spiral Dancers. 
 
 Use them wisely. 
@@ -4500,8 +4197,6 @@ Unity does not necessarily mean similarity where the Black Spiral Dancers are co
 Of course, it always helps to have some ammunition up your sleeves when your players ask questions like “How can the Black Spiral Dancers want to destroy Gaia?” The following examples of possible Black Spiral Dancer philosophies are presented from the in-character point of view of the Tribe of the Fallen to better assist in debates of belief that might occur between player characters and Dancer antagonists. Note that they are 
 
 Chapter Four: The Adversaries 
-
-_**153**_ 
 
 but a few of the possible approaches toward a philosophy of ultimate corruption or destruction; expand upon them, alter them, or supplant them as you see fit. 
 
@@ -4533,8 +4228,6 @@ _The Darwinism represented by the Garou Nation is virtually inconceivable to any
 
 Werewolf Storytellers Handbook 
 
-_**154**_ 
-
 _Mother cannot decide what they are; they walk a delicate line between the world of what they truly are and the world of men, careful or fearful to never fall to far to either side. They believe that this is balance. It is weakness._ 
 
 _The weakness of Gaia’s werewolves is the strength of the Black Spiral Dancers. We have been stripped of all of our confusion. We have been bled of all of our imperfection. The Wyrm has baptized us in its rage and shown us what we truly are and what must be achieved; the Wyrm must be free. Through the might of the freed Wyrm we will witness both humanity and the Garou bow down before us in the final nights of Apocalypse. This world is rightfully ours. Who are you to question what we do or do not do with it and how it is or is not done? Service to the Wyrm is reward in and of itself and this world, every bit of it that surrounds you, every bit of air that you breathe, every bit of bathwater you throw out of your window, every drop of grease that drips down your fat ape face as you chew what you’ve raised for slaughter belongs to us. Enjoy it while you can._ 
@@ -4552,8 +4245,6 @@ DNA is a dark weft in the Weaver’s web. They’re perhaps the worst kind of en
 Why use DNA at all? There are plenty of reasons. First of all is the moral ambiguity. Most of the scientists that work for the institute are terribly callous as far as the rights of werewolves go, but their motives are generally 
 
 Chapter Four: The Adversaries 
-
-_**155**_ 
 
 much nobler than the outright profiteering of Pentex or the cruelty of Banes. If you’re interested in promoting a few moral dilemmas for your players — and who isn’t? — DNA may prove fertile soil for such story seeds. 
 
@@ -4588,8 +4279,6 @@ The following movies and television shows should provide plenty of inspiration f
 _Gattaca_ ; _Wild Palms_ ; _The Matrix_ ; _Coma_ ; _Jurassic Park_ (note that the book comes across as less sensationalist and has more scientific double-talk for you to pirate); _Extreme Measures_ ; _Freejack_ (well, sort of). 
 
 Werewolf Storytellers Handbook 
-
-_**156**_ 
 
 across the United States and Canada. Though Kenchlow eventually departed, on good terms at first, the company continued to thrive and do meritorious work. 
 
@@ -4632,8 +4321,6 @@ The Delirium causes great difficulty in studying GLS victims. To forestall this 
 Even though DNA hopes to cure and eliminate GLS in the near future, they’ve also got a contingency plan called Project Reaper. If too many humans and wolves become infected, the company will release a carefully designed virus that will presumably kill any being that carries the genetic code for GLS. The effect 
 
 Chapter Four: The Adversaries 
-
-_**157**_ 
 
 would of course be catastrophic for the Garou nation, as it would destroy werewolves and Kinfolk alike. 
 
@@ -4684,8 +4371,6 @@ All DNA labs have four key divisions: Management and Finance (MF), Research and 
 What does a typical DNA lab look like? It’s actually going to seem pretty innocuous, a multi-storied building in some ubiquitous office park. In reality, though, it’s a different picture. First of all, security will be top notch, both inside and out. Invaders will see the obvious mounted cameras; chances are they’ll miss the ones carefully hidden inside walls and fixtures. Most administrative and low-contamination labs are above ground, with the real work taking place in extremely secure bunkers underground. Armed security guards patrol the grounds and building at all times, and emergency stashes of silver bullets and Methyldelerian are behind glass access panels in several locations on every floor. Would-be attackers will face a tough battle getting into any of these facilities. 
 
 Werewolf Storytellers Handbook 
-
-_**158**_ 
 
 Another characteristic of the labs is their state-ofthe-art networked computers. Scientists share findings and also socialize occasionally with their comrades in other labs. Still, encoding is required for everything, and ignorance isn’t tolerated as an excuse for a security breach. 
 
@@ -4741,8 +4426,6 @@ In recent years, Sendlar and his staff have become more convinced than ever that
 
 Chapter Four: The Adversaries 
 
-_**159**_ 
-
 ## **Unusual Aptitudes** 
 
 In various roles, such as educational anthropologists and school psychologists, DNA has placed skilled social scientists in schools around the country. They’ve concentrated in particular on areas where GLS seems to be concentrated. The social scientists are on the lookout for classic misfits — preteens and teens who don’t seem to fit in or exhibit antisocial tendencies. They’re also watching out for any kids that seem to have unusual abilities, such as possibly enhanced levels of strength and dexterity. The scientists will make observations and interview the students. If warranted, they’ll consult with the parents and encourage further testing. By these methods, DNA hopes to bring in more potential GLS victims for study, believing the disease, like cancer, may spread more quickly in a young person’s body. 
@@ -4779,8 +4462,6 @@ DNA really hits the jackpot; they manage to bring in both a Kinfolk and his Garo
 
 Werewolf Storytellers Handbook 
 
-_**160**_ 
-
 comparison study of their genetic makeup. If the Kinfolk is unknowing, he may be a willing patient; such action would not stand him in great favor with any rescuers, of course, though the Kin is innocent of any intentional betrayal. Even if he is in the know, and unwilling to help DNA, he’s still going to be a lesser priority to the werewolves than his sister, a fact he may not be happy about. This seed should raise a couple of moral dilemmas for the werewolf characters revolving around the treatment and value of Kinfolk. 
 
 ## **Bait and Catch** 
@@ -4795,13 +4476,10 @@ This scenario sort of reverses the “New Neighbors” story seed. Here, the DNA
 
 Chapter Four: The Adversaries 
 
-_**161**_ 
-
 **==> picture [537 x 737] intentionally omitted <==**
 
 **----- Start of picture text -----**<br>
 162 Werewolf Storytellers Handbook<br>**----- End of picture text -----**<br>
-
 
 _In the middle of the journey of our life I came to myself within a dark wood where the straight way was lost._ — Dante Alighieri, _The Divine Comedy_ 
 
@@ -4822,8 +4500,6 @@ One of the most important things to remember is that you should convey to the pl
 Perhaps you like historical settings, but you don’t feel like doing hours of research in a library. Maybe you 
 
 Chapter Five: Breaking the Mold 
-
-_**163**_ 
 
 like myths and fiction and you want to base your version of the past on a favorite movie. There’s nothing wrong with that, just make sure that the players know ahead of time that you’re playing more loosely. That way no one will get distracted by pointing out that Cleopatra couldn’t have visited the Coliseum since it hadn’t been built. 
 
@@ -4861,8 +4537,6 @@ In many ways, this is the darkest time in Garou history. The imprisoned Wyrm beg
 
 Werewolf Storytellers Handbook 
 
-_**164**_ 
-
 rises up in anger against humanity, bringing the Great Flood, volcanic eruptions, and many other disasters. 
 
 Werewolf characters, especially homids, will have many moral dilemmas to face in an Impergium chronicle. How do they deal with packs that selectively enforce the Impergium? What do they do when other werewolves go too far, driving humans to summon dark powers? Can they bring themselves to slay their own Kinfolk if necessary? Are the signs of Gaia’s displeasure evident? For troupes that enjoy moral issues and troupes that like continuous conflict, the Impergium has plenty to offer. 
@@ -4887,8 +4561,6 @@ The War of Rage makes a good backdrop to any chronicle involving ancient Garou. 
 
 Chapter Five: Breaking the Mold 
 
-_**165**_ 
-
 ## _Historical Times_ 
 
 Werewolves have witnessed important events and even had some influence on history, but primarily, they have concerned themselves with events on the periphery of civilization, in the shadows of history. This means that almost all major historical events in the World of Darkness have generally happened, as in the real world, without the assistance of werewolves. 
@@ -4904,8 +4576,6 @@ About 10,000 years ago, the Bering Strait was a land bridge connecting Asia with
 When these people arrived in North America, they didn’t find a land filled with milk and honey. An untamed wilderness filled with Ice Age mon- 
 
 Werewolf Storytellers Handbook 
-
-_**166**_ 
 
 sters loomed before them. Tidal waves hit the Pacific Northwest. Miles of ice covered much of the North. Dire wolves and saber-toothed tigers hunted Columbian mammoths and humans. Animal spirits that had never dealt with Garou saw these newcomers as a threat. 
 
@@ -4937,8 +4607,6 @@ After a set of terrible kings, the Romans established the Republic. The Senate m
 
 Chapter Five: Breaking the Mold 
 
-_**167**_ 
-
 once stood, Roman legions conquered Greece and expanded into the East. Leeches with great political skills manipulated their way into positions of power, but they never held the influence over the Republic that they had in Carthage. Chariot racing and gladiatorial games were part of daily life, but not at the level of extravagance present during the Empire. 
 
 The Roman Republic held a number of strong values, focused on hard work and the rights of all citizens. There was, however a distinct difference between the patricians, who were descendants of the first families from the time of kings, and the plebeians who came from families of the conquered. This class difference was the cause of many conflicts and riots in the city. As Rome expanded, slaves taken from distant lands entered society. People in the outlying provinces were not given the rights of citizens of Rome unless they did something to earn them. Over time, the Roman concept of the hard working citizen-statesman-farmer ceased to exist. 
@@ -4961,8 +4629,6 @@ The Roman Empire is fertile ground for Storytellers. It was a city founded by a 
 
 Werewolf Storytellers Handbook 
 
-_**168**_ 
-
 corruption. Although a political chronicle isn’t necessarily adhering to the themes of **Werewolf** , Roman politics could drive antagonists to consider any sort of unholy grab for power. These are only some of the ideas that come from the Roman Empire. The fall of Rome became the beginning of the Dark Ages, but many of the ideas and stories of the late Empire carried on in Constantinople. 
 
 ## _Medieval World_ 
@@ -4976,8 +4642,6 @@ The rise of the Catholic Inquisition heralded a difficult time for Europe. The I
 Although the Inquisition’s tactics were horrifying, they produced results. Some of the people that were caught were actual heretics and infernalists. Many vampires fled for their lives, as the Inquisition killed their pawns while seeking out the Leeches. The werewolves of the time didn’t suffer as badly, of course; there were few inquisitors who could survive enraging a werewolf, much less do anything about the wrath of an entire pack or caern. But the Garou couldn’t be everywhere at once, and isolated Kinfolk were at a great deal of risk. A story set among these events might make a good social challenge rather than a physical one; what if a fervent churchman incites a 
 
 Chapter Five: Breaking the Mold 
-
-_**169**_ 
 
 whole village against a Kin family? Is the pack willing to slaughter the town to save their loved ones? And if they do, what sort of things will come to investigate such an overt display of supernatural violence? 
 
@@ -5015,8 +4679,6 @@ As time passed, intellectuals began to question nobility and the rights of the i
 
 Werewolf Storytellers Handbook 
 
-_**170**_ 
-
 nobility. Ultimately, events led to executions of the nobility and a reign of terror in the streets of Paris. While the triumph of reason had lasting effects in the hearts and minds of Europeans, Napoleon would seize the reigns of power and bring order to the chaos for a time. 
 
 Napoleon’s conquests transformed Europe, forging alliances between old enemies and redrawing political boundaries. His ultimate defeat left Great Britain as the most powerful of the European nations. The stage was set for the dominance of the British Empire. 
@@ -5039,7 +4701,6 @@ Amidst this chaos, the Wendigo and the Uktena fought to protect their remaining 
 
 **----- Start of picture text -----**<br>
 Chapter Five: Breaking the Mold 171<br>**----- End of picture text -----**<br>
-
 
 encroachment of European settlers and other werewolves. All the while they needed help to stop the Storm Eater, which was powerful enough to remold the entire Penumbra of the American West into a storm of its own creation. The desire to stop the Storm Eater won out in the end. 
 
@@ -5077,8 +4738,6 @@ The end of World War I brought an economic boom to the United States. Women gain
 
 Werewolf Storytellers Handbook 
 
-_**172**_ 
-
 Prohibition prevented legal alcohol from getting into the hands of the rich and powerful, and consequently, organized crime decided to help out. The rich lived a lifestyle of extravagance with few boundaries. The ’20s make a fun time period for a troupe that enjoys gangster movies. Federal agents and mob bosses fought a not-sosecret war to keep the drinks flowing. When thugs with Tommy guns performed mob hits, it was one thing, but get a few werewolves involved and then you’d see something. In particular, Glass Walkers and Bone Gnawers would have a lot of fun. Such a chronicle is probably a little more pulp-action than the usual savage horror of **Werewolf** , but that’s not necessarily a bad thing — playing a strong-jawed, corn-fed, all-American Get of Fenris fighting Wyrm-cults with his two good fists can be a delightful change of pace. The **Adventure!** game, while not fully compatible with **Werewolf** mechanics, contains more setting material on this time period and the next decade than you could ask for. 
 
 ## _The Last Days of the Bunyip_ 
@@ -5099,7 +4758,6 @@ It’s hard to understand today what World War II was like, although watching th
 
 **----- Start of picture text -----**<br>
 Chapter Five: Breaking the Mold 173<br>**----- End of picture text -----**<br>
-
 
 for a chronicle set in the war. Hitler isolated England and rained terror and death down upon its citizens. Fascist governments ruled Europe with an iron fist. Stalin ground the bodies of Russian soldiers under the wheels of the German blitzkrieg in the hopes of slowing it down. These madmen took mass slaughter and raised it up a notch to genocide. May no one ever have to experience anything like the concentration camps again. Africa was in flames as the Axis fought the Allies. Japan ran over the rest of Asia. The United States remained caught up in isolationism until a Japanese sneak attack on Pearl Harbor destroyed the entire Pacific fleet. No one knew how the war would end, and the Axis could have won. 
 
@@ -5127,8 +4785,6 @@ Werewolves are obsessed with the Apocalypse. The fanatics among them believe tha
 
 Werewolf Storytellers Handbook 
 
-_**174**_ 
-
 hostile world. Young werewolves could be seeking redemption for all of Garou society, constantly trying to make up for their ancestors’ failure to prevent the Apocalypse. Perhaps the Stargazers are correct, and the Apocalypse is just another stage in an eternal cycle. 
 
 Changing the setting from the standard World of Darkness presents the Storyteller with both opportunities and challenges. You now have the chance to truly personalize your world — it can be whatever you want it to be. You can change the rules without worrying about a player complaining “but it says on page 68 that it will work if I roll 4 successes!” Changing the setting, especially if the group is made up of veteran **Werewolf** players, can help encourage roleplaying and give a new perspective on Garou society. It keeps the players on their toes and gives them new areas to explore. That does lead, however, to the challenges. Not all players are willing to let you pry the rulebooks from their protesting fingers. Some players may feel confused or uncomfortable. A good idea for any game, but especially one where you plan to tweak the rules, is to warn your players ahead of time that not all will be as they expect. 
@@ -5154,8 +4810,6 @@ Not everyone who survives is a whacked-out paranoid psycho. More pacifistic surv
 Naturally, in such an environment, the spirit world will have suffered just as much as the physical world, if not more so. The background radiation strengthens the Gauntlet, cutting the Garou off from the Umbra except at the most powerful caerns. More Blights form in the Penumbra, making it far easier for Banes to enter the physical world. Hellholes form on earth where Nexus Crawlers lure wanderers desperate for any sign of hope. Damaged spirits of Gaia rampage through the Penumbra seeking self-destruction after witnessing the horror 
 
 Chapter Five: Breaking the Mold 
-
-_**175**_ 
 
 of nuclear war. Many of them lash out at anything in their final dying agonies. Tragically, the werewolves have to fight and slay spirits that were once their allies, but now are too far gone to save. 
 
@@ -5189,8 +4843,6 @@ In the eyes of the Garou, the world has become a lifeless place. Colors have fad
 
 Werewolf Storytellers Handbook 
 
-_**176**_ 
-
 The air has become thick and stale, an oppressive weight in the lungs with every breath. Lakes no longer sparkle in the sunlight, but instead lie stagnant under an overcast sky. The werewolves still remember the way the world used to look, and mourn the loss of the spirit world. Even some Garou have begun to forget. Most of the Glass Walkers have succumbed to this gray deadening. 
 
 As long as there are some that remember, Gaia has not completely lost Her defenders. The characters should be among those that remember, and are trying to restore the world’s connection to the spirit. A chronicle set in the spiritless post-Apocalypse can become a story of inspiration and rebirth. As the characters search for ways to regain Gnosis and reawaken the spirit, they may inspire others and help them reconnect as well. Although this is an extremely dark and depressing setting, a theme of hope and renewal would help to balance the tone. 
@@ -5212,8 +4864,6 @@ Chapter Five: Breaking the Mold
 **==> picture [21 x 9] intentionally omitted <==**
 
 **----- Start of picture text -----**<br>
-177<br>**----- End of picture text -----**<br>
-
 
 might be finally forced to recognize that no one tribe can bring Gaia back into balance alone. The Wyld is an indiscriminate killer, and shows no mercy to animals or humans. This gives you a chance to put members of all the tribes together peacefully, united for a common purpose. A variant of this setting would allow you to have your player characters be tribeless, perhaps Gaia’s plan to recreate the One Tribe. 
 
@@ -5246,8 +4896,6 @@ And if the Wyrm was actually _destroyed_ — not healed, but wiped from the univ
 The Eye of the Wyrm is fully open; the time has come for the Final Battle. Werewolves must try to summon the spirits of their ancestors and gird themselves for war. 
 
 Werewolf Storytellers Handbook 
-
-_**178**_ 
 
 Nothing must be held back, because the Wyrm’s agents are coming in force. This chronicle takes place in the last of the Final Days. The final signs come to pass on Earth and in the Umbra signaling the end of the world. 
 
@@ -5285,8 +4933,6 @@ In the distant future, scientists have created the perfect soldiers. Mixing unst
 
 Chapter Five: Breaking the Mold 
 
-_**179**_ 
-
 humans, werewolf warriors now wage war upon their country’s enemies. Cybernetic implants and combat drugs help them reach a state where they become nearly unstoppable killing machines. Science celebrates werewolves as the ultimate triumph of technology and nature. They inspire fear in their enemies, regenerate from nearly any wound, and depend on scientific treatments to ensure their loyalty and keep them breathing. 
 
 In a dark cyber future, werewolves serve as a special police force and elite soldiers. They receive orders from “The Man” with ruthless efficiency. Their forms are as much meant to engender fear as to serve practical purposes. Alternatives to werewolves exist, in the forms of slayer androids and other genetically enhanced cyborgs, but none of them inspires the visceral terror of the werewolf. 
@@ -5307,7 +4953,6 @@ In this variant of the Garou-as-engineered-soldiers, Gaia and the Umbra do exist
 
 **----- Start of picture text -----**<br>
 180 Werewolf Storytellers Handbook<br>**----- End of picture text -----**<br>
-
 
 them back? How do their employers deal with spirit magic and real magical Gifts? As the werewolves rediscover the past, they may gain weaknesses to silver, but they also regain Gifts and fetishes. Also, no one said that the Wyrm and its lovely servants ever went away. 
 
@@ -5345,8 +4990,6 @@ This setting revolves around finding a cure. Gifts and tribes don’t exist in t
 
 Chapter Five: Breaking the Mold 
 
-_**181**_ 
-
 sible. The Umbra also doesn’t exist. No one gets to step sideways. The new werewolves will have to struggle to balance using their newfound abilities with finding a way to cure themselves. Of course, a cure has its price as well. It would be tragic if someone found a cure, only to discover that the bad guys were still out to get him. A cured character might have to seek out an infected friend to re-infect her so she can protect her loved ones or put a final end to this plague. 
 
 ## _The Eternal Pack_ 
@@ -5372,8 +5015,6 @@ In this type of setting, the characters are part of a Silver Pack or have some o
 Metis don’t really exist. Everyone’s technically a metis, but breeding works fine and there’s no trace of deformities. Anyone may take Gifts from either the homid or lupus list. Of course, children could occasionally be born as metis. People would consider them handicapped and give them special care and sympathy. In other words, they’d grow up angry and bitter as 
 
 Werewolf Storytellers Handbook 
-
-_**182**_ 
 
 usual. As a story idea, maybe true metis start to be born in greater and greater numbers. Something may be going wrong in the hospital. 
 
@@ -5411,8 +5052,6 @@ Invasions can come from any direction. They don’t have to be from space. Alien
 
 Chapter Five: Breaking the Mold 
 
-_**183**_ 
-
 invaders could be evil counterparts of the Garou. Characters would have to clear their names and stop the invasion. Letting a player in on this sort of thing and having her play her villainous counterpart can really throw a troupe’s paranoia into overdrive. If you do this, give everyone a chance to play a bad guy at various points if you can. That way the troupe doesn’t shun one person out of paranoia, and everyone in the troupe has to be a bit nervous. 
 
 For another change of pace, aliens could capture the pack and take them out into space. The pack could break free and escape, but would then have to find their way home. Not the easiest of tasks, but certainly an unexpected challenge for a werewolf game. 
@@ -5430,8 +5069,6 @@ Caerns exist outside of the closed cities, but packs must risk their lives to fr
 The Get of Fenris want to attack and destroy the world government. As long as the world suffers in the chains of total control, the Weaver’s web tightens. The Fenrir believe that war is the only option. The Black Furies, Shadow Lords and Fianna agree with the Fenrir. The Bone Gnawers and the Children of Gaia believe that working to slowly foster seeds of dissent will ultimately destroy the state, but patience is the only answer. The Red Talons just want the humans to stay locked in their cities and out of the wilds. If humans suffer as a result, so be it. 
 
 Werewolf Storytellers Handbook 
-
-_**184**_ 
 
 George Orwell’s _1984_ and Aldous Huxley’s _Brave New World_ are required reading for this type of world. This setting allows players to explore philosophical and political questions. Where do the rights of individuals fall against the needs of the state? Is a life without freedoms worth living? If the state has trained its agents from birth to serve its needs, is it right to blame them for their actions? Of course, some players won’t care. They’ll be enjoying themselves too much trying to tear down the world government. 
 
@@ -5459,8 +5096,6 @@ You can change the breeds. What if the metis didn’t have deformities? Make the
 
 Chapter Five: Breaking the Mold 
 
-_**185**_ 
-
 don’t need the others” could well be their attitude. Even if it’s not, would the other breeds oppress them out of the fear that they might take over? How would Gaia’s spirits react to them? 
 
 Take abilities away from werewolves. Garou that regenerated at half the normal rate would live in a much deadlier world. Werewolves may have lost the ability to shift into Glabro or Hispo in the distant past. Werewolves who could only change under the light of the moon would have a real problem during the day. Wolfsbane could actually repel wolves, and belladonna might prevent a werewolf from changing forms. Of course, enough belladonna might just kill them. 
@@ -5480,8 +5115,6 @@ As Storyteller, you could increase the power level of all werewolves. Detect Wyr
 **==> picture [20 x 10] intentionally omitted <==**
 
 **----- Start of picture text -----**<br>
-186<br>**----- End of picture text -----**<br>
-
 
 Werewolf Storytellers Handbook 
 
@@ -5533,8 +5166,6 @@ As the name of the game suggests, **Werewolf** is about werewolves. However, oth
 
 Chapter Five: Breaking the Mold 
 
-_**187**_ 
-
 exist in the World of Darkness, and it would be somewhat hypocritical to publish books about them and then not expect people to want to play them. This section is meant to show the Storytellers how to integrate the Changing Breeds into **Werewolf** games, either as plot hooks or as player characters. 
 
 ## _Fera as Storyteller Characters_ 
@@ -5577,8 +5208,6 @@ The Fera are introduced in the **Werewolf Players Guide** and detailed in their 
 
 Werewolf Storytellers Handbook 
 
-_**188**_ 
-
 If the pack asks the elders of their sept for advice about the Fera, they are likely to hear horror stories. See this book’s **Legends of the Garou** for the sort of thing elder Garou are likely to say about even the gentle Gurahl. Stories of the Mokolé should focus on huge, slavering dragon-like monsters, not the fact that the werealligators are not meant to be Gaia’s warriors, but Her memory. A tale about the Ratkin might feature a brave Garou who faces the hordes of wererats to save his Kinfolk from disease. Remember, too, that many of these legends are oral history, meaning that while they’ve changed with time, they also are not entirely false. 
 
 ## _Fera as Allies_ 
@@ -5611,8 +5240,6 @@ When using the Fera as Storyteller characters, whether friend or foe, some dange
 
 Chapter Five: Breaking the Mold 
 
-_**189**_ 
-
 • **“Monster of the Week” Syndrome:** During the last story, the characters ran afoul of an angry werebear, recently awakened from hibernation. During this story, the pack finds a newly-Changed Bastet, and must decide what to do with her. Perhaps next story, they will all realize that a raven watches them wherever they go…. 
 
 Each of the Fera is special and creates its own unique mood. Using one shapeshifter after another cheapens this, and creates the illusion that the world is overpopulated with were-creatures. Of course, if the theme of the chronicle revolves around the various Fera, as shown in the examples in Chapter Three, more frequent meetings with the Fera become part of the mood. Unless this is a major theme of the chronicle, however, beware of bringing in more than one Fera. 
@@ -5642,8 +5269,6 @@ Despite what some Garou have been taught, there is no one tribe that relates wel
 Some Fera — Garou, Rokea, and Ratkin, for example — travel in groups, complete with totems. The rest are solitary beasts. Besides the obvious difficulty this presents for the loner Fera who must fight instinct to adventure with a pack of Garou, there are other issues as well. 
 
 Werewolf Storytellers Handbook 
-
-_**190**_ 
 
 One of the main problems this causes is that it tends to make gathering Renown difficult. The pack may praise the Fera at Garou moots, but Renown granted by the Garou is recognized minimally or not at all by the Fera’s own kind. Worse yet, some breeds may actually lose Renown by associating too closely with the werewolves (notably the Mokolé and the Bastet). While Breeds such as Ananasi and Corax can report to their kind fairly easily and thus gain Renown, the often-bloody exploits of the Garou may not garner them the Renown they need to rise in rank (of course, it’s all in how one tells the story). 
 
@@ -5677,8 +5302,6 @@ The answer is generally no — two different shapeshifters can produce offspring
 
 Chapter Five: Breaking the Mold 
 
-_**191**_ 
-
 Shapeshifter status is not solely genetic in nature; in fact, genetics take a back seat to the spirit part of the equation. Each werebeast is half mortal, half spirit; whether the spirit half comes from heritage, a Fetish Egg or the Birthing Plague is irrelevant. The spirit nature of a shapeshifter is unquestionable — and not easily diluted. 
 
 Generally speaking, if two shapeshifters of different Breeds conceive a child, the child has a 5 percent chance to be a shapeshifter of the father’s kind, a 5 percent chance to be a shapeshifter of the mother’s kind, and an 90 percent chance to be a normal Kin to either. If the mother is animal-born (a lupus, feline, etc.), however, any children will be normal Kin to her Changing Breed or shapeshifters like herself — a lupus cannot give birth to a Khan or to tiger cubs, or even to wolves that are Khan Kinfolk. She may only give birth to wolf cubs, and there’s a 5% chance at best that one of them will be Garou. The reduced chance for truebred children is one of the reasons that the various shapeshifter races consider cross-Breed matings dishonorable at best, insulting at worst. The werewolf who takes a Fera for a mate instead of a Garou Kin may not be betraying his race, but he’s certainly ignoring an important duty. Blood feuds have broken out over less. 
@@ -5706,8 +5329,6 @@ A player who is absolutely in love with a given Changing Breed, however, will at
 The werecats (the Simba especially) never got on well with the Ajaba, and in 1984, the Simba lord Black Tooth led an assault on the Hyena King’s home near Mount Kilimanjaro and slaughtered all present. Only a handful of survivors lived to preserve the line. Now, years later, as Black Tooth’s corpse becomes fodder for worms, the Ajaba feel a sense of hope. 
 
 Werewolf Storytellers Handbook 
-
-_**192**_ 
 
 **Themes:** The werewolves may not have much left, but the Ajaba have _nothing_ . They hate the Bastet with a passion that is truly frightening, and their Rage is, for the most part, righteous. However, since the slaughter at the Hyena King’s court, some have searched for — and found — allies in strange places. Some Ajaba packs include Black Spiral Dancers, and a large number of werehyenas have given themselves over to the Wyrm in exchange for some protection. Their themes, therefore, include Rage, revenge, redemption, and corruption. 
 
@@ -5753,8 +5374,6 @@ Designed to be Gaia’s memory, the Mokolé are the oldest of the Changing Breed
 
 Chapter Five: Breaking the Mold 
 
-_**193**_ 
-
 events from centuries past; some can remember the time of the great Dinosaur Kings. What all remember vividly, however, are the days when the Garou would smash their eggs and murder their hatchlings. The Mokolé do not forget, and rarely forgive. 
 
 While relations have improved between the Dragon Folk and the werewolves in some places, most Mokolé still think of Garou as “egg smashers”, and most Garou still think of Mokolé as Wyrmcreatures. 
@@ -5780,8 +5399,6 @@ Like the Corax, the Nuwisha have some hope for the Garou. Unlike their winged br
 The wererats look ahead the Apocalypse and crave the chaos it brings. Many of the rats are mad with Rage, others are simply mad. They have no 
 
 Werewolf Storytellers Handbook 
-
-_**194**_ 
 
 love and no trust for the Garou — the werewolves hunted them down and slaughtered them for doing their Gaia-given task. Now, rats flourish everywhere, while growing numbers of humans force wolves to extinction. The irony is not lost on the Ratkin. The Ratkin are also wholly devoted the Wyld, and while humans built their cities up to protect them from the chaos of the world, the rats (and the wererats) are always there, ready to show the humans that chaos isn’t so far from home at all. 
 
@@ -5817,8 +5434,6 @@ Other supernatural creatures are of course immune to the Delirium; their nature 
 
 Chapter Five: Breaking the Mold 
 
-_**195**_ 
-
 ## _Relative Power Levels_ 
 
 Sometimes creatures will use powers that contradict each other; a werewolf will use a Gift to detect his enemies, while a vampire uses a Discipline to remain hidden. Although it may be tempting to compare the relative power levels of the two powers in question and rule “higher level wins,” this can be often misleading. For example, a thin-blooded young Leech who sank all his freebie points into gaining five dots in a Discipline would therefore be able to overcome the mighty Rank Four Garou who has been fighting vampires — and winning — for over a decade. Generally it’s fairer to rule that the higher level power has a chance at overcoming the lower-level one, and assign a resisted roll. Feel free to adjust the difficulty for the two participants if you feel the power levels of the two clashing powers don’t accurately represent the skills of the two contestants. It’s your chronicle. 
@@ -5834,8 +5449,6 @@ It’s rare that a **Vampire** / **Werewolf** crossover turns anything but viole
 Vampires are considered innately Wyrm-tainted; the power that animates them is spiritually akin to that of the Wyrm. If the Leech in question has a Humanity score of 7 or more, the taint is not detectable to Sense Wyrm; 
 
 Werewolf Storytellers Handbook 
-
-_**196**_ 
 
 Werewolves are allergic to vampiric vitae, and are more difficult to ghoul or blood bond. Only a few can ingest the stuff without violently vomiting it back up. If you like, you may call for a Gnosis roll, difficulty 3, the first time a werewolf tastes vampire blood. If the roll succeeds, the Garou in question is among those allergic to the stuff; if it fails or botches, the werewolf has a tolerance for vitae. 
 
@@ -5879,8 +5492,6 @@ Garou receive one final chance to escape the living death; upon the Embrace, the
 
 Chapter Five: Breaking the Mold 
 
-_**197**_ 
-
 and cannot hope ever to see his Tribal Homeland. No Discipline, Gift, magic or any other sort of power short of direct intervention by a Celestine can affect this roll, save one — the werewolf can spend a Willpower point to gain an automatic success as usual (and is almost certain to do so). 
 
 A newly Embraced Abomination takes on the clan of his sire, learns three dots of clan Disciplines and gains the clan weakness as does any other neonate. He may spend blood points to increase his Attributes or heal himself like any other vampire. 
@@ -5908,8 +5519,6 @@ There is only one way to prevent this degeneration — the Abomination can fully
 Other Changing Breeds are, if anything, even less suited to vampiric life. A Bastet, for example, begins losing permanent Gnosis, one per moon upon the Embrace and can never recover her loss. Eventually, the undead cat is cut off from the spirit world entirely, unable to do so much as activate Gifts. Nuwisha, by comparison, cannot undergo the Embrace — indi- 
 
 Werewolf Storytellers Handbook 
-
-_**198**_ 
 
 ## _Hierarchy of Wyrm Taint_ 
 
@@ -5963,8 +5572,6 @@ Magi may use countermagic to defend themselves against Gifts or fetish powers th
 
 Chapter Five: Breaking the Mold 
 
-_**199**_ 
-
 You may choose to allow a mage to use countermagic against Gifts that aren’t targeted directly at her, so long as she has sufficient knowledge of Spirit or other Spheres to do so. The difficulty to use countermagic against a rite is always 8; the rite is empowered not by the werewolf ritemaster, but by the spirits he invokes. 
 
 A few Garou Gifts can be used as countermagic against a mage’s effects; for instance, Exorcism may be used to counter Spirit magic. Such efforts are entirely at the Storyteller’s discretion, and are not as effective as a mage’s countermagic would be; the werewolf removes one of the mage’s successes for every _two_ successes he scores on his “countermagic” roll. 
@@ -6002,8 +5609,6 @@ On the flip side, werewolves are not wraiths and are not treated as such, even w
 Some Arcanoi that work on mortals have no effect on werewolves; others function normally. The main differences are listed below. 
 
 Werewolf Storytellers Handbook 
-
-_**200**_ 
 
 • If the Storyteller is using the optional rule that werewolves gain Shadows in the Dark Umbra, **Castigate** powers may be used on these Shadows, though at +1 difficulty. 
 
@@ -6044,8 +5649,6 @@ The worst fight of all, of course, comes from the tiny seed of Wyrm-taint that l
 The stereotype presumes that the Fianna have the most truck with changelings, and that other tribes couldn’t care less. However, a **Changeling** crossover can easily defy this stereotype. A Silent Strider could strike up a friendship with an equally nomadic eshu; a sidhe delegation might demand to strike bargains with the Garou’s own nobility, meaning the Silver Fangs; Bone Gnawers might make the acquaintances of the goblins of the inner city, and so on. Although Garou have little interest in the changelings’ conflicts, and the fae would 
 
 Chapter Five: Breaking the Mold 
-
-_**201**_ 
 
 likely avoid being drawn into the werewolves’ war, this actually works out for the best. A crossover chronicle could be a wonderful dance of diplomacy and truces, with each side trying to enlist the other’s aid without committing to too much in return. After all, deals with the fae are legendary for their risk — and only a fool approaches negotiation with ravening werebeasts without being at least a little nervous. 
 
@@ -6099,19 +5702,15 @@ For obvious reasons, werewolves cannot be Imbued. Ever. However, neither can Kin
 
 Chapter Five: Breaking the Mold 
 
-_**203**_ 
-
 **==> picture [536 x 734] intentionally omitted <==**
 
 **----- Start of picture text -----**<br>
 204 Werewolf Storytellers Handbook<br>**----- End of picture text -----**<br>
 
-
 **==> picture [487 x 307] intentionally omitted <==**
 
 **----- Start of picture text -----**<br>
 Chapter Six:<br>Odds and Ends<br>**----- End of picture text -----**<br>
-
 
 ## _Kami: Gaia Made Manifest_ 
 
@@ -6128,8 +5727,6 @@ _The appearance of the Gauntlet made it difficult for Gaia to infuse Her spirit 
 The creatures known as Kami occupy a unique place in the universe. Some Garou describe them to cubs as “Gaia’s fomori,” an imperfect way of describing the unique blend of spirit and material existence. Like fomori, most Kami exist as spirits embodied in physical hosts, fusing together the material and immaterial world. Unlike the fomori, however, in which the melding of Bane and flesh (or matter) results in the corruption and eventual degeneration of the physical 
 
 Chapter Six: Odds and Ends 
-
-_**205**_ 
 
 host, Kami form a seamless union between the physical and the spiritual, one that works for the express purpose of manifesting Gaia’s love for Her creation. 
 
@@ -6165,8 +5762,6 @@ Like Gaia’s other children, Kami possess Gnosis. Some, but not all, Kami posse
 
 Werewolf Storytellers Handbook 
 
-_**206**_ 
-
 the potential for frenzy, just as Garou do, though the reasons for the frenzy may differ according to the nature of the individual Kami. Health levels depend on the size of the Kami. Kami with animal, small plant or human hosts have as many Health Levels as normal examples of those types would have. Large Kami, such as those inhabiting trees, boulders, or rivers have more health levels and are more difficult to destroy. Animate lands may prove almost impossible to destroy except through extraordinary measures such as chemical exposure, toxic waste, radiation or wildfires. 
 
 Some Kami may also possess a geas in the form of a prohibition, such as a ban on speaking above a whisper or the inability to wear clothing of a particular color or material (for Kami with human hosts). Violation of this geas may result in consequences that range in degree from serious to fatal, depending on the nature of the transgression. 
@@ -6193,8 +5788,6 @@ Since Kami are intended primarily as Storyteller characters rather than as playe
 
 Chapter Six: Odds and Ends 
 
-_**207**_ 
-
 storing up food and the weather takes on the aspects of autumn. Sudden changes, such as causing the leaves to fall at once from all the trees in the designated area, cost the Kami one Gnosis point to effect, but gradual changes carry no cost. Kami with this power become aware of individuals who have passed the prime of life and are nearing late maturity. 
 
 • **Child of the Elements (Cost: 1 Gnosis)** — Kami with this power may summon elementals of the type most suited to them. For example, a Child of Earth may summon an earth elemental, while a Child of Fire can call a fire elemental to its service. In order to do this, the Kami must roll Manipulation + Expression (difficulty 7). Each success allows the Kami to summon one elemental, although the Kami may only control as many elementals as its rating in Wits. Most Kami possessing this power can summon only one type of elemental, but Kami whose hosts combine elements may summon elemental of either sort. Thus, a Child of Steam may summon either fire or water elementals, while a Child of Mud may summon elementals of water or earth. Often, Kami children of the elements possess other powers appropriate to their element. 
@@ -6218,8 +5811,6 @@ storing up food and the weather takes on the aspects of autumn. Sudden changes, 
 • **Lord of the Land** — A Kami with this power remains constantly aware of everything that takes place within its territory. The most common Kami to possess this power include plant or tree Kami, moun- 
 
 Werewolf Storytellers Handbook 
-
-_**208**_ 
 
 tain or river Kami or animate lands. Kami may use this power at no cost. 
 
@@ -6255,8 +5846,6 @@ relation to the number of plants affected and the potential for causing damage. 
 
 Chapter Six: Odds and Ends 
 
-_**209**_ 
-
 **==> picture [534 x 376] intentionally omitted <==**
 
 nant individuals or creatures that have not yet reached their true potential. 
@@ -6274,8 +5863,6 @@ nant individuals or creatures that have not yet reached their true potential.
 • **Umbral Passage** — The Kami rolls Gnosis and uses this power to cross the Gauntlet in a fashion similar to the Garou ability to step sideways. Plant or animal hosts leave their physical forms in the material world and assume spirit forms in the Umbra. While occasionally, plant or animal Kami take spirit forms that mirror their earthly hosts, most often they assume human or some other form capable of movement when they travel to the Umbra. 
 
 Werewolf Storytellers Handbook 
-
-_**210**_ 
 
 • **Universal Tongue** — Kami with this power can speak the language of and communicate with all living creatures. 
 
@@ -6321,8 +5908,6 @@ The following sample characters provide Storytellers with examples of several di
 
 Chapter Six: Odds and Ends 
 
-_**211**_ 
-
 chronicles. These examples can also serve as guidelines for creating Kami characters in general. As a rule of thumb, Storytellers should begin by designing a “normal” creature to serve as the Kami’s host, then modify that creature by customizing Attributes and Abilities and adding appropriate powers and one or more geasa. 
 
 ## _Plant and Animal Hosts_ 
@@ -6340,10 +5925,6 @@ Plants and animals infused with Gaia’s essence and her awareness make up the b
 **Knowledges:** Enigmas 4, Investigation 3, Linguistics 4 **Backgrounds:** Allies 4, Ancestors 5 (may contact prehistoric cats), Contacts 3 
 
 **Powers:** Animal Kinship, Animal Powers (Catfeet, Claws, Heightened Senses), Animal Summons (animals of the forest and field), Heart Sense, Long-Lived, Mask Presence, Mother’s Healing, Piercing Gaze, Silent Speech, Universal Translator 
-
-**Rage:** 2; **Gnosis:** 8; **Willpower:** 10 
-
-**Health Levels:** OK, -1, -1, -2, -5 
 
 **Attacks:** Bite (Str + 1 aggravated damage); Claws (Str + 2 aggravated damage). 
 
@@ -6388,8 +5969,6 @@ Health Levels: OK, OK, OK, -1,-1,-2,-2,-5,-5, Incapacitated
 **Roleplaying Hints:** Arbina watches with growing alarm as the expanding urban centers encroach on her home and threaten the small creatures that depend more and more on her for their survival. She has occasionally roused herself to walk in human form, exacting vengeance on those who deliberately despoil 
 
 Werewolf Storytellers Handbook 
-
-_**212**_ 
 
 the wilderness and she may prove helpful to Garou who ask her politely for assistance. Her sap possesses healing properties (Mother’s Healing). 
 
@@ -6447,8 +6026,6 @@ Gaia occasionally infuses an entire region with her essence, awakening the very 
 
 Chapter Six: Odds and Ends 
 
-_**213**_ 
-
 **History:** The Primeval Forest awoke when the first logging companies came to despoil the ancient trees that covered the gently sloping mountains of West Virginia. Though much forestland has fallen prey to forces of the Wyrm and the Weaver, the Primeval Forest has remained unharmed, due to its many Gifts from Gaia. Some Garou have just discovered this untouched forest and are trying to discover what makes it so different from the nearby lands. 
 
 ## _Inspiration_ 
@@ -6464,8 +6041,6 @@ We’ve said it before, and it bears repeating: The werewolf movie genre suffers
 _The 13th Warrior_ — Culture clashes, cannibalistic villains that lurk in underground labyrinths, and the themes of living honorably, dying bravely, and having your deeds remembered in song. This take on the Beowulf legend is rather more **Werewolf** than you might first expect. 
 
 Werewolf Storytellers Handbook 
-
-_**214**_ 
 
 _An American Werewolf in London_ — One of the strongest entries into the genre of werewolf movies, this is worth watching for the transformation sequences alone. 
 
@@ -6512,8 +6087,6 @@ Almost any sort of music can contribute to a **Werewolf** game, if timed properl
 The advantage to wordless music, such as that from a movie’s score, is that players are less prone to sing along — a real mood-breaking experience if ever there was one. Just be careful about some modern movie soundtracks that have the obligatory pop song at the end. The soundtrack to _The Mummy Returns_ , for instance, can really get your players in the mood for a **Rage Across Egypt** story, only to demolish the atmosphere as it swings into the pop number at the end. This does more damage than good, and is to be avoided. Some of the better movies and miniseries soundtracks to be found include _500 Nations_ , _Blade_ , _Braveheart_ , _Conan the Barbarian_ , _Gladiator_ , _Last of the Mohicans_ , _Princess Mononoke_ , _Rapa Nui_ , _Rob Roy_ and _The 13th Warrior_ . 
 
 Chapter Six: Odds and Ends 
-
-_**215**_ 
 
 ## _Moral Dilemmas_ 
 
@@ -6567,13 +6140,9 @@ The next session still stands out in my memory as one of the most intense rolepl
 
 Werewolf Storytellers Handbook 
 
-_**216**_ 
-
 **MASTER:** Is the Wyrm evil? **LUCAS:** Yes. 
 
 **MASTER:** Then would you say all who try to help and support the Wyrm are evil as well? 
-
-**LUCAS:** No. 
 
 **MASTER:** So the enemy is merely… misguided. **LUCAS:** Yes. 
 
@@ -6584,8 +6153,6 @@ _**216**_
 [By this point, I think he was trying to save his position on his father.] 
 
 **MASTER:** Does killing them make us any better than they are? 
-
-**LUCAS:** No. 
 
 [There was a lot of muttering on _that_ reply.] 
 
@@ -6649,8 +6216,6 @@ So who do you think won? Well. As the Master announced that the floor was open f
 
 Chapter Six: Odds and Ends 
 
-_**217**_ 
-
 As this sunk in, two angry pack members immediately stood and challenged him. They were out of line; this was still the middle of the first and official challenge. The Master bade them sit, and turned her eyes to Lucas, who had just been asked, almost mockingly, if he was sure he was Garou. His reply? No. He had no idea whether he should be here. Not when doing so seemed to deny the morality he had believed in up until this point. 
 
 The common consensus was that neither Lucas nor Whitman was a correct choice for the alphaship. One had drive, but no respect, either for his pack or life around him. One had respect, but no drive. The Master of the Challenge looked at them both blandly, turned to the beta of the pack, and nominated him alpha. 
@@ -6687,8 +6252,6 @@ Step back outside the game and think back to before you ever picked up a White W
 
 Werewolf Storytellers Handbook 
 
-_**218**_ 
-
 did the word “werewolf” conjure up when you were younger? Why did you ever get interested in the concept in the first place? Odds are, the images that struck the deepest chord were of the near-immortal savage beast, the monster with the intelligence of the human and the morals of an animal. Yes, the concept had grown more harmless over the years by things like Fangface and _Drac Pack_ and _Teen Wolf_ , to say nothing of horrible SFX that wouldn’t scare your cat, but there was still something deeper under all that, something frightening. The concept was still strong. You probably still respond well to it on an instinctive level, and so do your players — even if they’ve all but forgotten. But with a game of **Werewolf** , you can remember that visceral thrill — better, you can recreate it. And really, why wouldn’t you want to? 
 
 And that brings us back around to “Savage Horror.” Although this isn’t the only theme that could be used to describe the Garou accurately, it is the underlying theme that, more than any other, describes the myth of the _werewolf_ . The werewolf is the savage beast that wears human clothing — the unrelenting predator that is immune to pleas for mercy, an animal’s fear of humans and even to bullets. It is a part of the wilderness that does not fear us humans, that can easily kill us — and that _hates_ us. Not only does it knock us from our seat at the top of the food chain, it tears us into bloody chunks and cracks our bones for the marrow. Everything we’ve built, a werewolf can destroy, and it won’t even care. 
@@ -6710,8 +6273,6 @@ Used properly, the carnage and bloodshed of a werewolf story goes far beyond a v
 And isn’t that a good thing? 
 
 Chapter Six: Odds and Ends 
-
-_**219**_ 
 
 ## _Index_ 
 
@@ -6758,11 +6319,7 @@ _**219**_
 |Hakken|71|see|also_Nezumi_|Zhong Lung|74|
 |Hengeyokai|68|||||
 
-
-
 Werewolf Storytellers Handbook 
-
-_**220**_ 
 
 ## Notes 
 

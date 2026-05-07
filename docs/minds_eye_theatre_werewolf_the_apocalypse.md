@@ -134,15 +134,11 @@ Alona McCreary (Order #15311115)
 
 **==> picture [261 x 148] intentionally omitted <==**
 
-Credits  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  . 2 “The Searing Soul”   .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .11 15 Chapter One: Introduction  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  . 16 What is Roleplaying?  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  . 16 What is Mind’s Eye Theatre?  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  . 16 What is a Character?  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  . 17 What is a Storyteller?  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  . 17 What is the World of Darkness?  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  . The Aesthetic of Dark Realism  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .18 Playing a Werewolf  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .18 Creating a Character  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .18 19 What is a Setting?  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  . 19 The Mind’s Eye Theatre Golden Rules of LARP  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  . Developer’s Notes: The Age of Apocalypse  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  . 20 Terminology  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  . 23 In-Character Lexicon  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  . 24 
-
 5 
 
 Table of ConTenTs 
 
 Alona McCreary (Order #15311115) 
-
-“The Battle of Dyatlov Pass”   .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  . 27 31 Chapter Two: The World of Darkness  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  . The Apocalypse   .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .31 The Garou Nation   .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  . 32 Tribes and Fera  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  . 32 Auspices  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  . 32 33 Galliard  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  . 33 Breeds  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  . The Litany  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  . 34 A Brief History of the World of Darkness   .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  . 40 The Prophecy of the Phoenix  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  . 50 “The B-Side goes for a Ride”   .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  . 64 Chapter Three: Tribes and Fera   .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  . 69 The Tribes  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  . 69 The Fera  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  . 123 Chapter Four: Character Creation   .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  . 175 176 Quick-Start Character Creation Guide  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  . 178 Step One: Inspiration  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  . 180 Step Two: Record Initial XP   .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  . 180 Step Three: Choose a Breed  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  . Step Four: Choose an Auspice  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .181 Step Five: Choose a Tribe .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  . 182 183 Step Six: Assign Initial Attributes  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  . 186 Step Seven: Assign Initial Skills  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  . Step Eight: Assign Initial Backgrounds  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  . 192 Step Nine: Assign Initial Gifts  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  . 204 Step Ten: Choose Merits and Flaws  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  . 204 Step Eleven: Spend Initial XP   .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  . 205 Step Twelve: Finishing Touches  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  . 206 
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
@@ -150,15 +146,11 @@ Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE
 
 Alona McCreary (Order #15311115) 
 
-Step Thirteen: Before the Game  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  . 206 Chapter Five: Gifts  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .209 Learning Gifts  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .209 Using Gifts  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  . 214 Tribal Gifts  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  . 215 Fera Gifts  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  . 243 General Gifts  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  . 263 Chapter Six: Merits and Flaws  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  . 301 301 Overview  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  . Tribal Merits  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  . 303 310 Fera Merits  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  . 315 Factional Merits  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  . General Merits  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .317 Flaws .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  . 321 Derangements  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  . 328 Chapter Seven: Core Systems  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  . 333 333 Tests   .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  . Challenges   .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  . 334 Complex Scenarios: Combat  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  . 339 Mass Combat  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .346 Health and Damage  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  . 349 Willpower  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  . 352 “To Hell and Back”  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  . 354 Chapter Eight: Dramatic Systems  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .359 Roleplaying as a Werewolf  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  . 359 The First Change  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  . 360 Kinfolk, Cubs, and Lost Cubs  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  . 362 The Bite   .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  . 365 Forms  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .371 
-
 7 
 
 Table of ConTenTs 
 
 Alona McCreary (Order #15311115) 
-
-Gnosis  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  . 376 Rage  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  . 376 Seethe Traits  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  . 379 Harano  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  . 380 Delirium  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  . 382 The Curse  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  . 383 Wyrm Taint  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  . 384 Downtime Actions  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  . 387 The Flow of Time:  Converting Real Time into Dramatic Units  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  . 388 Quests  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  . 390 Tracking  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  . 402 Gestures and Hand Signals  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .404 Chapter Nine:  Social Systems  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .409 Rank  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .409 418 Renown  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  . Monikers  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  . 424 Challenges   .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .426 Moots  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  . 433 “On the Steps of Black”  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .449 Chapter Ten: Storytelling  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .453 Introduction  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  . 453 Creating a Chronicle  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .454 Setting Style Documents  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .462 Creating a Custom Setting  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .465 Crossover Settings: Antagonist Factions  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  . 467 471 Creating the Story Bible for Your Chronicle   .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  . Developing and Running Plots for Werewolf: The Apocalypse  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  . 473 Framing and Running Scenarios  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  . 480 Awarding Experience Points  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  . 482 Storytelling Techniques  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  . 484 
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
@@ -166,15 +158,11 @@ Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE
 
 Alona McCreary (Order #15311115) 
 
-Handling Disruptive Players  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  . 486 Creating an Inclusive Game  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  . 488 Downtime Scenes and Proxy Play  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .489 The Impact of the 24/7 Game  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .489 “Liar’s Dance at the Sept of the Lost and Found”  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  . 491 Chapter Eleven: The Garou Nation  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .495 Leaders of the Nation  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  . 497 501 Tribal Councilors  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  . Politics in the Garou Nation  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  . 505 The Sept  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .511 The Pack  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  . 530 Rites  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .539 “Secrets Recovered”  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .549 Chapter Twelve: Caerns  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .553 The Great Caerns  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .554 Moon Bridges  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  . 570 Shard Caerns  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  . 571 “Monkey Wrenching At Magadon Pharmaceuticals”  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .579 Chapter Thirteen: The Umbra  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .584 The Gauntlet   .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  . 584 The Penumbra  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  . 586 The Near Umbra  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .590 The Deep Umbra   .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  . 597 Umbral Storms  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  . 603 Travel in the Umbra  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  . 603 Peripheries  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .604 Broken Lands  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .604 Wyrm Tunnels  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .606 
-
 9 
 
 Table of ConTenTs 
 
 Alona McCreary (Order #15311115) 
-
-“Better to Ask Forgiveness than Permission”  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  . 607 611 Chapter Fourteen: Allies & Antagonists  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  . Stock Non-Player Character Generation  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .611 Werewolves and Fera .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  . 613 614 Legends  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  . 616 Mokolé  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  . Spirits  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  . 620 Totems  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  . 632 The Wyrm   .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .642 The Pentex Corporation  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .662 Wyrm Creatures  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .665 Other Denizens of the World of Darkness  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  . 676 “Distant Relations”  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .695 Chapter Fifteen: Influence and Equipment  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .699 Influence  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .699 Props, Weapons, and Armor  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  . 705 Equipment  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  . 705 716 Fetishes  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  . Kickstarter Backers  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  . 735 Index  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  . 742 Character Sheet  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .  .759 
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
@@ -1693,7 +1681,6 @@ Age of Apocalypse: The Rise of a New Generation of Heroes
 **----- Start of picture text -----**<br>
 The Greeks defined the word ‘apocalypse’ as the end of<br>this world and the beginning of the next. Today served<br>as the soil for what might grow a better tomorrow.<br>If this is true, then the next world will begin with<br>the Age of Heroes.<br> — Verity Argyris, Black Fury, Historian<br>**----- End of picture text -----**<br>
 
-
 ## **2000 CE to the Present** 
 
 The new generation of humanity, the millennials, was born and raised in the loving arms and care of the Weaver. These children of the Internet have never known a world without continual and instant access to the entirety of human knowledge. The average person in First World countries wields smart mobile devices with more computing power than NASA had when they first placed a human on the moon. They connect to virtual friends, share passions and ideas without ever meeting face-to-face, and slowly begin to shape how people interact with the world. 
@@ -1938,7 +1925,6 @@ If this world is impossible to save, it won’t be because the courage of the Ga
 
 **----- Start of picture text -----**<br>
 The World of darkness<br>**----- End of picture text -----**<br>
-
 
 63 
 
@@ -3118,7 +3104,6 @@ The masterminds behind the break from the Silver Fangs, the Lords of the Summit 
 
 **----- Start of picture text -----**<br>
 The Storm Eater<br>**----- End of picture text -----**<br>
-
 
 **==> picture [78 x 78] intentionally omitted <==**
 
@@ -7115,8 +7100,6 @@ You are a general member of Garou society. Werewolves who wish to contribute, bu
 ||Rank 5 (Elder)|5|Level 5 Gifts|5|- 1 downtime action|Default||
 |||||||||
 
-
-
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
 196 
@@ -7315,8 +7298,6 @@ It is important to note that your character doesn’t automatically gain access 
 |---|---|---|---|
 ||3|At least three different<br>auspices inyourpack||
 ||4<br>5|At least four different<br>auspices inyourpack<br>At least fve different<br>auspices inyourpack||
-
-
 
 Bonding with a pack totem requires an Umbral Quest. The difficulty of the Quest is determined by the Storyteller and depends on the rarity, location, and willingness of the chosen totem. 
 
@@ -7518,8 +7499,6 @@ Your character begins with a minimum of 30 initial XP. Your Storyteller may choo
 ||Merit|XP equal to merit rating||
 ||Background|New level x2 XP||
 
-
-
 ## Spending Initial XP 
 
 With your initial XP, you may: 
@@ -7641,8 +7620,6 @@ _Persephone possesses enough gifts of appropriate level to form two gift level l
 ||**Level 2**<br>**Rung**|Song of<br>Heroes|The Silver<br>Witness|[Missing<br>Rung]||
 ||**Level 3**<br>**Rung**|Renewed<br>Vigor|Master of<br>Fire|Stoking<br>Fury’s<br>Furnace||
 
-
-
 To purchase a third level 3 gift, you must have three level 1 gifts and three level 2 gifts, as shown below: 
 
 |Level|1|Level|1|Level|1|
@@ -7650,8 +7627,6 @@ To purchase a third level 3 gift, you must have three level 1 gifts and three le
 |â<br>Level|2|â<br>Level|2|â<br>Level|2|
 |â||â||â||
 |Level|3|Level|3|Level|3|
-
-
 
 _If Persephone wishes to purchase Urban Ward, for which, as a Black Fury, she lacks the correct tribal affinity, she will have to purchase the merit:_ _**Tribe Affinity** ._ 
 
@@ -7714,7 +7689,6 @@ _Persephone, the Homid Galliard Black Fury, has decided that she wishes to purch
 **----- Start of picture text -----**<br>
 Chapter Five: GiFts<br>**----- End of picture text -----**<br>
 
-
 211 
 
 Alona McCreary (Order #15311115) 
@@ -7726,8 +7700,6 @@ Alona McCreary (Order #15311115)
 **Philodox** 
 
 - Airt Perception (p. 263) Airt Perception (p. 263) Mind Web (p. 265) Blur of the Milky Eye (p. 263) Conjure Tulpa Object (p. 264) Resist Pain (p. 267) Persuasion (p. 266) Mother’s Touch (p. 266) Sense the Balance (p. 267) Predator’s Insight (p. 266) Sense the Balance (p. 267) Subpoena (p. 268) Spirit Skin (p. 268) Spirit Skin (p. 268) Tongue of the Taunt (p. 269) Wolf Senses (p. 271) Wild Court (p. 270) Traitor’s Bane (p. 270) 
-
-Burden of Doubt (p. 272)p. 272) 272) Entrance the Mob (p. 273)p. 273) 273) Marshal’s Vigilance (p. 275)p. 275) 275) Siren’s Lure (p. 277)p. 277) 277) Song of Heroes (p. 277)p. 277) 277) Strength of Purpose (p. 278)p. 278) 278) Withering Gaze (p. 280)p. 280) 280) 
 
 - Awaken Minor Spirit (p. 272)p. 272) 272) Circle of Gaia’s Cleansing (p. 273)p. 273) 273) 
 
@@ -7772,7 +7744,6 @@ Alona McCreary (Order #15311115)
 **----- Start of picture text -----**<br>
 Metis<br>**----- End of picture text -----**<br>
 
-
 Fight or Flight (p. 265) Predator’s Insight (p. 266) Razor Claws (p. 267) Resist Pain (p. 267) Vie for Dominance (p. 270) 
 
 Conjure Tulpa Object (p. 264) Call of the Wyld (p. 264) Persuasion (p. 266) Sense the Balance  (p. 267) Subpoena (p. 268) Vie for Dominance (p. 270) Taunt (p. 269) Wolf Senses (p. 271) 
@@ -7788,8 +7759,6 @@ Burden of Doubt (p. 272) Circle of Gaia’s Cleansing (p. 273) Umbral Tether (p.
 Pack Tactics (p. 283) Call to Duty (p. 281) Scent of the Prey (p. 284) Call of the Wyrm (p. 280) Renewed Vigor (p. 284) Master of Fire (p. 283) Spirit of the Fray (p. 285) Forge of the Fetish (p. 282) Spirit of the Fray (p. 285) Trick Shot (p. 286) Thousand Forms (p. 286) Spirit Knife (page 284) Steel Sharpens Steel (p. 285)p. 285) 285) Stoking Fury’s Furnace (p. 286)p. 286) 286) Gnaw (p. 289)p. 289) 289) Cheap Shot (p. 288)p. 288) 288) Gnaw (p. 289)p. 289) 289) Defense of the Hearth (p. 288) Hobbling Strike (p. 290)p. 290) 290) Recollection of Rancorous Halo (p. 291)p. 291) 291) Gnaw (p. 289) Invoke Earth’s Contract  (p. 290)p. 290) 290) Distant Dreams (p. 291)p. 291) 291) Snarl of the Predator (p. 292)p. 292) 292) Madness Season, the (p. 291) Rancorous Halo (p. 291)p. 291) 291) View the Battlefield (p. 292)p. 292) 292) View the Battlefield (p. 292) Snarl of the Predator (p. 292)p. 292) 292) Aegis of Rage (p. 293) Artful Dodger, the (p. 294) Apotheosis of Rage (p. 293) Aegis of Rage (p. 293) Apotheosis of Rage (p. 293) Gaia’s Vengeful Teeth (p. 295) Spirit Vessel (p. 297) Apotheosis of Rage (p. 293) Spirit Vessel (p. 297) Geas (p. 295) Thieving Talons Wyld’s Undreamt Fury (p. 298) Wyld’s Undreamt Fury (p. 298) of the Magpie (p. 298) 
 
 Pack Tactics (p. 283) Renewed Vigor (p. 284) Spirit of the Fray (p. 285) Steel Sharpens Steel (p. 285)p. 285) 285) Stoking Fury’s Furnace (p. 286)p. 286) 286) 
-
-Gnaw (p. 289)p. 289) 289) Cheap Shot (p. 288)p. 288) 288) Gnaw (p. 289)p. 289) 289) Hobbling Strike (p. 290)p. 290) 290) Recollection of Rancorous Halo (p. 291)p. 291) 291) Invoke Earth’s Contract  (p. 290)p. 290) 290) Distant Dreams (p. 291)p. 291) 291) Snarl of the Predator (p. 292)p. 292) 292) Rancorous Halo (p. 291)p. 291) 291) View the Battlefield (p. 292)p. 292) 292) Snarl of the Predator (p. 292)p. 292) 292) 
 
 213 
 
@@ -12980,7 +12949,6 @@ Alona McCreary (Order #15311115)
 **----- Start of picture text -----**<br>
 314 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE<br>**----- End of picture text -----**<br>
 
-
 Alona McCreary (Order #15311115) 
 
 ## Ratkin Merits 
@@ -13690,8 +13658,6 @@ Alona McCreary (Order #15311115)
 ||**Obsession**|You will do anything to<br>possess<br>objects<br>that<br>resemble or glorify water. It<br>is inviolablysacred toyou.||
 ||**Belief**|You believe that the ocean<br>contains evil spirits who<br>must be pacifed with blood<br>sacrifces on the turn of the<br>full moon.||
 
-
-
 ## Derangement Traits 
 
 While playing, when you encounter a situation that triggers your derangement, you have three options. 
@@ -13895,8 +13861,6 @@ Alona McCreary (Order #15311115)
 ||Diffcult|15|Climbing a ladder<br>during a chase in the<br>rain||
 ||Challenging|20|Climbing a ladder<br>during a chase in the<br>rain while your enemy<br>is shootingatyou||
 ||Epic|30|Climbing a ladder with<br>a broken leg during<br>a chase in the rain<br>while your enemy is<br>shootingatyou||
-
-
 
 ## Challenges 
 
@@ -15166,8 +15130,6 @@ A kinfolk cannot purchase any tribe-specific merits. However, she may be require
 ||Allies, Contacts,<br>Resources, or Infuences<br>Backgrounds|New level x1 XP||
 ||New Gift (maximum of<br>fvegifts total)|New gift’s level x6 XP||
 
-
-
 ## Quick-Start Character Creation Guide: Creating a Kinfolk 
 
 The following information replaces the equivalent steps in the Werewolf Quick-Start creation guide, **Chapter Three: Character Creation, Quick-Start Character Creation Guide** , page 176. 
@@ -15545,8 +15507,6 @@ Alona McCreary (Order #15311115)
 ||**Ananasi**|• None|• +2 bonus<br>to Brawl,<br>Intimidation,<br>Athletics, and<br>Dodge|• Aggravated<br>damage with<br>claws<br>• Can bite without<br>grappling<br>• +4 bonus to<br>Brawl and<br>Athletics<br>• +2 bonus to<br>Dodge<br>• (Strength focus:<br>Brawl and<br>Athletics bonus<br>becomes +6)|• Aggravated<br>damage with<br>fangs and claws<br>• Can bite without<br>grappling<br>• +2 bonus to<br>Brawl<br>• +1 bonus to<br>Dodge<br>• Can climb<br>vertical surfaces<br>at normal speed<br>• (Stamina focus: 3<br>additional health<br>levels)|• Can squeeze<br>through small<br>openings<br>• All damage<br>from incoming<br>attacks is<br>reduced to<br>1 point of<br>damage||
 ||Bastet|• None<br>• (Homid-breed: can<br>decrease Rage)|• Aggravated<br>damage with<br>claws<br>• +3 bonus to<br>Dodge<br>• (Dexterity focus:<br>Dodge bonus<br>becomes +5)|• Aggravated<br>damage with<br>teeth and claws<br>• Can bite without<br>grappling<br>• +4 bonus to<br>Brawl and Melee<br>• (Strength focus:<br>Brawl and<br>Melee bonus<br>becomes +6)|• Aggravated<br>damage with<br>teeth and claws<br>• Can bite without<br>grappling<br>• +2 bonus to<br>Brawl and<br>Dodge<br>• (Stamina focus: 3<br>additional health<br>levels)|• Can track using<br>scent<br>• Can bite<br>without<br>grappling<br>• (Feline-breed:<br>can decrease<br>Rage)||
 
-
-
 373 
 
 Chapter eight: DramatiC SyStemS 
@@ -15559,8 +15519,6 @@ Alona McCreary (Order #15311115)
 ||**Gurahl**|• None<br>• (Homid-breed:<br>can decrease<br>Rage)|• Aggravated<br>damage with<br>claws<br>• +3 bonus to<br>Brawl, Melee,<br>and Firearms<br>• +2 bonus to<br>Dodge<br>• (Strength focus:<br>Brawl bonus<br>becomes +5)|• Aggravated<br>damage with<br>teeth and claws<br>• Can bite without<br>grappling<br>• +5 bonus to Brawl<br>and Melee<br>• +1 damage on<br>Brawl and Melee<br>attacks<br>• (Strength focus:<br>Brawl and<br>Melee bonus<br>becomes +7)|• Aggravated<br>damage with<br>teeth and claws<br>• Can bite without<br>grappling<br>• +4 bonus to Brawl<br>• +2 bonus to<br>Dodge<br>• +1 damage on<br>Brawl and Melee<br>attacks<br>• (Stamina focus: 3<br>additional health<br>levels)|• Can track using<br>scent<br>• Can bite without<br>grappling<br>• +2 bonus to<br>Athletics and<br>Brawl<br>• (Ursine-breed: can<br>decrease Rage)||
 ||**Kitsune**|• None<br>• (Homid-breed:<br>can decrease<br>Rage)|• +1 bonus to<br>Athletics, Brawl,<br>Melee, and<br>Firearms<br>• +2 bonus to<br>Dodge<br>• Gains<br>Appearance<br>social focus<br>• May gain<br>additional tail<br>• (Dexterity focus:<br>+2 bonus to<br>Stealth)|• Aggravated<br>damage with teeth<br>• Can bite without<br>grappling<br>• +2 bonus to<br>Athletics, Brawl,<br>Firearms, and<br>Melee<br>• +3 bonus to<br>Dodge<br>• +1 damage on bite<br>attacks<br>• Can use tools and<br>all weapons<br>• May gain<br>additional tail<br>• (Stamina focus: 3<br>additional health<br>levels)|• Aggravated<br>damage with<br>teeth and claws<br>• Can bite without<br>grappling<br>• +3 bonus to<br>Brawl<br>• +2 bonus to<br>Dodge<br>• May gain<br>additional tail<br>• (Stamina focus: 3<br>additional health<br>levels)|• Can track using<br>scent<br>• Can bite without<br>grappling<br>• +2 bonus to<br>Dodge and<br>Investigation<br>• (Roko-breed: can<br>decrease Rage)||
 
-
-
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
 374 
@@ -15572,8 +15530,6 @@ Alona McCreary (Order #15311115)
 ||**Nuwisha**|• None|• Aggravated<br>damage with<br>claws<br>• +2 bonus to<br>Dodge, Stealth,<br>and Survival<br>• (Dexterity focus:<br>Dodge bonus<br>becomes +4)|• Aggravated<br>damage with teeth<br>and claws<br>• Can bite without<br>grappling<br>• +3 bonus to Brawl<br>and Melee<br>• +1 bonus to Dodge<br>• (Strength focus:<br>Brawl and<br>Melee bonus<br>becomes +5)|• Aggravated<br>damage with<br>teeth and claws<br>• Can bite without<br>grappling<br>• +4 bonus to<br>Stealth and<br>Survival<br>• +2 bonus to<br>Dodge<br>• (Stamina focus: 3<br>additional health<br>levels)|• Can track using<br>scent<br>• Can bite<br>without<br>grappling<br>• +2 bonus to<br>Dodge, Stealth,<br>and Survival||
 ||**Ratkin**|• None<br>• (Homid-breed:<br>can decrease<br>Rage)|• +1 bonus to<br>Athletics, Brawl,<br>Melee, and<br>Firearms<br>• +2 bonus to<br>Dodge<br>• (Dexterity focus:<br>+2 bonus to<br>Stealth)|• Aggravated<br>damage with teeth<br>• Can bite without<br>grappling<br>• +4 bonus to<br>Athletics and<br>Dodge<br>• +2 damage on<br>Brawl and Melee<br>attacks<br>• Can use tools and<br>all weapons<br>• Gains prehensile tail<br>• (Dexterity focus:<br>Athletics and<br>Dodge bonus<br>becomes +6)|• Aggravated<br>damage with<br>teeth and claws<br>• Can bite without<br>grappling<br>• +3 bonus to Brawl<br>• +2 bonus to<br>Dodge<br>• (Stamina focus: 3<br>additional health<br>levels)|• Can track using<br>scent<br>• Can bite<br>without<br>grappling<br>• +2 bonus to<br>Investigation<br>and Stealth<br>• Can climb<br>without<br>movement<br>penalty,<br>carrying twice<br>their weight<br>• (Rodens-breed:<br>can decrease<br>Rage)||
 ||**Rokea**|• None<br>• (Homid-breed:<br>can decrease<br>Rage)|• +2 bonus to<br>Brawl, Melee,<br>and Firearms<br>• (Stamina focus: 3<br>additional health<br>levels)|• Aggravated<br>damage with teeth<br>and claws<br>• Can bite without<br>grappling<br>• +6 bonus to Brawl<br>• +1 aggravated<br>damage on bite<br>attacks<br>• Swim: can breathe<br>underwater<br>• Sending: can<br>communicate to<br>other Rokea up to<br>a mile away while<br>underwater<br>• (Strength focus:<br>Base damage on<br>bite attack rises<br>to 3 points of<br>damage)|• Aggravated<br>damate with<br>teeth<br>• Can bite without<br>grappling<br>• +6 bonus to Brawl<br>• +2 aggravated<br>damage on bite<br>attacks<br>• Swim: can breathe<br>underwater<br>• Sending: can<br>communicate to<br>other Rokea up to<br>a mile away while<br>underwater<br>• (Strength focus:<br>Base damage on<br>bite attack rises<br>to 4 points of<br>damage)|• Can track<br>using scent<br>underwater<br>• Swim: can<br>breathe<br>underwater<br>• Sending: can<br>communicate<br>to other Rokea<br>up to a mile<br>away while<br>underwater<br>• (Squamus-<br>breed: can<br>decrease Rage)||
-
-
 
 375 
 
@@ -15697,8 +15653,6 @@ Your character’s current level of Rage grants her a number of benefits. Compar
 ||8|Additional Damage III|Anger Frenzy:<br>Stage 1||
 ||9|Rage Action III|Anger Frenzy:<br>Stage 2||
 ||10|Regeneration IV|Anger Frenzy:<br>Stage 3||
-
-
 
 ## Regeneration 
 
@@ -15922,8 +15876,6 @@ Alona McCreary (Order #15311115)
 ||4|No,<br>but will<br>rationalize|**Controlled**<br>**Fear:**<br>The<br>human does not panic,<br>but feels a natural fear of<br>the Garou. She remains<br>in control of her actions,<br>and may investigate this<br>encounter later.||
 ||5+|No|**Unaffected:**<br>A<br>human<br>experiences<br>no<br>effects<br>of the Delirium. She may<br>cautiously retreat or take up<br>a weapon in an attempt to<br>hunt the Garou. Mundane<br>humans<br>possessing<br>this<br>degree of stoicism are<br>incrediblyrare.||
 
-
-
 ||**NPC**<br>**Rating**|**Amnesia**|**Delirium**<br>**Effects**|**Delirium**<br>**Effects**|
 |---|---|---|---|---|
 ||1|Yes|**Panic:**The human loses any<br>semblance of rationality.<br>She may faint, freeze up,<br>or<br>run<br>chaotically<br>and<br>uncontrollably.||
@@ -15931,8 +15883,6 @@ Alona McCreary (Order #15311115)
 ||3|Yes|**Terror:**<br>The<br>human<br>is<br>struck with fear, though she<br>retains some lucidity. She<br>may escape intelligently or<br>attempt toplea for her life.||
 ||4|No,<br>but will<br>rationalize|**Controlled**<br>**Fear:**<br>The<br>human does not panic,<br>but feels a natural fear of<br>the Garou. She remains<br>in control of her actions,<br>and may investigate this<br>encounter later.||
 ||5+|No|**Unaffected:**<br>A<br>human<br>experiences<br>no<br>effects<br>of the Delirium. She may<br>cautiously retreat or take up<br>a weapon in an attempt to<br>hunt the Garou. Mundane<br>humans<br>possessing<br>this<br>degree of stoicism are<br>incrediblyrare.||
-
-
 
 Human NPCs that have full character sheets are affected by Delirium at the Storyteller’s discretion. 
 
@@ -16396,8 +16346,6 @@ Alona McCreary (Order #15311115)
 ||4|1|4|• Traveling anywhere on the continent<br>• Convincing a spirit to inhabit a talon/level 1 fetish<br>• Searching for a lost item in the Umbra||
 ||5|1|5|• Traveling into hostile territory<br>• Performing chiminage to remove spirit notoriety<br>• Atoning for a minor crime||
 
-
-
 ## **Consequences for Simple Quests** 
 
 Losses taken as a result of a consequence (including Willpower and Gnosis) cannot be regained or recovered until the scenario is completed or the questing party concedes failure. 
@@ -16432,8 +16380,6 @@ Alona McCreary (Order #15311115)
 ||4|4|8|• Creating a level 2 weapon fetish<br>• Buying off a 4-point faw<br>• Performing chiminage for a great caern’s totem||
 ||5|5|10|• Buying off a 5-point faw<br>• Recovering from spirit enmity<br>• Clearing out and healing a Wyrm Tunnel<br>• Atoning for a moderate crime||
 
-
-
 ## **Consequences for Complex Quests** 
 
 Losses taken as a result of a consequence (including Willpower and Gnosis) cannot be regained or recovered until the scenario is completed or the questing party concedes failure. 
@@ -16465,8 +16411,6 @@ Alona McCreary (Order #15311115)
 ||3|6|9|• Traveling to the Aetherial realms<br>• Creating a level 3 weapon fetish<br>• Earning a shard seed from a great caern||
 ||4|8|12|• Traveling to the Dark Umbra<br>• Cleansing a Hive<br>• Recovering forgotten lore of the Lost Tribes (Croatan,<br>Bunyip, or White Howlers)||
 ||5|10|15|• Traveling to Malfeas<br>• Cleansing a corrupted shard seed<br>• Learning the true name of an Incarna-level bane spirit||
-
-
 
 ## **Consequences for Heroic Quests** 
 
@@ -16669,8 +16613,6 @@ Alona McCreary (Order #15311115)
 ||Quest Leader|||
 ||Party Members|*<br>*<br>*<br>*<br>*||
 ||Number of<br>Required<br>Scenarios<br>(Check when<br>complete)|*<br>*<br>*<br>*<br>*||
-
-
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
@@ -16924,8 +16866,6 @@ Working with the Storyteller, the Master of the Challenge should devise a task t
 ||3-4 Cubs|Simple Quest, Diffculty4||
 ||5+ Cubs|Simple Quest, Diffculty5||
 
-
-
 ## Types of Rites of Passage 
 
 Rites of Passage are very personal experiences, leaving an impression on a Cub that lasts for years to come. Most resemble an archetypal hero’s journey in structure, as the 
@@ -16981,8 +16921,6 @@ To qualify for a Rank challenge, a Garou must first demonstrate her ability to m
 |Philodox|2 Honor, 1 Glory|
 |Galliard|2 Glory, 1 Wisdom|
 |Ahroun|2 Glory, 1 Honor|
-
-
 
 To do so, she must first contact the Master of the Challenge from her sept. Together, should the Master of the Challenge approve, they will seek out a werewolf capable of overseeing her Rank challenge. This Garou must be someone of higher Rank than the challenger, who also is able to perform the Rite of Accomplishment (see **Chapter Eleven: Garou Nation: Rites, Rite of Accomplishment** , page 546). Werewolves prefer that the challenger and the Garou she challenges 
 
@@ -17322,14 +17260,10 @@ Below is an example list of situations where the Storyteller, representing the s
 |---|---|---|---|
 ||Glory|• Participating in combat against a<br>minion of the Wyrm<br>• Attacking a more powerful<br>opponent in defense of another<br>• Protecting another at risk to oneself<br>• Earning a battle scar||
 
-
-
 |**Type of**<br>**Renown**|**Actions**|
 |---|---|
 |Honor|• Protecting the Veil<br>• Tithing appropriate chiminage without<br>being asked<br>• Performing a major service for a<br>kinfolk<br>• Mediatinga dispute fairly|
 |Wisdom|• Discovering an agent of the Wyrm<br>• Creating a new fetish<br>• Using Academics, Science, or Lore<br>skills to solve a dilemma<br>• Avoiding violence through trickery<br>or negotiation|
-
-
 
 ## **Moots** 
 
@@ -19801,8 +19735,6 @@ The following recommendations provide guidance for running good scenarios for St
 ||301-400|4 XPper month||
 ||401+|2 XPper month||
 
-
-
 ## New Character Incentive (Optional) 
 
 Graduated XP caps can go a long way towards making your chronicle appealing for new players, but if your chronicle rolls on for an extended period of time, you may want to incorporate the New Character Incentive rule. The New Character Incentive is an XP package awarded to new characters, allowing them to better integrate into the chronicle without feeling underpowered. Guidelines for calculating the New Character Incentive are listed below: 
@@ -21485,8 +21417,6 @@ Alona McCreary (Order #15311115)
 ||4|30|1 ¼ - 1 ½ miles|Small city||
 ||5|40|1 ½ miles or more|Large city||
 
-
-
 ## Sept Benefits 
 
 The strength of a sept is reflected in the benefits it offers to those bound to it. Below are advantages common to all septs: 
@@ -23025,8 +22955,6 @@ The rating of a great caern determines the average size of its bawn. This limit 
 ||4|801 – 1000 acres||
 ||5|1001 – 1500 acres||
 
-
-
 ## Destroying A Great Caern 
 
 Destroying a great caern is not an easy task. The Dark Brigade managed to trick the Garou Nation by using a mystical plague that caught many werewolves by surprise. These fortified places of power are still vulnerable to attack in the Material Realm. 
@@ -23132,8 +23060,6 @@ Alona McCreary (Order #15311115)
 ||3|100 acres||
 ||4|150 acres||
 ||5|200 acres||
-
-
 
 ## Shard Caern Defenses 
 
@@ -24001,8 +23927,6 @@ Entrance to the Aetherial realm comes easily to those who can fly, soaring above
 ||Gaia/Earth|Eshtarra/Danu|Fianna/<br>Galliards||
 ||Mars|Nergal|Get of Fenris/<br>Ahroun||
 
-
-
 |**Celestine/**<br>**Planetary**<br>**Body**|**Incarna**<br>**Avatar**|**Affnities**|
 |---|---|---|
 |Turog/Asteroid<br>Belt|Rorg|Red Talons/<br>Ahroun|
@@ -24011,8 +23935,6 @@ Entrance to the Aetherial realm comes easily to those who can fly, soaring above
 |Uranus|Ruatma|Shadow Lords/<br>Theurge|
 |Neptune|Shantar|Glass Walkers/<br>Philodox|
 |Pluto|Meros|Silent Striders/<br>Galliard|
-
-
 
 **Storytelling Hooks:** Interacting with the Celestines is always a risky endeavor. Garou may come to beg a favor that only such powerful spirits can perform, such as restoring a Garou made Ronin to the grace of her tribe. They might also seek guidance about a particularly dangerous quest or oracular prophecy they have received. However, nothing comes without a price when dealing with rulers of entire umbral realms. 
 
@@ -24518,8 +24440,6 @@ Alona McCreary (Order #15311115)
 ||Beta|A large car or<br>truck|May be<br>subjected to 5<br>Physical attacks<br>per round||
 ||Delta|A semi-trailer<br>or a house|May be<br>subjected to 10<br>Physical attacks<br>per round||
 ||Omega|A large<br>building, such<br>as a skyscraper|May be<br>subjected to<br>any number of<br>Physical attacks<br>per round||
-
-
 
 Baron 
 
@@ -28078,7 +27998,6 @@ Avery is a young mage: a member of the Order of Hermes. She is a dedicated resea
 **----- Start of picture text -----**<br>
 Chapter Fourteen: allies and a<br>ntagonists<br>**----- End of picture text -----**<br>
 
-
 691 
 
 Alona McCreary (Order #15311115) 
@@ -28874,14 +28793,12 @@ Alona McCreary (Order #15311115)
 **----- Start of picture text -----**<br>
 Chapter FiFteen: inFluenCes and equipment 711<br>Alona McCreary (Order #15311115)<br>**----- End of picture text -----**<br>
 
-
 Alona McCreary (Order #15311115) 
 
 **==> picture [105 x 21] intentionally omitted <==**
 
 **----- Start of picture text -----**<br>
 Sample Equipment<br>**----- End of picture text -----**<br>
-
 
 These are some examples of simple equipment that can be found in the World of Darkness. By expending the appropriate downtime actions, crafting, or otherwise taking reasonable effort, a character can acquire one of these items. 
 
@@ -28890,18 +28807,15 @@ These are some examples of simple equipment that can be found in the World of Da
 **----- Start of picture text -----**<br>
 Two-Handed Axe Two-Handed Sword<br>Qualities:  Brutal, Deadly Qualities:  Accurate, Brutal<br>Katana Silver Dagger<br>Qualities:  Accurate, Fast Qualities:  Concealable, Silver<br>Throwing Knife  Spear<br>Qualities:  Balanced, Accurate Qualities:  Staking, Reach<br>Chapter FiFteen: inFluenCes and equipment 713<br>Alona McCreary (Order #15311115)<br>**----- End of picture text -----**<br>
 
-
 **==> picture [612 x 792] intentionally omitted <==**
 
 **----- Start of picture text -----**<br>
 Wooden Stake  Shotgun<br>Qualities:  Concealable, Staking Qualities:  Spread, Accurate<br>Elephant Gun  Pistol (Dragon’s Breath)<br>Qualities:  Brutal, Deadly Qualities:  Accurate,<br>Incendiary Ammunition<br>High-Caliber Rifle  Sniper Rifle<br>Qualities:  Accurate, Brutal Qualities:  Accurate, Long Range<br>714 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE<br>Alona McCreary (Order #15311115)<br>**----- End of picture text -----**<br>
 
-
 **==> picture [487 x 681] intentionally omitted <==**
 
 **----- Start of picture text -----**<br>
 Machine Gun Gaming Laptop<br>Qualities:  Automatic,   Qualities:  Superior,<br>Ammo Capacity II Customized: Video Games<br>Sports Car Wall-Safe<br>Qualities:  Flashy, Stylish Qualities:  Secure, Concealed<br>Alchemical Set Table Leg Club<br>(Improvised)<br>Qualities:  Antique, Streamlined Quality:  Staking<br>Chapter FiFteen: inFluenCes and equipment<br>**----- End of picture text -----**<br>
-
 
 715 
 
@@ -28983,8 +28897,6 @@ Talens are created according to the following table. Additional information abou
 ||4|19|Complex Quest, DiffcultyRating1|1|4||
 ||5|22|Complex Quest, DiffcultyRating3|1|5||
 
-
-
 717 
 
 Chapter FiFteen: inFluenCes and equipment 
@@ -28997,7 +28909,6 @@ Sample Talens
 
 **----- Start of picture text -----**<br>
 Funerary Tea<br>**----- End of picture text -----**<br>
-
 
 _This concoction is a mix of wine and herbs used as part of Ancient Egyptian mummification rituals. Ingesting the talen causes the person who drinks it to be identified by the spirits of the dead as one of their own._ 
 
@@ -29071,15 +28982,12 @@ Fetishes are created according to the following table. Additional information ab
 ||4|22|Complex Quest, DiffcultyRating4|2|4||
 ||5|26|Heroic Quest, DiffcultyRating2|2|5||
 
-
-
 **==> picture [280 x 271] intentionally omitted <==**
 
 **==> picture [224 x 15] intentionally omitted <==**
 
 **----- Start of picture text -----**<br>
 Chapter FiFteen: inFluenCes and equipment<br>**----- End of picture text -----**<br>
-
 
 719 
 
@@ -29178,8 +29086,6 @@ Weapon fetishes are created according to the following table. Additional informa
 ||3|20|Complex Quest, DiffcultyRating3|1|3||
 ||4|25|Heroic Quest, DiffcultyRating1|2|4||
 ||5|30|Heroic Quest, DiffcultyRating3|2|5||
-
-
 
 721 
 
@@ -29968,7 +29874,6 @@ Wise in the Ways of Beast and Man Wolfen Dancer www.malkavianmadnessnetwork. com
 **----- Start of picture text -----**<br>
 KicKstarter BacKers<br>**----- End of picture text -----**<br>
 
-
 743 
 
 Alona McCreary (Order #15311115) 
@@ -30031,13 +29936,9 @@ Attack, Fetish Qualities Hexing, 721 Sorcerous, 721
 
 Attacks 
 
-Mental, 343, **345** Noticing, 345 Physical, 342, **345** Social, 343, **345** Unarmed, 342 
-
 Attributes, 183 Bonuses, 196 Character Creation, 184 Focuses, 185 Mental, 184 Physical, 184 Social, 184 
 
 Auspice, 32. _See also_ Council of Auspices. _See also_ Affinity 
-
-Ahroun, **33** , 182 Definition, 32 Galliard, **33** , 182 Overview, 32 Philodox, **32** , 182 Ragabash, **32** , 181 Skill Bonus, 181 Theurge, **32** , 182 
 
 Authoritarian Packs. _See_ Pack, Organization Automatic Success. _See_ Challenges, Variations Awareness skill, **187** , 345 
 
@@ -30141,8 +30042,6 @@ Crinos, form. _See_ Forms, Crinos
 
 Critical Failures. _See_ Challenges, Variations 
 
-Croatan History, 44, 45, 48, **52** 
-
 Crossover. _See_ Antagonist Factions 
 
 Cubs, 364 Characteristics, 364 Monikers, 426 Player-characters 364 Rite of Passage, 410 
@@ -30185,8 +30084,6 @@ Alona McCreary (Order #15311115)
 
 Dodge. _See also_ Attacks, Physical Dodge skill, 188 
 
-Downtime Actions, 387 Examples, 388 Gifts, 197, **211** Processing, 387 Rank, **196** , 387 
-
 Dream Speak. _See_ Totem, Bonuses 
 
 Dream Zone, 591. _See also_ Near Umbra 
@@ -30221,15 +30118,11 @@ Factions. _See_ Concordat of Stars and Sanctum of Gaia
 
 Fade to Black, 484 
 
-Fae, 84, **688** Creating NPCs, 688 
-
 Fair Escape, 340. _See also_ Tracking, Fair Escape 
 
 Fame, 195 Familiarity with Target, 214 
 
 Fenrir. _See_ Get of Fenris 
-
-Fera, 123 
 
 Bite, the, 368 Challenges. _See_ Challenges, Fera Character Creation, 176, 302 Definition, 24, **32 243** . _See_ Gifts, Fera In the Garou Nation, 510 Joining Packs, 201 Rank Challenges, 415 
 
@@ -30337,8 +30230,6 @@ Hedge Magic, 678. _See also_ Hunters, Arcanum
 
 Helios, 630 Helping Hand. _See_ Totem, Bonuses Hero moniker, 425 
 
-High King, 495, **497** , 500 Authority, 498 First, 44 Renown, 498 
-
 Hispo, form. _See_ Forms, Hispo 
 
 Homid, breed. _See_ Breed Homid, form. _See_ Forms, Homid 
@@ -30434,8 +30325,6 @@ Monikers, 424
 Greater, 424. 
 
 _See also_ Branded, Disgraced, General, Hunted, Ronin, and Champion 
-
-Lesser, 424. 
 
 _See also_ , Coward, Dishonorable, Gallant, Hero, Paragon, Reckless, Tarnished, Worthy, and Youngling 
 
@@ -30537,8 +30426,6 @@ Resources, 198 Overtaxing, 199
 
 Resources background, 198 Beyond Your Means, 388 
 
-Retests, 178, 334, **335** Willpower, 352 
-
 Rite of Acceptance, 368, 510, **546** . _See also_ Rites 
 
 Rite of Accomplishment, 546. _See also_ Rites 
@@ -30583,8 +30470,6 @@ Rite of the Winter Wind, 548. _See also_ Rites
 
 Rite of Wounding, 547. _See also_ Rites 
 
-Rites, 539 Background, 199 Caern, 199, **540** Mystic, 199, **542** Passage. _See also_ Rank, Rite of Passage Punishment, 199, **543** Renown, 199, **546** Seasonal, 199, **547** System, 199 
-
 Rock, Paper, Scissors, **333** ,334. _See_ Challenges 
 
 Rokea, 169 
@@ -30598,8 +30483,6 @@ Ronin, 510 Moniker, 424 Rank, 416
 Round. _See_ Combat, Round 
 
 ## S 
-
-Sanctum of Gaia, 316, **505** Tenets, 507 
 
 Satire Rite, 544. _See also_ Rites 
 
@@ -30805,8 +30688,6 @@ White Howlers, 651 History, 46
 
 Willpower, 352 Character Creation, 177, **206** Learning Gifts, 211 Permanent,352 Regaining, 352 Temporary, 352 
 
-Winter Packs, 93, **94** 
-
 Wisdom. _See_ Renown, Wisdom 
 
 Wolfhome, 588. _See also_ Penumbra Mechanics, 589 
@@ -30853,7 +30734,6 @@ XP. _See_ Experience Points
 
 **----- Start of picture text -----**<br>
 758 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE<br>**----- End of picture text -----**<br>
-
 
 Alona McCreary (Order #15311115) 
 

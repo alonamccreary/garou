@@ -37,7 +37,6 @@ Cover Design: Aileen E. Miles
 **----- Start of picture text -----**<br>
 735 PARK NORTH BLVD.<br>SUITE 128<br>CLARKSTON, GA 30021<br>USA<br>G A M E S T U D I O<br>**----- End of picture text -----**<br>
 
-
 © 1997 White Wolf Publishing, Inc. All rights reserved. Reproduction without the written permission of the publisher is expressly forbidden, except for the purposes of reviews, and blank character sheets, which may be reproduced for personal use only. White Wolf is a registered trademark of White Wolf Publishing, Inc. All rights reserved. Werewolf the Apocalypse, Stargazers Tribebook, and The Werewolf Players Guide are trademarks of White Wolf Publishing, Inc. All rights reserved. All characters, names, places and text herein are copyrighted by White Wolf Publishing, Inc. 
 
 **Rebecca** "Hsien-Ko" Schaefer, for facing the even more thankless slings and arrows of Payables and health plans. 
@@ -62,8 +61,6 @@ This work is respectfully dedicated to Allen Ginsberg, the holy, crazy Buddha of
 
 PRINTED IN CANADA. 
 
-_10_ 
-
 _**Stargazers**_ 
 
 _Contents 11_ 
@@ -81,8 +78,6 @@ Yes, you were a Stargazer in your previous life. The signs are there; I have see
 These things and more will I tell you. It is time for your initiation into the tribe of the Stargazers, Slayers of the Mind, Those Who Are Free from the Web of Ignorance. 
 
 _**Incarnations of Eternity**_ 
-
-_13_ 
 
 _Chien (Obstruction): Surrounded by obstructions, one must first retreat, then seek the direction of the Sage._ — I Ching 
 
@@ -106,8 +101,6 @@ It is the same cause as all suffering: Mind. This is the true enemy. But I see t
 
 _**Lifetimes in the Gaiadharma**_ 
 
-_**15**_ 
-
 I speak of the source of Mind, the begetter of duality and discrimination, the womb of illusion. I speak of the Weaver, _Tsuchigumo._ Her Web entraps all creation even as it gives it form. But Truth lies beyond form, beyond duality. Gaia is Truth, the Supreme Oneness of All. Only through Gaia can we realize our true place. Only through understanding of Gaia and the methodical cutting of the Web can we come to exist in the True Gaia Realm. 
 
 We call this way of understanding the Gaiadharma. It is the way of all Stargazers. While the other tribes struggle against the Wyrm, who but suffers as they do, the world is wrapped tighter and tighter within the Weaver's Web. Only the Stargazers realize this truth. To expend energy in a useless fight only entraps the soul in a cycle of combat. 
@@ -127,8 +120,6 @@ OM. _The eternal Word is all: what was, what is and what shall be, and what beyo
 ## — Mandukya Upanishad 
 
 All tribes, all beings, have legends about the Dawn Times, the primal beginnings of the world. All such tales are wonderful and reveal a memory of the timeless, uncreated True Gaia Realm. The world never had a beginning, nor an ending. It still is, as it has always been. 
-
-_16_ 
 
 _**Stargazers**_ 
 
@@ -174,8 +165,6 @@ But Klaital's journey was purely an interior one. He traveled far, but not on fo
 
 He had forsaken his life and identity, prepared to die in despair, and instead found the core of his being, the true unchanging center brighter than any star in the sky. Nothing could stain this spark, nor Wyrm, Wyld or Weaver. 
 
-_**17**_ 
-
 Having found the undying font of self, Klaital understood the illusions of the world, the misplaced values and beliefs of Garou, wolf and human. Rejoicing at his enlightenment, he spread the Word, first rehabilitating his past, his sense of self forged by his memories. He was no longer bound by his past self, his past actions. 
 
 He arose to take his enlightenment to the world, to pass it to others that they might see the light within themselves and thus break the bonds of ignorance which kept them fighting and struggling with each other. 
@@ -217,8 +206,6 @@ Bur the old beggar asked, "How can you spend your time with me alone when others
 Klaital was still, and then spoke. "Yes, my Enemy, you are right. 1 had hoped to prepare a while longer, but my patience is vanity. 1 will heed wisdom and send my monks out into the world. " 
 
 The old man smiled, knowing that the Wyrm had won, for the shrine would lie empty as monks traveled into the world, each alone and corruptible. 
-
-_18_ 
 
 _**Stargazers**_ 
 
@@ -263,8 +250,6 @@ The Stargazers were instantly renowned as wolves to be reckoned with. A few rage
 Word spread that the Stargazers, wise in mind, were weak in body. Too long had they spent meditating in their shrines. They had neglected the physical endowments given by Gaia. 
 
 One among them set about to change this, to devise a way of body awareness that did not allow rage to rule the 
-
-_20_ 
 
 senses, destroying the work of mediation each monk had spent years obtaining. 
 
@@ -311,8 +296,6 @@ _Discrimination? Draw it and. slash Delusion to pieces. Then arise O son of Bhar
 Habhava wondered about the problem of the Wyrm, about how to defuse its anger. But it would take many lifetimes to 
 
 _**Lifetimes in the Gaiadharma**_ 
-
-_**21**_ 
 
 unwrap this puzzle, and much lore hard-gained by many Stargazers who dared the realms of the Wyrm to discover its secrets. 
 
@@ -364,8 +347,6 @@ Something stirs, and we hear the call. The signs and portents have been revealed
 
 Enough meditation! We have had lifetimes to prepare for this moment. Now it is time to act. 
 
-_23_ 
-
 _**Lifetimes in the Gaiadharma**_ 
 
 _When a sage sees this great Unity and his Self has become all beings, what delusion and what sorrow can ever be near him.'_ — Isa Upanishad 
@@ -383,8 +364,6 @@ Yet what has been lost ? Is Gaia gone beyond our reach ? Do not our ancestors li
 This is Harano, the shadow cast by our false ego from the light within us. You cannot hide from your inner light, but those false parts of you, ego identities, block your experience of this l i g h t , and fashion, masks from the shadows. Many believe that these masks are their true selves. 
 
 _**Practice of the Gaiadharma**_ 
-
-_25_ 
 
 When these selves despair, we fall into their shadows, shadows themselves of the Abyss. 
 
@@ -417,8 +396,6 @@ The true initiation for a Stargazer does not begin with the acceptance of traini
 How can we know truth in a world of falsehoods? By being open to true visions from Gaia. Visions are communications from the True Gaia Realm to creatures in the world. Dreams are the most common vehicle for visions, but they can take place in the waking state also. Indeed, this is one reason we honor Chimera, tor she provides us with visions to clear our minds of false goals and point the way to true striving. 
 
 Mystics are renowned for their visions, often the source of their philosophies and teachings. It is the same for a Stargazer. Until she receives her vision, she cannot know her true path in the world. She must practice the Gaiadharma as taught by others. These teachings are potent indeed, and are enough to guide most souls to the next stage in their progress toward perfection. But a bed slept in by one may not be comfortable for another. Each Stargazer must seek 
-
-_26_ 
 
 _Stargazers_ 
 
@@ -530,8 +507,6 @@ Humans travel below, to the Underworld or Dark Umbra. There, their desires are b
 
 Some beings go to the many heavens or hells, populated by higher or lower beings. There they are rewarded or punished for deeds in life. Envy not the heavenly ones and 
 
-_30_ 
-
 _Stargazers_ 
 
 weep not for the hellish ones. The heavens are greatest tests of all, for many believe they represent the final reward, the place beyond which there is no striving. This is not so, for these beings, while living in splendor, only deny the ignorance in the worlds around them. This arrogance prevents Understanding; they suffer delusion as much as any hell creature. Seek not to become a god, for the gods are cursed with blindness. 
@@ -547,8 +522,6 @@ Like all tribes, ours is built around many identities. Different Stargazers seek
 The camp you have joined by seeking me is the Klaital Puk, the oldest of Stargazer paths, said to have descended from the first wisdom of Klaital as taught at the Luminous Shrine. The leader of the Puk is always an incarnation of Klaital, although, like me, each incarnation brings its own insights and unique personality. My inner light may be the same as Klaital's, but my personality is unique to this life. 
 
 Others accuse the Puk of being too authoritarian, trying to make a law of enlightenment. We are simply 
-
-_**31**_ 
 
 _**Practice of the Gaiadharma**_ 
 
@@ -606,8 +579,6 @@ It is little use swaying them from their path, but we must try nonetheless, for 
 
 _**Practice of the Gaiadharma**_ 
 
-_**33**_ 
-
 such a one, for they have learned the secrets of delusion and can weave it around others as the Weaver spins it around their own hearts. 
 
 _It was in my fifth year as a Garou, soon after I had obtained the title of Postern. I became lost in the Abyss, wandering its lightless caverns in search of my separated pack. There I saw a vision of the truth of our world, the reason for our pain. The Wyrm sends figments against us, and we uselessly claw at them. We must follow its scent back to its cave and attack it where it lives. Otherwise, we fail and fail again._ 
@@ -623,8 +594,6 @@ Chimera teaches us the stability that hides behind all flux, behind all forms an
 She can be a harsh teacher at times, frightening our souls with chaos and nightmare. But this is only to wake us up! Yes, the empress of dreams seeks only for us to remain Awake. When one is so Awakened, he can dream without sleep, and thus imaginatively build the True Gaia Realm in his dreams, bringing it to life in his soul. 
 
 Unlike her image in the lore of the West, Chimera takes a different form for us, that of a majestic, feathered, Chinese dragon. Her body is still that of a lion, but her head, wings, claws and tail are the flowing, multi-colored aspects of the great snake. 
-
-_34_ 
 
 A being of immense wisdom and respect, the Sphinx allows us to hone our minds against his riddles. He never lets our minds sleep or rest, constantly posing conundrums for us to answer. Who can he lazy before such urgency? When we answer his questions correctly, he rewards us with more questions. Yet we thank him for this, for we will need such discipline when walking the Web. 
 
@@ -660,8 +629,6 @@ While lupus have the advantage of easy cultivation of Fire Mind, they find it ha
 
 _**Practice of the Gaiadharma**_ 
 
-_**35**_ 
-
 _One moon_ 
 
 _shows_ 
@@ -679,8 +646,6 @@ The No Moon is the auspice of crazy wisdom — a knowing which abandons the rule
 The Crescent Moon delves deeply into hidden lore, the invisible understanding barely glimpsed in the sliver of moonlight. The spirits have much to teach us, and the Theurges learn to listen. Their tantras are the most wondrous, defying the laws of the Web. But they risk also becoming enamored of their lore, and their egos often seek to become gods. Perhaps more than any other auspice, the Theurge must beware his ego, and strictly maintain his rites of humility, meditating and stilling the mind often. 
 
 We travel through many lifetimes forgetting many things. How can we maintain the lore we learn from one life to the next? Tradition. It is very important to honor tradition and the keeping of wisdom, for it is our anchor in each life, that which allows us to progress further without having to spend countless lives seeking wisdom which has already been won. The treasures of Understanding are kept within the myths, ways and rites of a culture, and it is the way of the Half Moon Philodox to guard this lore. The ways of a people speak deeply of that people's progress toward enlightenment. 
-
-_36_ 
 
 _**Stargazers**_ 
 
@@ -714,8 +679,6 @@ It is very important that you follow this tenet, for it helps us to slay the ego
 
 _**Practice of the Gaiadharma**_ 
 
-_37_ 
-
 This tenet is the basis of the mentor-student relationship. Follow your master with an unquestioning heart, worrying not what shall happen to you. Any harm will fall upon your master's head, while your rebirth will be better for your obedience in this life. 
 
 Again, a tenet which helps us to slay the ego. Offer up your discarded desires to the greatest in station and you will be rewarded fen-times the value of your gift. And who is the greatest? Gaia, of course. But also Chimera, and the heroes and sages of our kind, regardless of tribe. 
@@ -744,8 +707,6 @@ Make no mistake, cub, if you break this rule we will kill you and fear not for o
 
 We have lost too many monasteries in the past; there are precious few temples left to us. Honor and protect all caerns, old cub. 
 
-_38_ 
-
 _**Stargazers**_ 
 
 Ah, I have talked and talked yet still said so little. I must rest, while you contemplate what you have heard. Think deeply on these matters, for when I return from rest I shall relate how they have been realized in the world. Think on these things! 
@@ -757,8 +718,6 @@ _and hunted; modern men wait in beautified homes and try to forget death and bir
 - Jack Kerouac, _The Scripture of the Golden Eternity_ 
 
 _**Practice of the Gaiadharma**_ 
-
-_**39**_ 
 
 _Gratitude to Mother Earth, sailing through night ami day — and to her soil, rich, rare and sweet in our minds .so be it_ 
 
@@ -783,8 +742,6 @@ Long a stronghold of our wisdom, we are represented here by the most venerable a
 Slowly, the caern leaders are preparing for the inevitable destruction of the caern. They see it as but a symbol 
 
 _**Paths of the Gaiadharma**_ 
-
-_**41**_ 
 
 of the impermanence of everything, and in this sense a triumph over the Weaver. They quietly sneak lore from the caern to select places in the world and Umbra, choosing as their emissaries many young Stargazers who come to the caern seeking training. 
 
@@ -850,8 +807,6 @@ Like other Garou, we often set a Kin-Fetch to watch our families. These loyal sp
 
 Some humans wish to learn from us, and we feel that a few of them can actually benefit from this. These we make acolytes, allowed to enter our caerns on certain occasions or to question our masters on important manners. In return, they watch the 
 
-_44_ 
-
 _**Stargazers**_ 
 
 outside world for us, looking for signs of reincarnated Stargazers among our human Kinfolk, and notifying us of world events that may give us insight into the Weaver's madness. 
@@ -882,8 +837,6 @@ Like the Shadow Lords, the Silver Fangs suffer from great ego. Unlike the Lords,
 
 _**Paths of the Gaiadharma**_ 
 
-_**45**_ 
-
 so seriously. Only when they have sacrificed their egos on the throne of their kingship will they become true rulers. 
 
 Wise, wise Garou. How greatly we respect the Uktena, but also fear for them. They do not realize the true enemy, and instead seek the Wyrm in its false lairs, where they risk corruption and entrapment. We will nonetheless strive to guide them, as they sometimes guide us. 
@@ -901,8 +854,6 @@ We owe much honor to them, and are greatly shamed at our failure to act. We fear
 _There are demon-haunted worlds, regions of utter darkness. Whoever in life denies the Spirit falls into that darkness._ — Isa Upanishads 
 
 Hell creatures. As humans, they would be destined for rebirth in one of the thousand hells, yet they are trapped 
-
-_46_ 
 
 here instead, walking the nighttime world as if it were a hell. Hungry ghosts, they cannot get enough of life, taking it from others to satiate their lusts. Pity them not, for they fully deserve their fate. Pity instead those who are near to them, their minions who know not what cost they pay for their closeness to hell. 
 
@@ -946,8 +897,6 @@ _throw it away. I insist on your freedom._
 
 _**Paths of the Gaiadharma**_ 
 
-_47_ 
-
 _Once more I shall teach you Thai uttermost wisdom:_ 
 
 _The sages who found it Were all made perfect, Escaping the bands of the body. —_ Bhagavad Gita 
@@ -965,10 +914,6 @@ For a Stargazer, this Background usually represents her connection to a previous
 The Stargazers are sometimes too philosophical for their own good. It a Stargazer ever tails an Enigmas roll, he becomes obsessed with the problem and unable to concentrate on anything else u n t i l he has solved it. The most elusive mysteries gnaw at us the most. During this time, the 
 
 This Knowledge represents the lore associated with Chinese geomancy, called Feng Shui. This science/art 
-
-_49_ 
-
-_**Tantras**_ 
 
 helps one to better arrange one's surroundings to be more in harmony with local chi, or energy. This skill is necessary for the Feng Shui rite (see below). 
 
@@ -1005,8 +950,6 @@ Possessed by: Astrologers, astronomers, Theurges
 Specialties: Planets, stars, satellites (moons), the sun, phenomena (eclipses, sun spots), omens, divination 
 
 The character has been officially recognized as the reincarnation of a famous Garou hero or sage. He thus begins with three extra points of temporary Renown (choose either Wisdom, Honor or Glory). If the previous life was a Stargazer, the cost of 
-
-_50_ 
 
 this Merit is 2 pts, for there is a certain amount of social status that comes with it. Old friends of the previous life (it he was a recent Stargazer) look kindly upon the character, and rivals consider I he slate to be wiped clean. (This doesn't apply _to_ the Wyrm, however; a character might just find himself with some "unfinished business" that requires his attention in this life.) However, if the previous life is that of a Garou from another tribe, there may be some friction with that tribe — the Silver Pangs might not appreciate someone claiming to be an incarnation of royalty, for instance. The cost in such cases is thus only 1 pt. 
 
@@ -1060,12 +1003,6 @@ The following maneuvers requires the expenditure of a Rage point.
 |**Shapeshifting Maneuver*:**||||||
 |Uncoiling Snake|Hex|+ Kailindo|+ 1|by maneuver|by maneuver|
 |* Requires the expenditure||of a Rage point||||
-
-
-
-_**Tantras**_ 
-
-_**51**_ 
 
 • **Cunning Koan (Level Three)** —The character can cut through any falsity, illusion or bullshit with a few choice words. The words cannot be profane and must come in the form of a short haiku poem or koan. This Gift is taught by a Crow-spirit or a Chimerling. 
 
@@ -1165,8 +1102,6 @@ This Rite of Accord is a more permanent version of the Rite of Cleansing. Throug
 
 Chhi-Lin is a divine creature from the True Gaia Realm who appears in the world only when and where virtue has consecrated an area, usually through the wise rule of a king or guardianship of a caern. Chhi-Lin's very presence purifies the region in which he appears, although it cannot appear near Wyrm toxins. Usually, Chhi-Lin must be sought out: in dreams. 
 
-_53_ 
-
 _Tantras_ 
 
 **Traits:** Packs chosen by Chhi-Lin can call upon five Willpower points per story. In addition, each pack member gains +1 Charisma and one temporary point of Honor. 
@@ -1197,8 +1132,6 @@ Many Stargazers devise their own mandalas, personal portraits of their inner sym
 
 Once activated, a mandala will restore one point of lost Willpower and allow a meditation roll to restore Gnosis with a difficulty of only 7. Such powers can be used once per day. 
 
-_54_ 
-
 _**Stargazers**_ 
 
 While the Stargazers originally came from the East, they are now found everywhere in the world, although in small numbers. They choose no single breed of Kinfolk to call their own, instead breeding among those who will best raise their children. They often abandon these Kin for long periods of time, although they rarely leave them unwatched; a kin fetch spirit looks after the family to alert Stargazers to the birth of a Garou. It may be many years before they can come to take the child, but they will eventually find him. In addition, human acolytes who partake of Stargazer wisdom watch for signs of reincarnated masters. 
@@ -1206,8 +1139,6 @@ While the Stargazers originally came from the East, they are now found everywher
 Beyond that, it's hard to pinpoint the "stereotypical" young Stargazer. The path to enlightenment can begin anywhere: many roads, one destination. Stargazers can be black, white, Asian, Native American — and that's even before taking the converts from other tribes into account. Stargazer cubs can be rowdy and instinctive, quiet and introspective, or even materialistic and flighty. Wisdom sometimes picks strange houses to live in before it shows itself. 
 
 _**Incarnations**_ 
-
-_55_ 
 
 **Quote:** _AH-rooo! Wisdom is in the leaves! In the beetles! In your shit!_ 
 
@@ -1253,8 +1184,6 @@ Your mentor encouraged you to continue your studies, to plumb the wisdom of huma
 
 **Equipment:** Suit, notebook and stack of books for annotation 
 
-_60_ 
-
 _**Stargazers**_ 
 
 **Quote:** _Hey, bikkhu! C'mon up the mountain! Get out of those suburbs and breathe some real Buddha air!_ 
@@ -1277,9 +1206,6 @@ backpack (traveling on all fours when nobody watches). If you could find some fr
 
 **----- Start of picture text -----**<br>
 Stargazers<br>**----- End of picture text -----**<br>
-
-
-_62_ 
 
 **Quote:** _Do not mistake my ignorance of your modern world for stupidity. I see the delusion which you live more clearly than you._ 
 
@@ -1305,8 +1231,6 @@ of money-making jobs, you seek only spiritual answers. You will need some friend
 
 **Equipment:** Chinese sword, sash, jeans and t-shirt 
 
-_64_ 
-
 _Stargazers_ 
 
 Not all Stargazers reincarnate into earthly life; some become spirits or minor deities, guiding the way for other beings and protecting them from corruption and delusion. Such a being is Fierce Chakal, spirit protector of all who battle the Weaver's Web of ignorance and deceit. In her last earthly life as a Stargazer, Chakal was the first to teach that the Weaver was the true foe of Truth and that the Wyrm is simply her most apparent victim. 
@@ -1314,8 +1238,6 @@ Not all Stargazers reincarnate into earthly life; some become spirits or minor d
 Her deity form is said to be that of a black-furred, multiarmed Crinos Garou. In her upper right hand she bears her Vajra Klaive, with which she cuts the strongest webs and minds. In her upper left hand she holds a flowering tree, nurtured in her palm. In her lower right hand she holds a flaming pictogram, symbolizing the power of traditional wisdom and the mantra. In her lower left hand she holds a curling snake, symbol of Gaia's earth-power, the original pure Balance and the serpent fire energy which she has awakened in her body. Her right foot stands on the earth, while her left foot steps into the Umbra. 
 
 Stargazers chant Chakal's name when they are confused or beset by distractions: Chakal will remove distractions and center the self. She may also be channeled through Past Lives (five successes). 
-
-_66_ 
 
 But this cult is subtle, and they are aware of the increased scrutiny. They have hid themselves even deeper in conspiracies and false covers. Most Garou still doubt their existence, failing to believe that the Wyrm is so subtle. Fools! With the Weaver as its ally, the Wyrm can hide in anyone's own soul, where it might never be discovered. The Seventh Generation instills corruption in the hearts of the most innocent — the children who have not yet begun to forge their karmas in this life. This taint, unless dealt with openly, will haunt them for many lives to come. 
 
@@ -1344,6 +1266,4 @@ Gonji has suffered threats from his previous tribe, who consider what he has don
 She is somewhat surprised by all this and thinks it is a trick to make her think that she is important. While she has come to accept it, she has as yet no conscious memories of her so-called previous life, and thus she ignores the whole thing for the most part. What she really wants to learn are the martial arts disciplines and meditational tricks. She especially wishes to experience her inner light, and is enamored of the idea. She sees her path with the Stargazers as a light quest for a shard of the sun within herself. 
 
 She goes from caern to caern begging the sages there to let her read the sacred sutras and records, but is more often than not turned away until she has earned more renown and learned more from experience first. This does little to deter her thirst for knowledge. 
-
-_68_ 
 

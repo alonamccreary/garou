@@ -5,7 +5,6 @@
 **----- Start of picture text -----**<br>
 William Burgess (order #57466)<br>**----- End of picture text -----**<br>
 
-
 **==> picture [98 x 9] intentionally omitted <==**
 
 **==> picture [139 x 89] intentionally omitted <==**
@@ -132,7 +131,6 @@ William Burgess (order #57466)<br>**----- End of picture text -----**<br>
 
 **----- Start of picture text -----**<br>
 William Burgess (order #57466)<br>**----- End of picture text -----**<br>
-
 
 ## 
 
@@ -432,8 +430,6 @@ William Burgess (order #57466)<br>**----- End of picture text -----**<br>
 ||Purchase a large business (a few small branches or a single large|
 ||store or service)|
 
-
-
 ||Learn real motivations for many financial actions of others<br>Trace an unsecured small account<br>Raise capital to purchase a small business (single, small store)<br>Purchase a large business (a few small branches or a single large<br>store or service)|
 |---|---|
 ||Manipulate local banking (delay deposits, some credit rating|
@@ -443,8 +439,6 @@ William Burgess (order #57466)<br>**----- End of picture text -----**<br>
 ||a bank “holiday”)|
 ||Ruin a large business|
 ||Purchase a major company|
-
-
 
 ## 
 
@@ -462,8 +456,6 @@ William Burgess (order #57466)<br>**----- End of picture text -----**<br>
 |4|Completely rewrite medical records|
 ||Abuse grants for personal use($250)|
 ||Have minor medical research performed on a subject|
-
-
 
 **==> picture [18 x 21] intentionally omitted <==**
 
@@ -490,8 +482,6 @@ William Burgess (order #57466)<br>**----- End of picture text -----**<br>
 |5|Close down all but the most serious investigations|
 ||Have deportation proceedings held against someone|
 
-
-
 ## 
 
 |cost|Effect|
@@ -505,8 +495,6 @@ William Burgess (order #57466)<br>**----- End of picture text -----**<br>
 ||Ground stories and projects|
 ||Broadcast fake stories (local only)|
 ||Kill small local articlesorreports completely|
-
-
 
 ## 
 
@@ -528,8 +516,6 @@ William Burgess (order #57466)<br>**----- End of picture text -----**<br>
 |5|Get your candidate in a minor office|
 ||Enact encompassing legislation|
 
-
-
 ## 
 
 |cost|Effect|
@@ -548,8 +534,6 @@ William Burgess (order #57466)<br>**----- End of picture text -----**<br>
 ||Have a word in almost all aspects of gang operations|
 |5|Control a single medium-sized gang|
 ||Arrange impressive protestsbystreet people|
-
-
 
 ## 
 
@@ -576,8 +560,6 @@ William Burgess (order #57466)<br>**----- End of picture text -----**<br>
 |**4**|Organize student protests and rallies|
 ||Discredit faculty members|
 |5|Falsify an undergraduate degree|
-
-
 
 ## 
 
@@ -618,8 +600,6 @@ William Burgess (order #57466)<br>**----- End of picture text -----**<br>
 |8|Cars, complex menchanical devices|
 |9|Guns, straightforward machines|
 |10|Knives, levers, simple tools|
-
-
 
 ## 
 
@@ -800,8 +780,6 @@ William Burgess (order #57466)<br>**----- End of picture text -----**<br>
 |Minor|none|none|
 ||Always retest|with_Rituals._|
 
-
-
 ## 
 
 ## 
@@ -924,8 +902,6 @@ William Burgess (order #57466)<br>**----- End of picture text -----**<br>
 |*Conscious cowardice leading to another Garou’s<br>-|**_-5_**|
 |death||
 
-
-
 |**_Honor_**||
 |---|---|
 |**Sample Behavior**|**Award**|
@@ -968,8 +944,6 @@ William Burgess (order #57466)<br>**----- End of picture text -----**<br>
 |a much more powerful force without aid||
 |Accidentally breaking a powerful and necessary|**_-5_**|
 |fetish||
-
-
 
 ## 
 
@@ -1098,8 +1072,6 @@ William Burgess (order #57466)<br>**----- End of picture text -----**<br>
 ||severely limit the use of moon bridges-|<br>a game can be very difficult to||
 |**rn**|conduct if different packs are in different<br>|parts of the world.|**rn**|
 
-
-
 ## 
 
 ## 
@@ -1198,8 +1170,6 @@ William Burgess (order #57466)<br>**----- End of picture text -----**<br>
 |Decaying inner cities|8Traits|
 |Spirit-denying labs, classrooms, etc.|9Traits|
 
-
-
 ## 
 
 |Each caem|has a power level, rated on a scale from1to**_5._**The higher the rating,|has a power level, rated on a scale from1to**_5._**The higher the rating,|
@@ -1233,8 +1203,6 @@ William Burgess (order #57466)<br>**----- End of picture text -----**<br>
 |Wisdom|Rituals or Expression Ability|Owl-spirit, Ancestor.|
 |||spirit|
 |Wyld|Anything|Wyldling|
-
-
 
 ## 
 

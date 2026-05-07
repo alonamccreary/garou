@@ -76,12 +76,7 @@ Check out White Wolf online at http://www.white-wolf.com/ Check out the Onyx Pat
 |Tearlach And Helios|23|Red Talons|42|
 |Wolves of Caledonia|35|
 
-**----- End of picture text -----**<br>
-
-
 _**Table of Contents**_ 
-
-_**11**_ 
 
 **==> picture [469 x 668] intentionally omitted <==**
 
@@ -170,14 +165,7 @@ _**11**_
 |Alcohol|52|
 |Architecture|52|White Howler Gifts|65|Totems of Respect|72|
 
-**----- End of picture text -----**<br>
-
-
-_**12**_ 
-
 _**White Howlers**_ 
-
-**86** 
 
 **==> picture [446 x 133] intentionally omitted <==**
 
@@ -199,9 +187,6 @@ _**White Howlers**_
 |Totems of Cunning|75|Morag “Memory of Stone” 90|
 |Farwalker|84|
 
-**----- End of picture text -----**<br>
-
-
 **==> picture [133 x 40] intentionally omitted <==**
 
 **----- Start of picture text -----**<br>
@@ -211,14 +196,9 @@ _**White Howlers**_
 |Hathawulf Spearbreaker|89|
 |Morag “Memory of Stone” 90|
 
-**----- End of picture text -----**<br>
-
-
 **==> picture [163 x 490] intentionally omitted <==**
 
 _**Table of Contents**_ 
-
-_**13**_ 
 
 ## Introduction 
 
@@ -245,8 +225,6 @@ Unlike the Croatan, whose sacrifice brought about great good, or the Bunyip, who
 Hear now, for the first time, the words of the White Howlers from the tribe itself. Travel back to the beginning of the Common Era and beyond. Gather around the peaty fires, and listen to stories long-thought lost forever, told by those who lived them. Walk among their villages. Taste the sea spray on their shorelines, and hear the whispers of their dead from the shadows. 
 
 Together, we will travel to the past and listen to the tales of the Howlers and their Kin, told in their own 
-
-_**14**_ 
 
 _**White Howlers**_ 
 
@@ -286,8 +264,6 @@ Thank you.
 
 _**Introduction**_ 
 
-_**15**_ 
-
 **==> picture [534 x 735] intentionally omitted <==**
 
 ## Chapter One: History 
@@ -313,8 +289,6 @@ I do not know why, in the face of all we face with the dawn, Lion asks what he h
 May the winds carry my words where Lion wills, across the Gauntlet, across the miles, across whatever boundaries lay between my lips and the ears of those who Lion would have know this. 
 
 _**Chapter One: History**_ 
-
-_**17**_ 
 
 In this, as in all things, I do my duty. I am Morag, called “Memory of Stone.” I entered this world beneath the gibbous moon, destined to tell the tales of my people. Today, I will tell all that I know. 
 
@@ -350,8 +324,6 @@ Humankind was still in its infancy then. Compared to today, our human kin were b
 
 They had no cities, no towns, no walls, nor permanent roofs over their heads. Their tools were barely-worked stone and bone, too weak to build as we do today, so they carried what possessions they had with them. They wore only rough pelts tied around them for clothing, and slept wherever night fell upon them, calling no hill more home than any other. They left no traces behind them, no burial caerns, no houses, and no standing stones. We know of them through the stories told by our Galliards, 
 
-_**18**_ 
-
 _**White Howlers**_ 
 
 **==> picture [528 x 408] intentionally omitted <==**
@@ -373,8 +345,6 @@ Imagine now, a winter harsher than any you have encountered, where each dawn’s
 Imagine the winter that would not end. Not for a year, or a hundred years, or a hundred-hundred-hundred. A winter that stretched on, until the people considered even stories of anything but winter in the past either lies or legends. A winter long enough that tales of anything but ice and cold in the future were dismissed as wishful thinking or children’s folly. 
 
 _**Chapter One: History**_ 
-
-_**19**_ 
 
 Thus was the Great Winter, the age of ice, the long cold night that seemed it would never end. 
 
@@ -407,8 +377,6 @@ Perhaps the most poignant tales on the topic warn against splintering within our
 Until the Great Winter, our tribe had no real contact with the rest of the werewolves in the world. Our duty was to Caledonia, theirs to their own lands, and neither fate nor circumstances brought us together in any significant fashion. The Great Winter drove us from our traditional homeland, and changed all that. 
 
 Our first contact was with the Children of Stag, who call themselves the Fianna. Their territory was the 
-
-_**20**_ 
 
 _**White Howlers**_ 
 
@@ -444,8 +412,6 @@ As the ice pushed us from Caledonia, down into the lands of Stag, we brought wit
 
 _**Chapter One: History**_ 
 
-_**21**_ 
-
 ## The Good Cousins 
 
 Outsiders often distrust our Tribe for our ties with the restless dead. Fearing what they do not understand, they cannot truly appreciate the import that our connection to the spirits of those who have gone before us holds for our kind. Likewise, we could not — cannot, if truth be told, for the situation is largely unchanged to this day — understand the ties that the Children of Stag hold to their unearthly fairy kin. However, despite their alien natures, in the Great Winter Stag’s fae relatives provided aid to their werewolf kith and kin. Moreover, the Fianna, in turn, shared it with us. 
@@ -477,8 +443,6 @@ outsiders, no matter how different their appearance and ways were from ours, and
 While the Great Winter may have driven us from our homeland, we gained something on our journeys. We became more than we had been before. We were part of the Garou Nation. 
 
 It is important to note that this migration did not happen suddenly, nor did any of these changes come about overnight. The Great Winter was a near-eternity; it lasted longer than the White Howlers had been a Tribe before it 
-
-_**22**_ 
 
 _**White Howlers**_ 
 
@@ -523,8 +487,6 @@ Helios was intrigued. “That is a shame. I would have liked to hear that story,
 This was the first time the spirit had deigned to speak 
 
 _**Chapter One: History**_ 
-
-_**23**_ 
 
 to Tearlach, and while his empathy might have left much to be desired, she took it as a sign her plan was working. 
 
@@ -592,8 +554,6 @@ But an ebbing in the tales remembered should not be mistaken for a dereliction o
 
 _**Chapter One: History**_ 
 
-_**25**_ 
-
 Great Winter and the Roman invasion. Quite the opposite. It was, if anything a time of focus, of reclaiming our lands and becoming one with them once again. 
 
 In many places, the Wyrm was quicker than we were to follow the receding ice back into the heart of our homeland. Everywhere our Tribe settled they did so only after reclaiming the land bit by bit from whatever evil had sunk its claws therein. 
@@ -623,8 +583,6 @@ Many of the stories of the early years of Roman invasion make it sound as if our
 It is not, however, that we Garou were lounging about the bawn of our caerns, dining on roast boar and admiring each other’s finery. The invasion of the Romans coincided with a period of heightened Wyrm activity in Caledonia, although whether the two were directly linked or not is a matter of great conjecture, even to this day. During the time that the Romans began to root themselves into our homeland; our warriors were constantly engaged in battle, waging war against the great Wyrm creatures which erupted near-endlessly from beneath the surface of our beloved island, plagued its coastal waters, and polluted the forests and glens of Caledonia. Great leaders such as Hathawulf Spearbreaker and Giselle Bloodfog led their septs to defeat these monsters, but had little time beyond their wars to devote to the everyday encounters of their tribal Kin. 
 
 As if reacting to the intrusion of foreigners upon their soil, the ghosts of countless generations of our people also stirred from slumber during that time. Spirits long silent chose that time to rouse themselves and begin to plague the land. Hungry ghosts haunted villages, angry poltergeists plagued brochs, and night-hags stole children from their beds and tormented expectant mothers across the land. Those White Howlers whose skills ran more to the spiritual than the martial had their hands full attempting to set this sudden upsurge in supernatural activity to rights, and barely had had they lain one ghast to rest before they were called to deal with the next. 
-
-_**26**_ 
 
 _**White Howlers**_ 
 
@@ -657,8 +615,6 @@ Noting this, our elders formulated a desperate plan. They would take the battle 
 We took great care in planning the campaign. The Romans had retreated well beyond our reach, sequestering their headquarters deep in the southernmost parts of the land we call home. It would take a coordinated campaign of stealthy travel and orchestrated attacks in order to accomplish the debilitating blow we needed to strike against their army. Thousands of soldiers were garrisoned beyond the wall, hundreds of fomori, and an unthinkable number of traitorous former Caledonians who had been brought over to the Roman side through bribery, blackmail, or force. 
 
 _**Chapter One: History**_ 
-
-_**27**_ 
 
 This was not a job for a single pack, a solitary sept; it would take the entire Tribe. 
 
@@ -694,8 +650,6 @@ Weeks passed, and as the Garou continued homeward, the portents grew stronger. T
 
 Some feared that the air of apprehension that plagued the travelers was a portent of ambush; they began to see foreign trackers on their heels and refused to pause to make camp, or eat, or rest, pushing themselves and their companions to exhaustion. They crossed the first of the Roman walls, stopping only to mark the carefully set stones with the yellow waters of their disdain as they reclaimed what had been taken from them. 
 
-_**28**_ 
-
 _**White Howlers**_ 
 
 **==> picture [530 x 358] intentionally omitted <==**
@@ -713,8 +667,6 @@ Wherever their Kin had dwelled, be it wolf packs in the deepest forest or hill f
 However, no matter how cruel their deaths, they were merciful compared to the fate of those who survived. 
 
 _**Chapter One: History**_ 
-
-_**29**_ 
 
 ## Our Kin’s Fate 
 
@@ -751,8 +703,6 @@ This grim duty continued far longer than anyone could have anticipated, longer p
 We bore the destruction of our Kin like iron cloaks around our shoulders, garments woven of guilt and pain that no amount of time passing could allow us to put aside. 
 
 Still, even after we had we slain our enemies and returned our sullied Kin to the cycle once more, even as our hearts were broken and our spirits bowed, even then our work was far from finished. Just as our families had been defiled, so had our land. 
-
-_**30**_ 
 
 _**White Howlers**_ 
 
@@ -791,8 +741,6 @@ Finally, the last of our enemies fell, and the tunnel fell silent along with it.
 We entered the chamber, cautious for a trap, and approached the portal even more cautiously. Our seers 
 
 _**Chapter One: History**_ 
-
-_**31**_ 
 
 and those adept with the sight spoke of the foulness of this place, and even worse lay beyond. The sigils around the portal drove one Theurge mad, frothing at the mouth like a rabid dog. The others increased their care, fearful of sharing his fate. Still, the need to know what lay beyond, what was at the heart of this pit, drove them onward. 
 
@@ -837,8 +785,6 @@ As surprised as I was to find myself speaking, I was even more so to realize tha
 ## A Call Goes Out 
 
 Therefore, leaving guards and messengers in the cavern to watch the portal, we returned to our septs carrying word of what we had seen. Recognizing this was more than a matter of our own land and people, we sent word 
-
-_**32**_ 
 
 _**White Howlers**_ 
 
@@ -894,15 +840,12 @@ I must go on.
 
 _**Chapter One: History**_ 
 
-_**33**_ 
-
 **==> picture [536 x 736] intentionally omitted <==**
 
 **==> picture [486 x 306] intentionally omitted <==**
 
 **----- Start of picture text -----**<br>
 Chapter Two:<br>Culture<br>**----- End of picture text -----**<br>
-
 
 I have spoken of the history of my people, but that is much like telling the shape of a thing without speaking of its nature. We are more than our past, more than our present, more than whatever it is that will come upon the dawn. We are White Howler, and to know us is to know of our duty, our ways, our minds, and our hearts. 
 
@@ -926,8 +869,6 @@ Silent death on snow-white paws, our wolf Kin are unmatched for their ferocity, 
 
 _**Chapter Two: Culture**_ 
 
-_**35**_ 
-
 Their fur is as silver-white as ours is in our pelted forms, broken with grey-black markings making them nearly invisible whether along the foggy shorelines or in the depths of the darkest forests. Their limbs are long and strong, and they’re easily half-again the height and more than twice the bulk of the deerhounds kept by our human Kin. Storytellers say that in the oldest of times, before and during the Great Winter, it was not unusual for our Kin to rival a man in height even with all four paws on the ground. While that is rare in these times, it is still not unheard of, a circumstance that has fostered many legends among human taletellers. 
 
 No animal is faster in the forest than our wolves; a greyhound might outdistance them on the open meadow, but in the woods, our Kin are unstoppable. Their coats are thick enough to ford thickets and brambles like they were passing through a fogbank, and their strength and speed make them impossible to escape once they’re on the trail of their prey. A full-grown bear or boar might be the match for a single wolf, but an entire pack can bring down either without great effort. Their instinctive ability to move as if they knew each other’s thoughts, even without the benefit of any spirit-granted Gifts, is remarkable to watch. Many of our wolf-born number spend at least a portion of their time in the company of Kin-packs, using the wolves’ knowledge of the depths of the wilderness to ferret out even the most elusive manifestations of Wyrm-kind. 
@@ -947,8 +888,6 @@ The Garou of Caledonia have not always had the name they now bear. When Gaia fir
 It was not until after the Great Winter scoured the islands, driving the Garou of Caledonia across the ice to the continent, that they encountered other werewolves. Those early encounters were a mixed lot. Sometimes the Caledonians and their continental cousins exchanged stories and goods, and sometimes insults and bloody blows. The werewolves of the mainland were brave and strong, but the Garou of Caledonia had the advantage of generations in the harsh terrain of their now ice-ravaged homeland. They haunted the glacier’s edge as the great ice pushed ever further inland, descending upon whatever Wyrm-threats they encountered with spine-chilling howls of ferocity. Their bravery knew no bounds; the unyielding Caledonian warriors were well accustomed to overwhelming odds and inhospitable battle conditions. Their ice-white pelts made them almost invisible along the glacial wastes, and their legend spread among the rest of the Garou nation, who named them for their color and their call — the White Howlers — knowing nothing else of their formerly isolated cousins. 
 
 The Great Winter stretched on for generation after generation. Over time, the White Howlers came to know and be known by the rest of the nation as more than just a story whispered around the hearth fire. But names have power. Even after the snows receded, and our people returned to our native islands, the name White Howler brings back memories of those fiercest of times. To this very day, we continue to use it, with pride and honor. 
-
-_**36**_ 
 
 _**White Howlers**_ 
 
@@ -971,8 +910,6 @@ the tribes. Their people build huge hillforts, in part to protect them from the 
 **Damnonii:** Once a peace-loving tribe of farmers who dwelled in the central area of Caledonia near where the Romans built their northern wall. They were scattered or absorbed by the Votadinii after the Roman’s incursion into our homeland. 
 
 _**Chapter Two: Culture**_ 
-
-_**37**_ 
 
 **Decantae:** While most of our people will have nothing to do with the fae Kin of our cousins, the Fianna, “The Good Folk” who make their home along the shoreline of the great Moray Firth take great pride in their ties to the faeries. 
 
@@ -1005,8 +942,6 @@ Perhaps the clearest difference between members of our Tribe is that of our birt
 ## Lupus 
 
 Legends say that during the Great Winter, our human Kinfolk were unable to survive on the ice floe that Caledonia became. This drove them and the Garou who protected them, their family members, and the Mactire camp, away from their native homeland for millennia. Only those who were wolf-born, or who were willing to survive without human contact, remained to uphold the White Howler’s sacred duty to our land. And for millennia, while most of our tribe was scattered to the four winds, our lupus endured endless winter and unyielding cold in order to protect our homeland. In that time, they grew stronger, wilder, and fiercer. During the Great Winter, only the strongest could survive. 
-
-_**38**_ 
 
 _**White Howlers**_ 
 
@@ -1050,8 +985,6 @@ Those born to the crescent moon hold the key to our lives as more than mortal cr
 
 _**Chapter Two: Culture**_ 
 
-_**39**_ 
-
 They are tasked with holding the secrets of magic, which man was never meant to know and wolf cannot hope to understand. In their hands, ritual becomes more than words and actions; it transforms the world around them. 
 
 The world of the Theurge is ephemeral; the spirits of nature and of our ancestors, of emotions and thoughts and forces far beyond our ken are both duty and tool to them. They serve as diplomats to our Kin and kine who have fallen but been unable to return to the cycle, easing their pain and guiding them on their journey onward. They speak for us to Gaia, and Her kind, to the spirits of this world and the ones beyond, and to alien creatures whose souls, if they possess them at all, are indecipherable to any but the crescent moons. 
@@ -1091,8 +1024,6 @@ Theirs is the way of fire, and like fire, they are capable of all extremes. They
 Known as both “The Silent Ones,” and “The Deaf Ones,” the Boderia serve as a direct conduit between the White Howlers and the dead: the ghosts of their ancestors, fallen comrades, and even slain enemies. While all of the Tribe shares a sacred duty to give honor to those who have come before them and to ensure that the dead do no harm to the living, the Boderia take this role as their lives’ calling. 
 
 The Silent Ones perform the rituals that pay homage to those who have gone before, supervise burials to help 
-
-_**40**_ 
 
 _**White Howlers**_ 
 
@@ -1156,8 +1087,6 @@ There were rumors of Garou in the service of the invading army, silver-pelted ge
 
 While individual septs have customs and laws that are unique unto themselves, the Litany remains constant. These rules are not the purview of any individual or 
 
-_**42**_ 
-
 _**White Howlers**_ 
 
 group of Garou to alter or ignore. They are our sacred mandates, passed down from our creator, and form the foundation of our Tribe. 
@@ -1200,8 +1129,6 @@ All aspects of our life are a part of a cycle, and death comes to us all in time
 
 _**Chapter Two: Culture**_ 
 
-_**43**_ 
-
 we will not return as one of the restless dead. We, whose duties include tending to the no-longer-living have seen the ravages that a ghost can wreak upon those who still live. We have dealt with the aftermath of those who are unwilling to go on, who cling to this life so tenaciously that they become trapped in this world long after their breath has stopped. 
 
 To fight the cycle is not only to consign one’s own fate to separation from Gaia, perhaps for all of eternity. The act also condemns one’s friends and family members to the torment of dealing with that which was once their fellow but is no longer. It is unjust. It is unfair. It is selfish. 
@@ -1240,8 +1167,6 @@ Those times were shameful. Those times are no more. Humankind’s memory is shor
 
 We are not the masters of humankind, nor monsters for them to fear, save when they serve the purposes of 
 
-_**44**_ 
-
 _**White Howlers**_ 
 
 the Wyrm beyond redemption. Gaia has tasked us to protect humanity; to ensure that Her creations, no matter how weak, survive to fulfill their duties to Her. And part of that protection is to keep them unknowing. We must avoid deepening the cracks that our ancestors put in their hearts, and minds, and souls; those fissures are places for the Wyrm to creep in and plant its seeds of corruption, hate, and fear. 
@@ -1272,8 +1197,6 @@ The sun is rising, and my story is done. I can only hope that whatever awaits us
 
 _**Chapter Two: Culture**_ 
 
-_**45**_ 
-
 **==> picture [537 x 730] intentionally omitted <==**
 
 ## Chapter Three: The White Howlers’ World 
@@ -1293,8 +1216,6 @@ Most people aren’t overly familiar with the actual facts about the times thous
 As well, when dealing with long-ago times and far-away places with no real frame of reference, different eras and locations can blur together. This can create a faux amalgam of very different cultures, the equivalent of a modern US soldier wearing the uniform of a nineteenth century Mexican soldier while wielding a Civil War saber and a 
 
 _**Chapter Three: The White Howlers' World**_ 
-
-_**47**_ 
 
 ## A Different History 
 
@@ -1327,8 +1248,6 @@ While the history of the White Howlers extends back to the creation of the Tribe
 During the four centuries from 200 B.C. to A.D. 200, the White Howlers went from a dedicated Tribe protecting their homeland and Kin, to the most depraved legion of enemies the Garou Nation would ever battle. Their contact and conflict with the Roman Empire started a tragic story that ended with the death of a millennia-old Tribe, and the birth of an entirely new tool for the forces of evil. 
 
 While personal sacrifice for the greater good is a vital element in the telling of Garou tales, the White Howlers’ zenith stands as a haunting reminder that there are no guarantees in the war against the Wyrm. Sometimes, noble intention and selfless sacrifice are not enough. When combating the embodiment of corruption, perversion, and pollution, there are far greater consequences than failure, and far worse fates than death. 
-
-_**48**_ 
 
 _**White Howlers**_ 
 
@@ -1368,8 +1287,6 @@ The Antoine Wall lies approximately a hundred miles north of Hadrian ’s Wall, 
 
 _**Chapter Three: The White Howlers' World**_ 
 
-_**49**_ 
-
 **==> picture [539 x 355] intentionally omitted <==**
 
 Pius, and finished in A.D. 154. The building of this wall is likely one of the triggering factors that encouraged the White Howlers’ retaliatory strike against the Roman leaders’ headquarters. Unlike Hadrian’s Wall, which roughly fell across the border between Caledonia and Romanheld land, the Antoine Wall was well into Caledonian territory. As such, it suffered significant resistance from the native tribes, and the Romans eventually abandoned it around A.D. 160. 
@@ -1387,8 +1304,6 @@ The various tribes of White Howler Kinfolk and the septs they related to were in
 ## Technology and Culture 
 
 Archeologists have uncovered very little evidence about the cultures of human tribes that inhabited Caledonia during the era before the Romans invaded. Because the native tribes did not create elaborate burial mounds, leave behind written texts, or trade enduring 
-
-_**50**_ 
 
 _**White Howlers**_ 
 
@@ -1428,8 +1343,6 @@ Iron pots and cookware were common, and many foods were boiled, stewed, roasted 
 
 _**Chapter Three: The White Howlers' World**_ 
 
-_**51**_ 
-
 Salt harvested from seawater was a preservative, as well as a seasoning. Wide varieties of native herbs were used in cooking as well as for medicinal purposes. Honey was the only real sweetener available, and used for medicinal benefits, both when taken internally, and when used topically as an antiseptic. 
 
 Sustenance was a potential weak spot in every tribe and village’s proverbial armor. An enemy — supernatural or otherwise — who was willing to burn fields, taint waterways and forests, or otherwise impact food supplies was just as deadly as one who slit throats. Ensuring that their Kinfolk had sufficient food was a very real concern for the White Howlers, who knew that their lines could die out just as easily through starvation as through slaughter. 
@@ -1465,8 +1378,6 @@ Even after the advent of agriculture allowed Caledonian tribes to form settlemen
 Some hillforts became permanent. Dwellings, farms, and other vital settlements were sometimes within the defensive perimeters of the hillfort, offering those that dwelled within them a long-term protection from outside invasion by man or beast. Other times, hillforts were a “fallback” point, where those in the area could retreat in times of trouble or attack. Some were used only seasonally, as gathering points for trade, rituals, etc. The same walls that protected against attack could also corral animals in preparation for slaughter, or at other times when gathering a herd in was necessary. 
 
 They sometimes used these same styles of architecture for sept buildings, simple stone defenses for protecting whatever artifacts, holy items, weaponry, or other goods not currently carried by the sept members. As well, they could provide defensible areas for sleeping, eating, training cubs, healing wounded warriors, item construction, and the other day-to-day aspects of Garou life most easily conducted under the protection of a stone roof. 
-
-_**52**_ 
 
 _**White Howlers**_ 
 
@@ -1522,8 +1433,6 @@ Wool from domesticated sheep is the major source of fiber for clothing in Caledo
 
 Cloth creation was highly developed by this period. Weavers spun fiber, by hand via drop spindles, and used a variety of types of looms (both stationary and portable) to create flat lengths of cloth in elaborate patterns, including tartans or plaids. Threads were sometimes dyed before weaving, although sometimes the cloth was left undyed, or dyed after being woven. Knitting and crochet were not developed until long after this period, although knotting (as used in nets and the like) was commonly used. 
 
-_**54**_ 
-
 _**White Howlers**_ 
 
 ## Plaids and Kilts 
@@ -1562,8 +1471,6 @@ Fighting happened either on foot, or from horseback, in a light guerilla style o
 
 _**Chapter Three: The White Howlers' World**_ 
 
-_**55**_ 
-
 and cunning, much of which was a result of the close ties the human tribes had with their Garou relations. Werewolf warriors often took it upon themselves to teach pack-style tactics to promising bands of human fighters from the tribes they fostered. 
 
 ## Weapons 
@@ -1591,8 +1498,6 @@ Most Caledonii lived their entire lives, and died, within miles of their birthpl
 Carts, drawn by horses or oxen, were used both as personal transportation and to carry goods. Single axle chariots with spoked wheels may have been used both for war and for entertainment, albeit rarely. As no intact chariots of this period have been discovered in Scotland, however, it’s difficult to tell whether the rare depictions of chariots from Caledonii art of this period represent items that were in actual use by the people there, or are representations of Roman items or stories from other times and places. 
 
 The terrain challenges of Caledonia, combined with the lack of established roads, contributed strongly to an atmosphere of isolation between the Septs and tribes of 
-
-_**56**_ 
 
 _**White Howlers**_ 
 
@@ -1634,8 +1539,6 @@ Cuneiform are wedge-shaped marks struck into clay tablets, and is one of the old
 
 _**Chapter Three: The White Howlers' World**_ 
 
-_**57**_ 
-
 the White Howler’s zenith, cuneiform was being used as a form of writing elsewhere in the world, especially in the Middle East and cultures that interacted heavily with that region. 
 
 ## Phoenician 
@@ -1671,8 +1574,6 @@ In 55 B.C., Roman general Julius Caesar invaded the British Isles with 10,000 tr
 ## Modern Era 
 
 As the White Howler Tribe fell almost two thousand years ago, most stories featuring them will be set in the past. It is however possible to incorporate the White Howlers into modern stories and each possibility offers its own advantages and opportunities to explore different themes in a storyline. 
-
-_**58**_ 
 
 _**White Howlers**_ 
 
@@ -1734,8 +1635,6 @@ Little space exists for people of peace among societies founded on war, but the 
 
 The European Garou’s acts during the Impergium mortified the Croatan, who withdrew to what would later be called North America to escape their brethren’s hostil- 
 
-_**60**_ 
-
 _**White Howlers**_ 
 
 ity against humanity. This separation came thousands of years before the White Howlers’ zenith, and existed for hundreds of years after it. It is not surprising then, that Middle Brother did not heed the call put out by the Howlers. 
@@ -1775,8 +1674,6 @@ While their homeland in Central Europe was the dividing line between the expansi
 At this time, however, they were hard-pressed in conflict between the surging Roman Empire, the Germanic tribes from the west, and the Sarmatians from the southeast. Struggling to hold their homeland and protect 
 
 _**Chapter Three: The White Howlers' World**_ 
-
-_**61**_ 
 
 their own Kin while attempting to fulfil their duty as Gaia’s kingmakers, the Shadow Lords had little time to attend to the worries of a tribe far beyond their territory. 
 
@@ -1818,8 +1715,6 @@ The information provided in this chapter is but the briefest glance at the histo
 
 **The Art of the Picts: Sculpture and Metalwork in Early Medieval Scotland** by George and Isabel Henderson – A photo-laden treasure trove of graphic representations of the sorts of wonders the early Scottish people were capable of creating. 
 
-_**62**_ 
-
 _**White Howlers**_ 
 
 **A New History of the Picts** by Stuart McHardy – This book integrates modern research and academic historic perspective in a manner that is both accessible and informative. 
@@ -1833,8 +1728,6 @@ _**White Howlers**_
 **==> picture [174 x 526] intentionally omitted <==**
 
 _**Chapter Three: The White Howlers' World**_ 
-
-_**63**_ 
 
 **==> picture [536 x 734] intentionally omitted <==**
 
@@ -1866,8 +1759,6 @@ are underscored with inky shadows, the cobalt deepening to nearly blue-black. Te
 
 _**Chapter Four: Powers**_ 
 
-_**65**_ 
-
 ficulty. If the target doesn’t break the hold for a number of rounds equal to twice her Stamina, she is rendered unconscious. Once a target is unconscious, she takes a level of lethal damage from the hold each turn, and cannot regenerate this damage until the hold is released. 
 
 • **Spectral Authority (Level Two)** — As the Philodox Gift: Call to Duty, but allows the Garou to command any ghost she knows by their full name. Unlike Call to Duty, this may only be used on a single ghost at one time. This gift is taught by a wolf-spirit. 
@@ -1895,8 +1786,6 @@ This Gift does not cleanse the area, and simply collapsing a pit creates a feste
 **System:** The Garou must mark the victim with her bodily fluids, then the player rolls Intelligence + Occult (difficulty of the target’s Willpower). The victim is haunted by bloody visions of any living creature larger than an insect dead by her hands. The visions last for one day per success. The more deaths the victim has been responsible for, the more vivid and distracting the visions. Each day, the victim must make a Willpower roll to avoid losing a temporary point of Willpower. The difficulty of this roll ranges from 4 to 9; 4 for an all-but-innocent who has only set mouse traps and accidentally run over an opossum; 7 for an average Garou, and 9 for a vampire with centuries of slaughter on his hands. The amount of remorse the character would ordinarily feel has no bearing on the curse; a vampire who cares nothing for the people he’s drained to death will still be horribly distracted as his victims appear far more real and far more frequently. 
 
 While the Gift is in effect, the victim cannot recover temporary Willpower. Once the victim’s temporary 
-
-_**66**_ 
 
 _**White Howlers**_ 
 
@@ -1929,8 +1818,6 @@ In addition to the rites known to the rest of the Garou Nation, the White Howler
 Being born into the war against the Wyrm does not necessarily give one the resources to endure the tragedies and horrors of that war. This ritual allows someone who has seen or experienced a debilitating event to purge it from her mind permanently. 
 
 _**Chapter Four: Powers**_ 
-
-_**67**_ 
 
 **System:** Most often, this ritual is performed for, rather than by, the target of the rite, to help him recover from trauma, whether he’s human, Kinfolk, or Garou. Upon successful completion of the rite, a memory of up to ten minutes can be erased from the target’s mind. It’s replaced with a new memory that, while not directly contradictory to the outcome of the missing scene, is easier to live with. The direct witness to a torture may remember that scene took place behind a closed door; the memory of stumbling across a mangled body might now include a conveniently placed blanket to block the worst of the gore; a rape victim may now remember that they passed out before the violation. 
 
@@ -1970,8 +1857,6 @@ If the roll fails, the tattoo is displeasing and the spirit offended. The ritema
 
 Only one attempt may be made at creating a Sacred Tattoo dedicated to any individual spirit, or in the case of weaker spirits, any general spirit type (such as “firespirit” or “wolf-spirit”). 
 
-_**68**_ 
-
 _**White Howlers**_ 
 
 ## Rite of the Sacred Tattoo 
@@ -1980,7 +1865,6 @@ _**White Howlers**_
 
 **----- Start of picture text -----**<br>
 Spirit Level Relation Effect<br>Gaia Incarna  Sacred Mother When regaining Gnosis by any means, regain<br>double the normal amount.<br>Luna Incarna  Lunar Matron Gain the effects of the Merit: Moon-Bound. This<br>stacks with the effects if the character already pos-<br>sesses that Merit.<br>Lion Incarna Tribal Patron May spend one additional Rage per turn.<br>Spirit Incarna avatar/  Pack Totem Gains the effects of the Gift: Mindspeak with pack<br>Gaffling members. If already possesses Mindspeak, costs no<br>Willpower for pack member communication.<br>Spirit Incarna avatar/  Personal Totem Gain one extra die on all social rolls dealing with<br>Gaffling any spirit in totem’s Brood.<br>Spirit — Non-Totem No additional effect<br>**----- End of picture text -----**<br>
-
 
 ## Rite of Sacred Art 
 
@@ -2021,8 +1905,6 @@ You’ve grown up in the harshest of environments, and you’ve learned to ignor
 Your sense of direction is infallible. Even underground, you are always aware of which direction is north, and you are at -1 to all difficulties to navigate or find your way. This Merit stacks with other Merits, such as Subterranean Affinity and Barrow Sense. 
 
 _**Chapter Four: Powers**_ 
-
-_**69**_ 
 
 ## Subterranean Affinity (3 pt. Merit) 
 
@@ -2071,8 +1953,6 @@ You distrust those outside of your own Tribe, and find it difficult to work with
 ## Prophetic Visions (2 pt. Merit) 
 
 The veil between worlds is thin for you, and you are sometimes afforded glimpses of what the future may 
-
-_**70**_ 
 
 _**White Howlers**_ 
 
@@ -2132,8 +2012,6 @@ This talen is a thick paste created from awakened glastum, the common woad plant
 
 _**Chapter Four: Powers**_ 
 
-_**71**_ 
-
 stance is used to create fierce symbols on the wearer’s skin or pelt. The sigils act as a temporary form of armor, adding one die to the wearer’s soak rolls for all forms of damage for the duration of the scene. 
 
 To create mad woad, one must awaken woad plants, and then distill them into an indigo dye, mixing the completed pigment with fat or grease to form a thick paint. 
@@ -2188,8 +2066,6 @@ Elk is built to bear the heavy burden of its antler crown, just as lawgivers mus
 
 **Background Cost:** 5 
 
-_**72**_ 
-
 _**White Howlers**_ 
 
 Proud and strong, Lion is the master of all he surveys. He is an expert tracker, a strong fighter, and a noble leader. Those who he protects can be assured of their safety; while Lion walks, no harm will come to them. As for those who would invade his territory, usurp his mantle, or harry those he calls his own? Woe be to them, for Lion is as unforgiving as he is regal. 
@@ -2209,8 +2085,6 @@ Elders and those who are particularly respectful of tradition are wellinclined t
 **Modern Times:** When the tribe it patronized fell to the Wyrm, it was a massive blow to Lion’s none-too-meager pride.  If a spirit can be said to fall into Harano, that was Lion’s state when Griffin found him. Unwilling to allow this Totem to fall into suicidal slumber, Griffin harried the morose Lion until at last the cat-spirit roared in outrage and rose to do battle with its tormentor. 
 
 _**Chapter Four: Powers**_ 
-
-_**73**_ 
 
 **Pack Traits:** Packs who follow Lion gain three dots in Animal Ken, as well as two Willpower points per story. 
 
@@ -2298,8 +2172,6 @@ Gallia is an ancient, fiery, fertility goddess, the embodiment of creative energ
 
 _**Chapter Four: Powers**_ 
 
-_**75**_ 
-
 **Ban:** Gallia asks her followers to respect other creative beings, by being a good audience to performers or patronizing talented artists and craftsmen whenever possible. 
 
 ## Kelpie 
@@ -2318,8 +2190,6 @@ Not all battles are won through might; Kelpie teaches how to use an enemy’s ow
 
 **==> picture [158 x 477] intentionally omitted <==**
 
-_**76**_ 
-
 _**White Howlers**_ 
 
 ## Appendix One: Sample Characters 
@@ -2329,8 +2199,6 @@ Perhaps more than any modern tribe, the White Howlers share a common history, a 
 Still, even within their tribe, there is great variation of experience, outlook, and aptitude. Here are five sample White Howler characters that reflect some of that diversity. 
 
 _**Appendix One: Sample Characters**_ 
-
-_**77**_ 
 
 ## Nomadic Spy 
 
@@ -2346,27 +2214,13 @@ of information, from Roman camps, Fianna caerns, and neighboring tribes’ settl
 
 **Equipment:** Children’s clothing, iron knife 
 
-_**78**_ 
-
 _**White Howlers**_ 
 
 **==> picture [65 x 139] intentionally omitted <==**
 
 **==> picture [65 x 139] intentionally omitted <==**
 
-**Name: Breed: Metis Pack Name: Player: Auspice: Ragabash Pack Totem: Chronicle: Tribe: White Howlers Concept: Nomadic Spy**     Strength___________● **OOOOO** Charisma___________●●● **OOOOO** Perception__________●●● **OOOOO** Dexterity__________●●● **OOOOO** Manipulation________●●●● **OOOOO** Intelligence_________●●● **OOOOO** Stamina___________●● **OOOOO** Appearance_________●● **OOOOO** Wits______________●●●● **OOOOO**     Alertness___________●● **OOOOO** Animal-Ken_________ **OOOOO** Academics__________ **OOOOO** AthleticsBrawl_________________________ **OOOOOOOOOO** CraftsEtiquette_________________________ **OOOOOOOOOO** CultureEnigmas_______________________● **OOOOOOOOOO** Empathy___________●● **OOOOO** Larceny____________●●● **OOOOO** Investigation________● **OOOOO** Expression__________●● **OOOOO** Melee_____________ **OOOOO** Law______________● **OOOOO** Intimidation________ **OOOOO** Performance_________● **OOOOO** Medicine___________● **OOOOO** Leadership__________ **OOOOO** Ranged_____________ **OOOOO** Occult____________● **OOOOO** Primal-Urge_________● **OOOOO** Ride______________ **OOOOO** Rituals____________ **OOOOO** Streetwise__________●●● **OOOOO** Stealth____________●●● **OOOOO** Science____________ **OOOOO** Subterfuge__________●● **OOOOO** Survival____________●● **OOOOO** Technology_________ **OOOOO** _________________ **OOOOO** _________________ **OOOOO** _________________ **OOOOO**     
-
-_________________Allies ● **OOOOO** _______________________Blood-Scent _______________________ _________________Contacts ●● **OOOOO** _______________________Open Seal _______________________ _________________Kinfolk ●● **OOOOO** _______________________Persuasion _______________________ _________________ **OOOOO** _______________________ _______________________ _________________ **OOOOO** _______________________ _______________________ 
-
-_______________________ _______________________ 
-
-_______________________ _______________________  
-
- ● **O O O O O O O O O O**  
-
 ##  
-
- 
 
 |Bruised|||
 |---|---|---|
@@ -2377,19 +2231,7 @@ _______________________ _______________________ 
 |Crippled|–5||
 |Incapacitated|||
 
-
-
 > **O** ● **O O O O O O O O O**  
-
- **O O O O O O O O O O**   **O** ●● **O O O O O O O O O**  
-
- ●●● **O O O O O O O O O O**  
-
- 
-
- ●●● **O O O O O O O O O O**  
-
- 
 
 1 - Cliath 
 
@@ -2415,21 +2257,11 @@ You woke on the river bank, body healed, but mind full of curiosity about the my
 
 **==> picture [65 x 139] intentionally omitted <==**
 
-**Name: Breed: Pack Name: Lupus Player: Auspice: Ragabash Pack Totem: Chronicle: Tribe: White Howlers Concept: Salmon Eater**     Strength___________●● **OOOOO** Charisma___________●●● **OOOOO** Perception__________●●●● **OOOOO** Dexterity__________●● **OOOOO** Manipulation________●●● **OOOOO** Intelligence_________●●● **OOOOO** Stamina___________●● **OOOOO** Appearance_________●●● **OOOOO** Wits______________●●● **OOOOO**     Alertness___________ **OOOOO** Animal-Ken_________●● **OOOOO** Academics__________ **OOOOO** Athletics____________ **OOOOO** Crafts_____________● **OOOOO** Culture____________ **OOOOO** Brawl_____________ **OOOOO** Etiquette____________● **OOOOO** Enigmas___________●●● **OOOOO** Empathy___________●● **OOOOO** Larceny____________● **OOOOO** Investigation________●●● **OOOOO** Expression__________● **OOOOO** Melee_____________ **OOOOO** Law______________ **OOOOO** Intimidation________ **OOOOO** Performance_________ **OOOOO** Medicine___________● **OOOOO** Leadership__________ **OOOOO** Ranged_____________ **OOOOO** Occult____________●●● **OOOOO** Primal-Urge_________●● **OOOOO** Ride______________ **OOOOO** Rituals____________●●● **OOOOO** Streetwise__________ **OOOOO** Stealth____________●● **OOOOO** Science____________ **OOOOO** Subterfuge__________ **OOOOO** Survival____________●● **OOOOO** Technology_________ **OOOOO** _________________ **OOOOO** _________________ **OOOOO** _________________ **OOOOO** 
-
 ##    
 
 ##  
 
-_________________Spirit Heritage ●● **OOOOO** _______________________Heightened Senses _______________________ _________________(Elemental Spirits) **OOOOO** _______________________Sense Wyrm _______________________ _________________Rites ●●● **OOOOO** _______________________Spirit Speech _______________________ _________________ **OOOOO** _______________________ _______________________ _________________ **OOOOO** _______________________ _______________________ 
-
-_______________________ _______________________  
-
- ●● **O O O O O O O O O O**   ●●●●● **O O O O O O O O O O**  
-
 ##  
-
- 
 
 |Bruised|||
 |---|---|---|
@@ -2440,17 +2272,7 @@ _______________________ _______________________ 
 |Crippled|–5||
 |Incapacitated|||
 
-
-
-**O O O O O O O O O O**   **O O O O O O O O O O**   **O** ●●● **O O O O O O O O O**  
-
- 
-
- 
-
 ##  
-
-●●● **O O O O O O O O O O**  
 
 1 - Cliath 
 
@@ -2472,8 +2294,6 @@ Your detractors, on the other hand, fear that you are too naïve and see the wor
 
 **Equipment:** Elk-skin cloak, hand-carved antler tools 
 
-_**82**_ 
-
 _**White Howlers**_ 
 
 **==> picture [65 x 139] intentionally omitted <==**
@@ -2482,19 +2302,11 @@ _**White Howlers**_
 
 **==> picture [65 x 139] intentionally omitted <==**
 
-    Strength___________●● **OOOOO** Charisma___________●●● **OOOOO** Perception__________●●●● **OOOOO** Dexterity__________●● **OOOOO** Manipulation________●●● **OOOOO** Intelligence_________●● **OOOOO** Stamina___________●● **OOOOO** Appearance_________● **OOOOO** Wits______________●●● **OOOOO**     Alertness___________●● **OOOOO** Animal-Ken_________ **OOOOO** Academics__________●● **OOOOO** Athletics____________ **OOOOO** Crafts_____________● **OOOOO** Culture____________ **OOOOO** Brawl_____________ **OOOOO** Etiquette____________●● **OOOOO** Enigmas___________●●● **OOOOO** Empathy___________●●● **OOOOO** Larceny____________ **OOOOO** Investigation________●●● **OOOOO** Expression__________●● **OOOOO** Melee_____________● **OOOOO** Law______________●●● **OOOOO** Intimidation________●● **OOOOO** Performance_________ **OOOOO** Medicine___________ **OOOOO** Leadership__________ **OOOOO** Ranged_____________ **OOOOO** Occult____________●● **OOOOO** Primal-Urge_________ **OOOOO** Ride______________ **OOOOO** Rituals____________ **OOOOO** Streetwise__________ **OOOOO** Stealth____________● **OOOOO** Science____________ **OOOOO** Subterfuge__________ **OOOOO** Survival____________ **OOOOO** Technology_________ **OOOOO** _________________ **OOOOO** _________________ **OOOOO** _________________ **OOOOO** 
-
 ##    
 
 ##  
 
-_________________Totem (Elk) ●●●●● **OOOOO** _______________________Persusasion _______________________ _________________ **OOOOO** _______________________Sense Wyrm _______________________ _________________ **OOOOO** _______________________Truth of Gaia _______________________ _________________ **OOOOO** _______________________ _______________________ _________________ **OOOOO** _______________________ _______________________   
-
- ●●● **O O O O O O O O O O**  
-
 ##  
-
- **O O O O O O O O O O**   **O** ●●● **O O O O O O O O O**   **O O O O O O O O O O**  
 
 |Bruised|||
 |---|---|---|
@@ -2504,18 +2316,6 @@ _________________Totem (Elk) ●●●●● **OOOOO** _______________________Pe
 |Mauled|–2||
 |Crippled|–5||
 |Incapacitated|||
-
-
-
- ● **O O O O O O O O O O**  
-
- 
-
- 
-
- 
-
-●●● **O O O O O O O O O O**  
 
 1 - Cliath 
 
@@ -2531,8 +2331,6 @@ Your First Change came when one of your wanders brought you between a hungry mot
 
 **Concept:** There’s a big world out there, beyond your village, full of people doing exciting things. You plan on being one of them. You don’t just want to hear stories of others’ exploits; you want to be there beside them, howling and laughing the whole way. Encouraging others to drink deeply of life, and doing so yourself, is more than a passion for you; it’s your Gaia-given duty, and one you take seriously. 
 
-_**84**_ 
-
 _**White Howlers**_ 
 
 **==> picture [65 x 139] intentionally omitted <==**
@@ -2540,12 +2338,6 @@ _**White Howlers**_
 **Name: Breed: Homid Pack Name: Player: Auspice: Galliard Pack Totem: Chronicle: Tribe: White Howlers Concept: Farwalker** 
 
 **==> picture [65 x 139] intentionally omitted <==**
-
-    Strength___________●●● **OOOOO** Charisma___________●● **OOOOO** Perception__________●●● **OOOOO** Dexterity__________●● **OOOOO** Manipulation________●● **OOOOO** Intelligence_________●●● **OOOOO** Stamina___________●●● **OOOOO** Appearance_________●● **OOOOO** Wits______________●●●● **OOOOO**     Alertness___________● **OOOOO** Animal-Ken_________●● **OOOOO** Academics__________ **OOOOO** Athletics____________● **OOOOO** Crafts_____________●● **OOOOO** Culture____________ **OOOOO** Brawl_____________●●● **OOOOO** Etiquette____________ **OOOOO** Enigmas___________● **OOOOO** Empathy___________● **OOOOO** Larceny____________ **OOOOO** Investigation________●● **OOOOO** Expression__________● **OOOOO** Melee_____________●● **OOOOO** Law______________● **OOOOO** Intimidation________ **OOOOO** Performance_________● **OOOOO** Medicine___________● **OOOOO** Leadership__________ **OOOOO** Ranged_____________ **OOOOO** Occult____________ **OOOOO** Primal-Urge_________● **OOOOO** Ride______________ **OOOOO** Rituals____________ **OOOOO** Streetwise__________ **OOOOO** Stealth____________●●● **OOOOO** Science____________ **OOOOO** Subterfuge__________● **OOOOO** Survival____________●●● **OOOOO** Technology_________ **OOOOO** _________________ **OOOOO** _________________ **OOOOO** _________________ **OOOOO**     
-
-_________________Ancestors ●●● **OOOOO** _______________________Beast Speech _______________________ _________________Pure Breed ●● **OOOOO** _______________________Haunting Howl _______________________ _________________ **OOOOO** _______________________Smell of Man _______________________ _________________ **OOOOO** _______________________ _______________________ _________________ **OOOOO** _______________________ _______________________   
-
-   ●●●● **O O O O O O O O O O**  **O** ●● **O O O O O O O O O**  
 
 |Bruised|||
 |---|---|---|
@@ -2555,20 +2347,6 @@ _________________Ancestors ●●● **OOOOO** _______________________Beast Spee
 |Mauled|–2||
 |Crippled|–5||
 |Incapacitated|||
-
-
-
- **O O O O O O O O O O**   **O** ● **O O O O O O O O O**  
-
- ● **O O O O O O O O O O**  
-
- 
-
- 
-
- 
-
-●●● **O O O O O O O O O O**  
 
 1 - Cliath 
 
@@ -2593,16 +2371,11 @@ You do not travel far from your homelands to pursue those who would do your peop
 **----- Start of picture text -----**<br>
 White Howlers<br>**----- End of picture text -----**<br>
 
-
-_**86**_ 
-
 **==> picture [65 x 139] intentionally omitted <==**
 
 **Name: Breed: Homid Pack Name: Player: Auspice: Ahroun Pack Totem: Chronicle: Tribe: White Howlers Concept: Monstrous Protector** 
 
 **==> picture [65 x 139] intentionally omitted <==**
-
-    Strength___________●●●● **OOOOO** Charisma___________●●● **OOOOO** Perception__________●●● **OOOOO** Dexterity__________●●● **OOOOO** Manipulation________●● **OOOOO** Intelligence_________●● **OOOOO** Stamina___________●●● **OOOOO** Appearance_________● **OOOOO** Wits______________●●● **OOOOO**     Alertness___________● **OOOOO** Animal-Ken_________ **OOOOO** Academics__________ **OOOOO** Athletics____________●●● **OOOOO** Crafts_____________ **OOOOO** Culture____________ **OOOOO** Brawl_____________●●● **OOOOO** Etiquette____________ **OOOOO** Enigmas___________ **OOOOO** Empathy___________ **OOOOO** Larceny____________ **OOOOO** Investigation________●● **OOOOO** Expression__________ **OOOOO** Melee_____________●●● **OOOOO** Law______________● **OOOOO** Intimidation________●● **OOOOO** Performance_________ **OOOOO** Medicine___________● **OOOOO** Leadership__________●● **OOOOO** Ranged_____________ **OOOOO** Occult____________● **OOOOO** Primal-Urge_________● **OOOOO** Ride______________ **OOOOO** Rituals____________ **OOOOO** Streetwise__________ **OOOOO** Stealth____________●●● **OOOOO** Science____________ **OOOOO** Subterfuge__________● **OOOOO** Survival____________●●● **OOOOO** Technology_________ **OOOOO** _________________ **OOOOO** _________________ **OOOOO** _________________ **OOOOO** 
 
 ##  
 
@@ -2610,17 +2383,7 @@ _**86**_
 
 ##  
 
-_________________Allies ● **OOOOO** _________________Fetish ●●● **OOOOO** _________________Kinfolk ● **OOOOO** _________________ **OOOOO** _________________ **OOOOO** 
-
-_______________________Desperate Strength _______________________ _______________________Razor Claws _______________________ _______________________Smell of Man _______________________ 
-
-_______________________ _______________________ 
-
-_______________________ _______________________ 
-
 ##  
-
-   ●●●●● **O O O O O O O O O O**  **O** ●● **O O O O O O O O O**  
 
 |Bruised|||
 |---|---|---|
@@ -2630,20 +2393,6 @@ _______________________ _______________________
 |Mauled|–2||
 |Crippled|–5||
 |Incapacitated|||
-
-
-
- **O** ● **O O O O O O O O O**   **O O O O O O O O O O**  
-
- ● **O O O O O O O O O O**  
-
- 
-
- 
-
- 
-
-●●● **O O O O O O O O O O**  
 
 1 - Cliath 
 
@@ -2664,8 +2413,6 @@ Each night, the white wolf appeared, and each night Eubh drank his fill before h
 The boy learned to walk early on, and to talk well before other children, and in the same way he went through his First Change early. He took quickly to battle, as was his role as an Ahroun, and the tales of his glory would take up a dozen nights to tell on their own. But it was not his prowess that gained him his deed-name, when all was said and done. 
 
 Eubh met his destiny on a rocky cliff above the shoreline. The Wyrm-thing he faced was as big as a mountain, with claws like swords and eyes like lightning. When it roared, it drowned out even the sound of the sea below them. The two clashed, blood and ichor flowed, and 
-
-_**88**_ 
 
 _**White Howlers**_ 
 
@@ -2701,8 +2448,6 @@ In the end, Hathawulf’s drive became his own undoing. At the rank of Athro, he
 
 _**Appendix Two: White Howler Legends**_ 
 
-_**89**_ 
-
 Tribe behind a warrior who led the attack. Upon returning from their victory, however, he and the rest of the Tribe discovered their unprotected Kinfolk slain, broken, turned, and defiled. The realization that his words had driven the Tribe to leave their families unprotected struck Hathawulf more deeply than any enemy ever had. Despite the best efforts of his pack, the wily scout pulled away from his duties. He refused to weigh in on further challenges, stopped hunting, ceased talking, and eventually stopped eating. One day, he simply disappeared. No one — not even his pack Totem — has been able to locate him since. 
 
 ## Morag “Memory of Stone” 
@@ -2725,8 +2470,6 @@ Breed: Metis
 
 Auspice: Galliard Rank: 4 
 
-Physical: Strength 2 (4/6/5/3), Dexterity 3 (3/4/5/5), Stamina 3 (5/6/6/5) 
-
 Social: Charisma 3, Manipulation 4 (2/1/1/1), Appearance 2 (1/0/2/2) 
 
 Mental: Perception 4, Intelligence 5, Wits 3 
@@ -2747,8 +2490,6 @@ Gifts: (1) Call of the Wyld, Haunting Howl, Heightened Senses, Perfect Recall, S
 
 Rites: (Minor) Augury, Greet the Sun; (Level One) Gathering for the Departed, Last Blessing, Rite of the Bone-Fire; (Level Two) Rite of Accomplishment; (Level Three) Descent Into the Underworld, Rite of the Winter Wolf 
 
-_**90**_ 
-
 _**White Howlers**_ 
 
 **==> picture [373 x 84] intentionally omitted <==**
@@ -2757,21 +2498,13 @@ _**White Howlers**_
 
 **Name: Breed: Pack Name: Player: Auspice: Pack Totem: Chronicle: Camp: Concept:** 
 
-  
-
- 
-
 ##  
 
 **==> picture [65 x 141] intentionally omitted <==**
 
-Strength___________● **OOOOO** Charisma___________● **OOOOO** Perception__________● **OOOOO** Dexterity__________● **OOOOO** Manipulation________● **OOOOO** Intelligence_________● **OOOOO** Stamina___________● **OOOOO** Appearance_________● **OOOOO** Wits______________● **OOOOO** 
-
 ##    
 
 ##  
-
-AlertnessAthleticsBrawl____________________________________ **OOOOOOOOOOOOOOO** Animal-KenCraftsEtiquette__________________________________ **OOOOOOOOOOOOOOO** AcademicsCultureEnigmas_________________________________ **OOOOOOOOOOOOOOO** Empathy___________ **OOOOO** Larceny____________ **OOOOO** Investigation________ **OOOOO** Expression__________ **OOOOO** Melee_____________ **OOOOO** Law______________ **OOOOO** IntimidationLeadership__________________ **OOOOOOOOOO** PerformanceRanged______________________ **OOOOOOOOOO** MedicineOccult_______________________ **OOOOOOOOOO** Primal-Urge_________ **OOOOO** Ride______________ **OOOOO** Rituals____________ **OOOOO** StreetwiseSubterfuge____________________ **OOOOOOOOOO** StealthSurvival________________________ **OOOOOOOOOO** ScienceTechnology_____________________ **OOOOOOOOOO** _________________ **OOOOO** _________________ **OOOOO** _________________ **OOOOO** 
 
 ##  
 
@@ -2779,33 +2512,17 @@ AlertnessAthleticsBrawl____________________________________ **OOOOOOOOOOOOOOO** 
 
 ##  
 
-_________________ **OOOOO** _______________________ _______________________ _________________ **OOOOO** _______________________ _______________________ _________________ **OOOOO** _______________________ _______________________ _________________ **OOOOO** _______________________ _______________________ _________________ **OOOOO** _______________________ _______________________ 
-
 ##  
 
- 
+- **O O O O O O O O O O**  
 
 - **O O O O O O O O O O**  
 
- 
-
 - **O O O O O O O O O O**  
-
- 
-
-- **O O O O O O O O O O**  
-
- 
 
 ##  
 
-**O O O O O O O O O O**  
-
 ##  
-
-**O O O O O O O O O O**  
-
- **O O O O O O O O O O**  
 
 ##  
 
@@ -2818,17 +2535,11 @@ _________________ **OOOOO** _______________________ _______________________ ____
 |Crippled|–5||
 |Incapacitated|||
 
-
-
- 
-
 **==> picture [373 x 84] intentionally omitted <==**
 
 **==> picture [66 x 141] intentionally omitted <==**
 
 **==> picture [65 x 141] intentionally omitted <==**
-
- 
 
 Strength(+2)_____ Strength(+4)_____ Strength(+3)_____ Strength(+1)_____ No Stamina(+2)_____ Dexterity(+1)____ Dexterity(+2)____ Dexterity(+2)____ Change Manipulation(– 2)__ Stamina(+3)_____ Stamina(+3)_____ Stamina(+2)_____ Appearance(– 1)___ Manipulation(– 3)__ Manipulation(– 3)__ Manipulation(– 3)__ Appearance 0 +1 Die to Bite Damage       –2 Perception Diff. Difficulty: **6** Difficulty: **7** Difficulty: **6** Difficulty: **7** Difficulty: **6** INCITE DELIRIUM IN HUMANS 
 
@@ -2840,29 +2551,17 @@ Difficulty: **6** Difficulty: **7**
 
 ##  
 
-________________________ **OOOOO** _____________________   ___   ___ ________________________________________________ **OOOOOOOOOO** _____________________   _______________________________________   ___ ________________________________________________ **OOOOOOOOOO** _____________________   _______________________________________   ___ ________________________________________________ **OOOOOOOOOO** _____________________   _______________________________________   ___ ________________________________________________ **OOOOOOOOOO** _____________________   _______________________________________   ___ ________________________________________________ **OOOOOOOOOO** _____________________   _______________________________________   ___ ________________________ **OOOOO** ____________________________________ 
-
 ##  
 
 ##  
 
-______________________________ ____________________    ____________________ ______________________________ ____________________    ____________________ ______________________________ ____________________    ____________________ ______________________________ ____________________    ____________________ ______________________________ ____________________    ____________________ ______________________________ ____________________    ____________________ ______________________________ ____________________    ____________________ ______________________________ ____________________    ____________________ ______________________________ ____________________    ____________________ 
-
 ##  
 
- 
+**==> picture [594 x 770] intentionally omitted <==**
 
-   _______________  ___________  ____  ____  ____  ____  ____ **Maneuver Roll Diff Damage** _______________  ___________  ____  ____  ____  ____  ____ BiteBody Tackle Dex + BrawlDex + Brawl 57 Strength + 1/ASpecial/B _______________  ___________  ____  ____  ____  ____  ____ Claw Dex + Brawl 6 Strength + 2/A _______________  ___________  ____  ____  ____  ____  ____ Grapple Dex + Brawl 6 Strength/B Kick Dex + Brawl 7 Strength + 1/B _______________  ___________  ____  ____  ____  ____  ____ Punch Dex + Brawl 6 Strength/B _______________  ___________  ____  ____  ____  ____  ____ A=Aggravated Damage        B=Bashing Damage _______________  ___________  ____  ____  ____  ____  ____ _________________ 
+**----- Start of picture text -----**<br>
 
 **==> picture [594 x 770] intentionally omitted <==**
 
 **----- Start of picture text -----**<br>
-Nature:                                                                           Demeanor:<br><br> <br>__________________   __________   _____ __________________   __________   _____<br>__________________   __________   _____ __________________   __________   _____<br>__________________   __________   _____ __________________   __________   _____<br>__________________   __________   _____ __________________   __________   _____<br>__________________   __________   _____ __________________   __________   _____<br>__________________   __________   _____ __________________   __________   _____<br>__________________   __________   _____ __________________   __________   _____<br><br> <br>___________________________________ ___________________________________<br>___________________________________ ___________________________________<br>___________________________________ ___________________________________<br> <br>___________________________________ ___________________________________<br>___________________________________ ___________________________________<br>___________________________________ ___________________________________<br> <br>___________________________________ ___________________________________<br>___________________________________ ___________________________________<br>___________________________________ ___________________________________<br>___________________________________ ___________________________________<br>___________________________________ ___________________________________<br>__________________________________________________ __________________________________________________<br>___________________________________ ___________________________________<br>___________________________________ ___________________________________<br>___________________________________ ___________________________________<br> <br>__________________________ ________________________________<br>______________________________________________________________________ _______________________   ______________________________<br>___________________________________ ________________________________<br>______________________________________________________________________ _____________________________________________________________<br>_______________________ ___________________________________<br>___________________________________ ___________________________________<br>___________________________________ ___________________________________<br>___________________________________ ___________________________________<br>___________________________________ ___________________________________<br>___________________________________ ___________________________________<br>**----- End of picture text -----**<br>
-
-
-**==> picture [594 x 770] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-<br>____________________________________________________________________________<br>____________________________________________________________________________<br>____________________________________________________________________________<br>____________________________________________________________________________<br>____________________________________________________________________________<br>____________________________________________________________________________<br>____________________________________________________________________________<br>____________________________________________________________________________<br>____________________________________________________________________________<br>____________________________________________________________________________<br>____________________________________________________________________________<br>____________________________________________________________________________<br>____________________________________________________________________________<br>____________________________________________________________________________<br><br>____________________      ___________________________________________________<br>____________________      ___________________________________________________<br>____________________      ___________________________________________________<br>___________________      ___________________________________________________<br>_______________      ___________________________________________________<br>____________________      ___________________________________________________<br> ___________________________________________________<br>__________________________________________<br> _________________      ___________________________________________________<br> __________________      ___________________________________________________<br> __________________      ___________________________________________________<br> __________________      _______________________________________<br> __________________      ___________________________________________________<br><br><br>**----- End of picture text -----**<br>
-
 
