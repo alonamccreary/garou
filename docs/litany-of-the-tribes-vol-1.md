@@ -1,40 +1,8 @@
-**
 
-**
-
-**
-
-7 
-
-**
-
-**
-
-x : 
 
 || 
 
-**
-
-**
-
-**
-
-**
-
-**
-
 BLINDFOLDS. INROOM THe ISBACK OFCOLD ANDA VAN.STINKS THE r WETHEY HANDCUFF"WAKE." I'VE USBROKEN BEFORE OFSEX GONE STALE AND G HANDCUFFS BEFORE. N fee, ite S 7‘Gy(EAAAN F f Gees(EN \ aan | eaten _ ) gan on AD = | n/a ~ yo : . y +/ 3 0 - | = La N AL 0 ©) =are//A TENS ZW} C» \ OH my GoDm 2-9) THE GHOSTOF THE WOMAN[THE][ SCREEN][ HOVERS][[67S] p- . j > a NEARBY. SHESAW[ON] I¢ NOT ALONE.| ia |J Qine5 f\ | | ey ' INiC NO! NO! GODINIEAVENa | | Le ap 5 | , JESUSCHRIST NOOH! x a = _ | GET A PAST-LIFE FLASH OF ae at: ‘ SN Oz DIFFERENT PLACE. SAME 1% es a | OTHER TIMES. BURNING TIMES. ¥ : | a a yy y _ DEVICES. SIMILAR. ANYWAY. 5 ede ae \ / t 4 y [TT val =5Sotho | vb DOES IT EVER CHANGE? DOES LAOrey \ i p a IT EVER STOP? i. ———, 1 " WY. A File CR RT A Rh RRR A A KRRRAR SENG vA ae[:j] fe ~ a x , - \ ? } ‘ IS ; % Zh), x E lB ¢: - a2 1, hee 
-
-**
-
-r : 
-
-- 
-
-: : 
-
-f / / 
 
 2eo : tj 
 
@@ -44,11 +12,7 @@ f / /
 
 | 
 
-**
-
 ## ucato By Phil B | 
-
-. ¢ 
 
 VA 
 
@@ -56,8 +20,6 @@ yy Z v
 
 a Credits Special Thanks | a Author: Phil Brucato Chris “Bruisecruise” McDonough for “slipping” on the | Additional quotes, ideas, and guidance: Judith A. booze cruise. a McGlaughlin Michelle “Mad Hatter” Prahler for her Hat Party in that | Greek term research: Ellen Brundige tiny apartment. Editing: Heather Bryden water heater. |[ZA] Development: Bill Bridges Josh “Waterloo” Timbrook for the battle against the Cover/Splash Page and comic book: Tony Harris Rich “Howling Harlan” Thomas for sending off the book voy Art Director: Richard Thomas forms too late. -.. AE Art: Ron Spenser Steve “Here comes da’ judge” Wieck for gettin’ the ugly. Miles styles. | Typesetting and Layout: Sam Chupp and Aileen E. Ben “Bad hair week” Monk Jr. for his to-die-for hair Logo and Back Cover Design: Michelle Prahler Jim “Overtime” Townsend; promises, promises... | Sam “Paradox” Chupp for trying to hand his Mage game . | off to Phil. | || FeAES MM SUITEe755 Pani 128 None BUD. | pe” | ClanusTon, GA 3000! | Wilt WOLF] USA GAME STUDIO | © 1997 White Wolf Publishing, Inc. All rights reserved. | Reproduction without the written permission of the publisher is expressly forbidden, except for the purposes of reviews, and blank character sheets, which may be tre reproduced for personal use only. White Wolf, Vampire om the Masquerade, Vampire the Dark Ages and Mage the . .- wh Ascension are registered trademarks of White Wolf (DedicationS ool Publishing, Inc. All rights reserved. ion, Werewolf the 4 Apocalypse, Wraith the Oblivion, Changeling the T. : : a ; Dreaming, Werewolf the Wild West, Black Furies o Cathi, Jane, Jennifer, and Shadow | **Tribeb** ook,ook and Bone Litany Gnawers of the Tribebook, Chil Tribes are tra **d** emarksren of Gaia of Author 5’ Yote | White Wolf Publishing, Inc. All rights reserved. All ‘| characters, names, places and text herein are copyrighted Some of the subjects and sentiments expressed in by White Wolf Publishing, Inc. the book are pretty strong. I make no apologies for this. 4 ; we mention of or reference to oO ohe trader, ik[product] Anything less would be a disservice to the characters 2 copyright concerned a challenge to the trademark or and an insult to the audience. Though the world ofthe This book uses the supernatural for settings, characters Black Furies is fictional, the specter of violence against and themes. All mystical and supernatural elements are women is not. Thousands of women are beaten, raped, fiction and intended for entertainment purposes only. , and killed each day worldwide, often by people they Reader discretion is advised. ; love. Ifyou have suffered such abuse, you are not alone. | http://www.white-wolf.com;Check out White Wolfalt.games.whitewolf online at If you hhave not, someone you kKnow may hhave. Staota **n** :d | yy andPRINTED rec.games.frp.storyteller IN CANADA. Silenceup, speak and out, “propriety” and offer help your no hand one. to those in need. 
 
-7 
-
 | 
 
 | 
@@ -65,40 +27,20 @@ a Credits Special Thanks | a Author: Phil Brucato Chris “Bruisecruise” McDon
 | 
 
 | 
-
-- a a ae 7 : 
-
-, 
-
-**
 
 § Contents On ~ | _ Introduction: The Lessons Begin 12 | a 5 - Chapter One: XeAewveron AdeAooe 14 7 (Sisters of the Moon) — | - ; . The historyof the Black Furies . § Chapter Two: TpomoG KuKAoG ~— 22 | | : The(The culture Way of the of BlacktheFuriesCircle) 7 : | _ . Chapter Three: KadouwaTouee 34 | (Gaia's Dale) The Black Furies over the world . | | Appendix One: Powers 40 New Gifts, rites, fetishes and totems ; - Appendix Two: Black Fury Templates 45 a a Five ready-to-play characters 7 ae Appendix Three: Furies of Note 56 
 
 FamousBlack Furies throughout theworld 
 
-” 
-
 | 
 
-. 
-
 Contents 
-
-11 
-
-**
-
-**
 
 | | : . : 
 
 A Y 7 
 
 | 
-
-- 
-
-_ o 
 
 | os 
 
@@ -108,25 +50,13 @@ The young Fury bristled from her elder’s rebuke, tossing q he First 4d)a S her
 
 Chapter One 
 
-15 
-
-7 7 c 
-
-**
-
 a, Sr spect **e** cond theDaughters.power ofFrom Woman,them, asManthe learnanci nt **e** d agt les **a** in toof ©he Ay,atri:archy Soa goddesses show... In childhood a woman must be subjected to her father; in “Oh, eee youth, to her husband; when her husband is dead, to her sons. 7 please,” sneered the young Fury, “spare me the fairy | A woman must never be free of subjugation. ' _ tales!” — Code of Manu, the “first man” r | The old Fury’s lips curled in a snarl, and her scalp Patriarchy is indeed a male neurosis. | A bristled. “Don’t roll your eyes at me, sister!” she snapped. — Judith Pierce . “You still think too firmly with Man’s logic. Listen, do not The elder Fury paused in her tale, an ancient hatred -_ judge! kindled in her eyes. The younger Fury sensed Rage rising. a The young woman shrugged, and the elder’s eyes blazed. Despite her full-moon pride, the young Fury backed away cana “Stop smirking! This is high lore, child, not back-fence slightly from the heat of that Rage. _ gossip, and deserves to be told as such!” eee . “Whatever,” muttered the youngster, crossing her arms. From the Middle East came the Patriarch, the most The elder continued, but her tone betrayed her anger. insidious. di plotlot ofof the the WWyrm, underq many names-in many = Battle lines had been drawn. forms. The bloody-minded Patriarch ripped the souls and oe eee battered the bodies ofWoman in the name of his male gods. om The Wyrm gnashed his teeth and bit his tail in fury. His = The Patriarch, the Incarna of jealous man and servant of - poison poured into the hearts of Man, and bitter struggles = Abhorra, the Urge Wyrm ofhatred, promised Man limitless 2 arose. Many human women fled the cities of Man to build —_power. For the sake ofthat power Man gladly bent everyone pe cities of their own. Some of the Second Daughters joined — around him to the yoke of the Patriarch. Though the . - them there, and the Wyrm fed them poison, too. Theearth —_Patriarch’s prophets spoke ofkindness and good intentions, screamed as blood of Woman, Man, and animal spilled in —_they crushed Woman beneath laws ofownership and myths , | floods,The Firstand the Daughters wereMother’s fury long-livedgrew. but not immortal. of sin.Taught from the first that they were to blame for the 4 As age overtook them, Wyrm-tainted heroes of Man slew miseries of the world, the women of the Patriarch wrapped | the mothers of our kind. In wrath and despair, Artemis sent themselves in cloaks ofshame. The Furies raged, seeking to Incarna — Pegasus, Owl, Unicorn, Panther — to aid the tear the cloaks from their sister’s shoulders, but the spirits | Secondond Daughters Daughters.spread Christenedacross thethe known Blackworld. Furies,For the many Secforms,of Womanrolled wereacross crippled the landsas ofthe Europe,Patriarch, Asia,in andhis myriad Africa. ”Y years the council ofwise Helena was forgotten, andthe War _[t has been said that the Furies led human followers of the f of Rage, battles with other tribes, and our custom of slaying Mother, the pagan enemies of Greece and Rome, in their | male children, held until recently, kept our numbers low, —_many attacks against those lands. To our shame, the pagan _ while the children of Man multiplied and passed on the —_ hordes turned to the Patriarch even as they conquered their 4 Wyrm-taint. foes, and the Furies allowed it. A brief alliance between the a That Wyrm-taint poisoned many of the Garou as well. Get, the Fianna, and our ancestors is said to have come to : As our foremothers traveled, they met tribes where females an end amid the ruins of Rome. ae were treated with disrespect. They made war with those Over the centuries, the face of the Patriarch changed - ~ tribes, as we still do. The hatred between the Furiesandthe _ and spread, bringing oppression and denial with each new fs Get of Fenris remains a wound in the Mother’s side, —_ creed. Yet beneath it all, the Goddess could not be wholly oe festering still. The strength of the Fianna, Get,andShadow —_ denied. The cults of the Patriarch tempered their hatred | Lords has kept us from the Northern areas of Europe, even —_with the names of love and forgiveness, and the worship of : in modern times, and any incursion by them into our the Holy Mother infused their litanies. Some Furies, findhomelands has been met with claw and fang. ing solace or merit in some of the teachings ofthe Patriarch, - eee sought to save the best of those beliefs and spread the old 7 ways in a new guise. Others rejected the Patriarch entirely aeww andWhenled rebellious Rome fell, Womanthe Patriarchin dances beneathfaltered thefor moon.a time, L : though his ideas remained strong. Again to our shame, we | Furies grew complacent, feeling that women who chose the ~ Patriarch’s ways were beneath contempt. As we abandoned , the cities of Man for the Wyld, a war of ideas racked the ve7 oy ravagedtheselands warsofEuropethewerePatriarch,andfedtheby Middleourand sisters,crusadesEast.someI havebetweenofheard whomhisrumorscultsused ; Chapter One 17 / aenter //, 
 
 uo deception to manipulate Man against himself, and] believe | would not leave their homes and fell beneath the torture _ them. and the stake. “4 During this time, the Turks invaded our homeland, and The witch-frenzy lasted nearly three hundred years, and I many Furies turned to battle the conquerors alongside cost untold thousands of lives. Our tribe was laid waste by ‘ humanduring theseallies.times,We whichgained maymany be whyconcessions Greece wasfrom spared.Man __ theto admit time the witch-frenzyhelplessness, sister, hadbut run weits were course.trulyIt helplessis not easyin A the horror of the Burning Times. those dark times. Remember this when you think of rendi Le” e e ing the Veil, of letting yourself be known for who you truly The Burning Cjmes are. Of all the tribes, the Black Furies have learned most painfully what all out war with the humans means! 32] Thou shalt not suffer a witch to live. When human explorers sailed to America, we Furies ae — Exodus 22:18 followed as soon as we could. The mangled souls from the ; All wickedness is little to the wickedness of a woman. Burning Times still haunt our home continent. I sensed | — Kramer and Sprenger, Malleus Maleficarum them on my journeys through Europe years ago, and never 7 We need not fear that women will do what they cannot do... have I felt a sadder thing. odar From the— Christine beginning Pierce Woman has shared a close mystic ©he View W.orld aaae fearedbond withand theenvied Goddess,that bond. and fromAs the the beginningPatriarch warred Man hasfor GamM[bl] e 24 the souls of humanity, his priests turned a difference of Remember all men would be tyrants if they could. Ifparticuzs| beliefintoa crime punishable by torture and death. Woman's lar care and.attention is not paid to the Ladies we are determined : ways, called witchcraft by some, fell under the gaze.of the to foment a Rebellion, and will not hold ourselves bound by any | itchwitch **,** ”reyand no mannerwomanofwas evilsa **f** e.e laid at the door of the Laws in which wea have no voice, and no representation. ; Many of our Kinfolk and human friends. did indeed 7 Abigail Adams, a lester to her husband John : ; ; ; Depend on it, We know better than to repeal our Masculine practice witchcraft. But as the Burning Times began, Man punished Woman for everything he wanted and could not systems. ; ; phemies,have. Thetortures, evil of t **h** at time,ideous the sickeningperversions... outrages,There areblas-not Rage is— everJohn our Adams blessing (his and reply our curse. to the As above) white settlers words for the carnage, the suffering of thousands ofwomen _SPtead across North America, many of our foremothers and murdered screaming in torments we can never conceive. Kinfolk went with them, fleeing the insanity in Europe. To | Angii, Urge-Wyrm of Cruelty, rode high in those days. Out shame, we battled the Wendigo and Uktena for the | ThoseWe timesFuries arewere a stainslow onto theshift soulsour of Manattentions forever!to this rightbuilding to settletowns onfor their lands,our Kinfolk, raisingand caernsbreeding to thewith Mother,the sacrilege, and it was far too late when we did. The InquisiM&'V€ wolves to revive our tribe. Though free from the tors had grown strong, and were prepared for the worst we “/Nt of the Patriarch, many of the native peoples still 24 could do. Many ofthe witch-hunters had battled vampires, placed Man above Woman, and we naturally objected. It is ae and were more than ready totake the fighttous. The Wyrm ©4SY fO Say now that our ancestors were wrong, but deeds wos | still,rode besit **i** sdesaid them,theandGetgaveof Fenristhem powersaided **t** heobattleus.witch-hunters Worse “&T€future doneto respect that cannetour native be erased.cousin Si **s** ter,and rememberavoid Our in thepast wer against us out of spite. I have no idea if this is true, butone — 97708@NCE- I have my differences with the Wendigo, but ; can never trust the Get. they are noble allies. We fought back at first, but for all of our Rage, we were Free at last in an unspoiled land, our foremothers swore . outnumbered. Our tribe, never strong in numbers, fell "Vet to repeat their mistakes. It is said that packs of our before armored men with silver weapons. Our Kinfolk, our sisters moved south to settle near the great river named for . charges among the humans, and thousands who had noththe Amazons, but many remained in the north. At the a ing at all to do with us, were hunted, tortured, and burned. Finger Lakes in New York state, we retook a powerful caern aa The Patriarch’s cups ran over with innocent blood. Men from the Wyrm, and pledged there a new beginning for | diedBurningtoo, Times.but it was Woman who suffered worst in the Woman.the one we Never, had fled. in this The land, Patriarch would might we allow batter a at horror the heart like | The Sistethood was born during the Burnings; a network of this new land, but by all the blood of our tribe, he would 7 of Furies, Kinfolk, and sympathetic humans who freed and not take it! ; protected Woman from the hunters. It smuggled women Inthe years since, we have grown close to our human Kin powerful spirit of this land has fed Woman’s urge to be free. iy into Greece and other lands beyond the horror, but many and encouraged them to stand up for themselves. The coe With a stronghold in America, we Furies were able to 18 Black Furies 
 
 . i fT y et 4a. . ~N, ey 7, >, SD gee a52 Oo Os | rebuild our tribe and stake a claim in the Wyld before it was -As I was saying, our foremothers swore an oath at Finger | entirely overrun. In the deepest forests on Earth, we keep Lakes that the Furies would guide Woman in this new | the peace for the Mother once again. world, and that we would watch the hand of Man and take Unfortunately, the exodus brought about a split in our an active role in his doings. When American women, tribe, one that festers to this day. Many Old-World Furies dissatisfied with the old ways and old roles, came together | : seehave us aslong traitors, disdained whiletheir American American Furieskin. regard Even the today ancientthey —_—_guardedtodemand them, their and freedom sometimes, by rightin and the law, night, we avenged advised them. them, . traditions of the Temple of Artemis as hopelessly outdated. Our sisters across the world followed our lead, and the lot We present a united front to the other tribes, but there of Woman improved in the world, if only slightly... oe remains a tension within us that I, for one, regret. eee ~— f Che Finger Lakes Oath Che Modern Era — : : ee things in and chen well, Fill us with the Light. | @ Horse on which you Tide, Give us the strength to understand, 7 The beast that guards and watches, : . ane’nd th Ere €NES 10 SE And the sister at your side m y ; Teach us to walk the soft Earth as relatives 7 ; — Mercedes Lackey, “Threes” . s, to all that live. ore Have you ever seen the sacred Mother’s hand print at ; “ey ; ; — Sioux Prayer ne Finger Lakes? You must, sister; all Furies must, for the heart Fight, dammit. fight! i of the twentieth century was birthed there. The spirit of 8 t, dammit, fight! . 3 FF Gaia, of Luna, Artemis, Hecate, Selene — amI confusing Kill the damn bastards! | you? Never mind, I’ll explain — the Mother infuses the . — Shanna the She-Devil, Savage Tales “| very ground, the air, the endless water of Finger Lakes “Improved?!” The young Fury snorted, “Oh, bullshit! 7 Caern. It is said that the Mother Herselfscoopedthe Wyrm Child abuse, wife beating, rape, harassment, this is imprint in the earth. Even if it is not “scientific” truth, itisa across her face. “Elder or not, you’re full of crap, a toothless ry out from the land and hurled him away, leaving Her hand _provement?” She snapped to her full height, scorn etched 2:7 wonderful story! old wolf gone soft!” Chapter One 19 
 
-**
-
-**
-
 oes 
-
-**
 
 Wisdom is the supreme part of happiness, and reverence towards the gods must be inviolate. Great words ofprideful men are ever punished with great blows, and, in old age, teach the chastened to be wise. — Sophocles, Antigone 
 
@@ -136,31 +66,15 @@ The eldet’s eyes eyes reflect hard-earned wisdom. hard-earned wisdom. wisdom. 
 
 Chapter Two 
 
-23 
-
 = A ya . be regeneration. We are no longer afraid to see ourselves as her fed daughters, nor are we afraid to refuse to be victims of this subtle a . y Burning Time. oo | — Morgan McFarland, from Drawing Down the | ‘ K | Moon ’ A it & As you’ve said, there are those in our tribe who have lost , | 4 N } ) sight of the balance betweenyoungand old. The old-world | A SiC DAWN oftraditionalists our youngstersclingfigure to ourthey riteshave like anothing lifeboat,to whilelearn manythat al| , Se“Y) theyy can’can’ **t** teachteach thth **e** mselves.mselves. SillySilly riftsrif over phh **il** osophy, £3] ( \~ uy ritual, the roles ofMan and the Goddess, have split our tribe ~ “| “ a “Sy into kuklos, or circles. Most of these camps are friendly to - er } za each other, but some are armed to the teeth against their " BS sisters except in the face of an outside foe. When our backs wa Z are to the wall, we Furies will fight like a thousand Get for a ‘ 7. our sisters, but put too many Furies in a room together and : a 4 ys sooner or later the door will come flying off, usually aimed 2M , > ./ } at some fool’s head! “cal 4 4 ‘ /' — ="= betweenThe great sisters American than a thousandexperimentyears ofcausedstrugglemore againstfriction the He ‘ P \ Patriarchy. American septs will cooperate with their Old _ /ff World sisters, and vice versa, but not without some name4 -\\ \ 4! ; / jealouscalling and of us such. here,I but think then someI’m of prejudiced.the Old-World types are c ; | ,Nw ! Many Furies will not even go to South America, Africa, | ; i[: pp S orAmazons,Asia, so those landsand the Order are **of** tenthe Merciful left to the Mother. Freebooters,I me **t** hea W\n f - \- Furyif any, fromshe thebelonged Congoto. once, but I have no idea what group, Ch PP, . f I see by the blank look on your face that you haven’t yy é ASBY |ng 0 heard of any of these camps, so I'll fill you in as best I can. S : Wil SM)0mM kuklos.I would They recommend could tell you you visit far some more of than our sistersI. in these f | | ways,You and see thenow schism the difference that divides between our thetribe. old Old and baggage the new Che Amazons; 0f Diana. like me, the crones of our people, hold on to history after Every part of the earth is sacred to my people. Every shining se}: our claws have dulled, while young — pardon the expres_pine needle, every sandy shore, every mist in the dark woods, a sion — maidens like yourself carve out new paths with the — every clearing and humming insect is holy in the memory and _ same old questions. | was the same when | was younger, and —_— experience of my people. Fe) you'll have the same problem instructing some other young — Chief Seattle hellion, assuming you live long enough. The Amazons of Diana protect Woman and Wyld, and _ | History's important, child. From history comes culture, frequently travel across the world to stamp Man’s face into and our culture is. our strength. Without it, we would spin the mud. Most come from America, where women are in rudderless circles until the Wyrm dragged us screaming aise to be more self-reliant and aggressive. Many are Fn)off to hell. , active in American or Canadian politics, siding with our Kuklo eo|| Man, confrontedhy (Thby woman,é Cidoes seem°rcleto feel,$)variously,; Therehumanout pockets. are, sistersh **o** fwevthto **e** r,liftWyrm groups the orPatriarch’s oftr the. P **a** velingtriarch yokeavengers and by law) fight who. or them claw. seek at L ; their own doorsteps. Glory is the Amazon’s province, and | frightened, revolted, dominated, bewildered, andeven, attimes, her peril.Iwas once a follower of Diana, and frankly, I was | superfluous. ~ fortunate to survive my travels. The life of an Amazon is | — Dr. Wolfgang Lederer glorious indeed, but very, very short. If this is the path you We are each Virgin huntress, we areeach Great Mothers, we choose, I wish you luck, strength, and courage. | yy are Death Dealers who hold out the promise of rebirth and | 24 Black Furies 
 
 _ ejhe Amazon Speaks is to be one of them. A good trap works better than a banzai ie . . a ae ; charge. ae And you let him do this f0 you! You silly bitch! You disgust Shhh! Check out Elmer over there. Elmer as in Fudd; you : me, the lot of you, coming in with black eyes and broken arms, ey ’ . ever watch cartoons? Well, this ain’t a cartoon, and when that oy crying on our shoulders and telling us how much he loves you! trick coes, Elmer there won't be iust gettine ub and walkin wv Wake up, dammit! away. , Just getting up g Ul : A Whomazons areif we, you anlike,yway?warriors You wouldn'tand daughters, know,protectorsI guess. Cainlusthe Nasty, huh? Now aren’t you glad[I][ was][ here?][ Could’] ve been 4 ZA shadows. Ifstupid chicks like you would stand up for yourselves Ou... eela moreRadical? often, Lookyou inwouldn't that mirror.need usIs there to scrap " b tter **e** you amewer?up off the ifloor. The Order 0f Our Merciiful oad Hey, look, I’m sorry, I know it’s been rough. Don’t cry... Mother No, on second thought, go ahead... Hey, some friends of mine i are having a party tomorrow night. Yeah, kind of a full moon It is forbidden to decry other sects. The true believer gives m party. I’ve got some crash space. Maybe we can go talk tothem —_—shonor to whatever in them is worthy of honor. tomorrow... — A decree of Asoka, Emperor of India a By the way, where did you say he lived? The Order of Our Merciful Mother is the group I spoke wh of earlier, the sisters who turned the Patriarch’s own words pd The FreebooterAY against him by fighting faith with faith. They have taken “a the best of the Patriarch’s godspeak and put it to practice 2S This house is full of my madness, helping those who suffer. While some Furies regard the ed This house is full of my mistakes, Order as an affront to the Mother, I have seen the good they _ This house is full of madness, do. As I said before, we must nurture as well as avenge. || This house is full of, full of, The sisters of the Order, many of them metis, set up | Full offight! ministries in less developed countries or urban industrial | — Kate Bush, “Get Out of my House” centers where humans raised in the Patriarch’s faith must | The Freebooters span Gaia’s Vale searching for artifacts _ Still be taught the Mother’s ways without outward sign of a to steal and hide, a long and honorable tradition that COMVEtSiOn. | began, I have heard, with a group of Furies who stole the The Order has also used the power and trappings of ; treasures of a Greek vampire. More importantly, the Free| Man’s religion to secure caerns against industrial “developMe 7 booters secure the few remaining patches of Wyld until | ment.” Without the Order ministering to the poor by day Y caerns can be set up and septs established. and hunting our foes by night, the Wyrm would hold a f : Freebooters tend to be young, reckless, and full of fight. firmer grip than he already does. The numbers of the Order More than any other kuklos, Freebooters tend to work are slight, but their faith is strong. outsidecommonour cause.tribe, Freebootersmixing withspitGarou in theof faceall ofgenders the Wyrmfor a The Sister. Speaks and live to tell of it more often than the Amazons, I’m I see that you noticed my hands. No, I have become used to fo afraid, because Freebooters strike quickly and run. Stealth three fingers, having had a lifetime to do so. You are kind to be ee and wit, not force, makes a Freebooter. concerned. So many ofour blood are not. ey Despite the courage of the Freebooters, many Furies, We carry the Mother's word to those who would not otheraoa particularly Amazons and Bacchantes (You haven’t heard _ wise listen. Their senses have been sealed by the godof[Man,][ and] “4 of them, either? Child, what did they teach youinschool?), they cannot appreciate the tang of sap on a clean breeze or the = regard them as cowards or fools for their fleet-footed antics. cry of our animal kin in the Wyld. Their slavery has become a . I do not share this view, myself. The Freebooters’ way has _— darkness, a self-made darkness, and it is our task to lead them _ done more damage to the Wyrm than a thousand pitched _fromit. ve battles, and serves the Veil better, as well. No, I do not believe it is a thankless task. The glimmer in the fearme The Freebooter Speaks eyestruth of behinda woman the lies discovering she has lived the true for secrets so long, ofisthe worth Goddess, the vowsthe - No, you're not hallucinating. I wasn’t here a moment ago. 4nd the sweat and the soul-ache I feel when we see our charges Heh heh heh... die. So many die out here. The land is harsh, and the people too a Darkness is our friend, girl, and don’t you forget it. Screw "merous to feed. A few less men out here makes a great : that damn-the-torpedoes crap. That'll get you killed, make no difference... mistake! Class, girl, class and style will get youa lot further than There are other compensations for our work as well... yy playing Indiana Jones. The jungle’s full of killers, and the trick = Chapter Two 25 
 
 : property... you wish to dispose of? Yes, I know where we may 2 ead TheI ama Sisterhoodsecret agent PropetNo, I am not Garou, but any sister of the homeland knows ! . Of the moon... the value of our work here. We deserve no less glory than you, LY Celestial subversive though the moon does not flow so deeply in our veins. We have | Con-spiritorial ourmagic also, and we battle the Kallikantzari — the vampires. f | Spirita Sancta I killed my first when I was fifteen. Do not underestimate your | A Kinfolk, sister. | | Holy i . ; Holy Yes, itis a pretty trinket. You say it came from the Tremere? ; ae Good. Anything out of their hands is a blessing to Artemis. | wey Holy Where will I take it? Sister, with all respect, that is not your | , AndAnd thenI have somefriends. concern. Trust that it will be safe. . | I mentioned— Barbarathe Starrett,Sisterhood fromearlier, |.D. the European netThe Temple. of ArtemisoP | oh work of Garou and Kinfolk who safeguard many of the The mortal ismad who sacks cities and desolates temples and pes caerns and cities of the Old World. They are more tolerant tombs... his own doom is only delayed. ae ofalong Amerw **i** thcantheGarouMoon-Dth **a** nughters,most Old-Worldare amongFuries,the mostand, The Temple— Euripides,of Artemis The Trojsits **a** tn Womenthe far end of tolerance. || oor tolerant in practice of all Black Fury camps. Many male Traditional to an extreme, the Temple reveres the old ways spa Kinfolk hold high positions in the Sisterhood. Thefounders ta degree that even I find hide-bound. Still, the TempleJ | recognized long ago that accomplishing goals such assecurKeepers are the backbone of our tribe. They speak the old ing property rights and negotiating with human institutions truths and seek the Mother’s wisdom. Despite their mystic , would be difficult, if not impossible, in Europe. without bent, the Temple-Keepers are fierce warriors and keen men. Claws in the darkness are not always the best solution hunters, each one skilled with the sacred bow of Artemis. | to a problem, though some Furies would disagree. Even the oldest (and the Temple-Keepers often live long | The Sisterhood dates back to the Burning Times, when lives) can outshoot the best human archer or chase a deer | Furies fled the Patriarch’s clutches and even the sternest 97S miles of wilderness. Still, much of aTemple-Keeper's Garou pitied the human women caught in Man’s hate. Like time is spent in ritual, training, or meditation. If you find the Underground Railroad during the AmericanSlave Age ™© antiquated, you'll find the Temple hopelessly prehisyy (which, it is said, we Furies helped to guide as well), the toric! Sf : Sisterhood smuggled Kinfolk, humans, and Garou away For centuries, the Temple has set the policy, such as it is, Sf from the Inquisitors and into safer lands, though few lands for our entire tribe. In the last century, the rising tide of could be called safe during that hideous time. The SisterAmerican informality and independence, coupled with the hood bought or otherwise negotiated the purchase of many physical and cultural distance between the continents, has sacred sites in Europe. Morerecently, the Sisterhoodspread Put the Temple on the defensive. In my view, the Temple to Africa and Asia. There, wealthy groups or sisters buy of Artemis could do with new blood and new ideas, but, fe land to set up wildlife preserves, but this isanewthing,and Conversely, newer packs of Furies could learn much from 2 faces a hard road. the Temple and its ways before dismissing it out of hand. It 2] Kinfolk play an important role in the Sisterhood, more is said that the Mother takes mortal shape among the oo so, perhaps, than in any other kuklos. The Sisterhood Temple-Keepers and advises them face-to-face. You may a fought as partisans during World War II, and havea warrior make of that what you will, but I believe it. : tradition going all the way back to the Burning Times. The Priestess Speaks _ Sisterhood Kin are more skilled in combat than many Garou. Most human Sisterhood Kinfolk practice minor Hold the arrow. Feel its weight, sense its purpose in the sharp a magics, and have a local reputation for sorcery. The locals —_point and feathered quills. We are the arrows, warrior, bent and Bares call them strega, an ancient name for witches. Lupine _ fired by the will of Artemis. eel Kinfolk guard sisterhood outposts and caerns, and travel She hunts on two feet, or four feet, or on wings, and her prey _ with the circle’s charges. European vampires and rival never escapes. We Furies are only a pale shadow of the Goddess. — Garou know better than to trifle with the Sisterhood! Think of yourself as her arrow. That should keep you from The Strega Speaks _ Likethinkingthe toometal highlypoint, of yourself.we are human.Like arrows,Like thewefletch,are tripartite.we are _ Youdo not speak the language of our homeland? Why is it that animal. Like the shaft, we are of raw nature, shaped by the you Americans limit yourselves so? I could speak three languages Goddess’ hand. _ yy by the time I was twelve. Well, no matter. You have... Remember the arrow when you cs and do not falter. let fly your Rage. Aim true, 26 Black Furies 
 
-**
-
-**
-
-**
-
-**
-
-30 
-
 ; Black Furies 
 
 _. Ritua| danceour powerlike backa pup into when thesuchnight.powerEven flows a wolf through my ageher! may aS ~ Ofall Garou, we Furies share perhaps the greatest love of The hunt, the kuneigeseon, is a tradition from ancient ritual. Our ties to the Mother, closer than even most other __ times. It has, if anything, more validity today than it did in , : Garou, bind us to Her seasons, and we reflect this in our days past. When we discover a man who has committed , rites. Joyful or somber, our rites aré celebrations, thankful some gross'ctime against Woman or the Mother, we seek tributes to the goddess. him out and take him with us. At the start of the kuneigeseon, | SA Our rite is not the stuffy affair of Man’s church, where We ethim free. After a revel, we hunt him down. His blood | you were dragged when you were little to squirm on hard feeds the Wyld, and his death feeds the cycle. Finding such. passing of a cup, or a proud battle boast. Games, plays, tall. _tface is not. Still, we remove dozens of blights from Gaia’s = wooden benches. Our rite is a spontaneous song, or the Men these days is easy, though abducting them without a a tale tellings, anything that brings us together in the Mother’s Vale each year this way. - bountyLong ago,is a rite we to taught the Garou. human Woman our rites, and she ©rop0s {(@he L °itany) 7 took her holidays home with her. Ancient cultures, more in You know the Litany, do you not? I see by your exprestune with nature’s flow, adopted our rites. Even the Patri. ; . . ; _ ; sion that you’re unsure of it. No, child, I will not attack you os arch had to acknowledge them, though he changed their ; ; eee ; ; again. We expect pups will take some time to absorb the a names and twisted their meanings. ; ; eer me ; pack laws. In time, they will be instinctive. Even our most modern sisters have rites for everything, . ; nee - As you might expect, each tribe, each pack, follows the ae though they tend to be more spontaneous than the rigid Li he; Each trib id ~ - ceremonies ofthe Temple ofArtemis. Generally, we gather tthe fo thelr own faste. h a hers, A «for og aan in circles around a bonfire and begin singing and howling, or Ene law more important than ot ers. “486, Tor examp™=s . _ oe a : is a curse to some Garou. To the Furies, age is power, rank, | adding drums and other human devices if anyone'can play. h h of the si Inb ; |. The tite lead lled aM 4 f k a testament to the strength of the sister. In becoming one | e rite leader, called a Mystae, (and yes, for our pack, . | _ that’s: ; me) weaves the skeins; ofsong together intoa tapestry with the Crone, a Fury completes the. cycle ofthe Goddess,; | : - ae the moon, and life. I see you smile! An old wolf like me | of praise. Some more traditional septs divide into Strophe would make such a claim! But as you travel among the / SS and Antistrophe, two sections of singers,; at the Mystae’s: sisters,. if you live so long, you. will* find this. to be true.g Pa command. This is a human embellishment, but an ancient : one. In more. modern rites, three or more chorus may Garou Shall Not Mate with Garou y | counterpoint each other. All of this will come in time for 7, | you. Many Furies break the first of the Laws, the prohibition S against sex with other Garou. Contrary to belief, we have A - Ch0r05 (W0ots) not all forsworn the company ofMan. The drive ofWoman .: to Man isa natural thing, and not always a bad one. I would When the full Moon shines on all below advise, though, that you refrain from loving a male Garou. heed not wind nor weather Such unions bring nothing but shame and suffering. -A weliste dance theing dancetogether. that the Men don’t know, Combat the Wyrm Wherever It SS isters dancing together. . , wells and Whenever Jt Breeds an — Leslie Fish, “Sisters Dancing Together ee For centuries, we have invited human women to join us We Furies stand in the front line against the Wyrm. Any moe under the moon, in informal moots we call kuklochoros, or Fury who cowers in His face should be gutted on the spot! - circle-dances. At these kuklochoros, we teach them the Gaia’s Vale and the Mother’s children are our sacred _ secrets of the Goddess and help them find Her-within charges, and no Fury should ever forget this. There are 7 themselves. When the Burning Timesswept the land, these § ™anywaysto battle the Wyrm, but any Black Fury who flees dances were called witch’s sabbats, and the women who the fight will fall beneath her sisters’ claws before long. me7 joinedholy beasts.”us wereMan,tortured as usual,horribly was jealousfor consorting ofwhat he couldwith “un- not Kespect the Cerri°tory of Another m4 control. Today women join usfreely at these dances, at least As I told you earlier, many Old World Garou violated a in America. Womanstill fares badly inothercountries,and __ the third Law, that of respect for another’s territory, when . : does not share our freedom, such as it is. we intruded on: the lands of the Wendigo. The Furies, at | Ulaka megaleis, or grand howls, are for Furies alone. The ~ _ least, admit our mistake and now pledge to honor another’s | grand howls are long, deeply emotional events. Fordayswe hunting ground, provided the other tends it properly. build power through challenges, rites and debates. At the ;OY peak oftheulaka megaleis, we burst into a wild revel to send o Chapter Two 31 
-
-**
-
-32 
 
 Black Furies 
 
@@ -168,35 +82,19 @@ Black Furies
 
 Our thanks we give, O Huntress, Wyld Shade, Moonshine Maiden; Given to us these tokens five, seal of birthright, birthright, bond of pledge; pledge; The Cloak, that Daughters may confound the eye of Man; Man; The Salve, that Wise Ones Wise Ones Ones might anoint the wounds of sisters; wounds of sisters; of sisters; sisters; The Bridle, that Mothers may rein in the Wyld in us; The Loom, Loom, that Artisans may weave tapestries of wisdoms; wisdoms; The Bow, that Warriors Warriors might strike down the down the the foes of Nature. Nature. ThanksBlessed be,be, SacredSacred Mother,Friend.Blessed be,be, SacredSacred Mother,Friend. be,be, SacredSacred Mother,Friend.be, SacredSacred Mother,Friend. SacredSacred Mother,Friend.Sacred Mother,Friend. Mother,Friend.Friend. 
 
-**
-
 vy 
 
-, 
-
 | i a 
-
-. | | 
 
 a 
 
 G, oS v 
 
-**
-
-**
-
 OA, life is a glorious cycle of song, a medley of extemporanea; and love is a thing that can never go wrong; and I am Marie of Romania! — Dorothy Parker, Comment 
 
 we “I don’t imagine,” said the elder to her pupil, “that you q he W ld a know much of the Wyld, being city-born as you are.” Y ou “No,” the young Fury admitted, “Outside of a few campYou offered me an eagle’s wing ' ing trips with my family, I’ve never really spent much time That to the sun I might soar and sing in the woods.” She glanced about. “It’s... wild... : And ifI heard the owl’s cry , a he others laughed, but it was a hearty laugh, not Into the forest I would fly a mocking. The youngster laughed as well.:. , i ; 4 The old Fury slowly raised her arms, a sweeping gesture And in its darkness find you by. G ont ay | h ; . ; — Loreena McKennit, “Samain Night | that encompassed the night forest; its branches rustling The Wuldish ddescrivt f — : softly, its shadows flickering with half-hidden life. “The, heh € ye 1s Soh Onc evonha torrent o sensation In . Wyldmuch isa morepart of than the Paradise Black Furies to us,”as the she hearts said at beneath last, “it isasour lose© theirREATtO luster.tranquilGa **i** ty.a Onceflowersyouin haveherseenfullest it, Manyouth scitiesan - breasts...” coldest splendor; life and death enmeshed in the eternal _ iy cee cycle. 
 
-—_ 
-
 Chapter Three 
-
-35 
-
-**
 
 would be cast out for such an offense, but these are liberal Most wizards are cowardly, grasping creatures who raid sheet times, and more pragmatic.Our leadersstilltakeadim view | our sacred caerns for the foul Wyrm’s magic. Only two paces ofsuch relationships, feeling (and rightly so!) thattheyrisk tribes (yes, they have tribes, too!) have the Furies’ favor. the safety of the pack. But many simply demand the sister | Those-Who-Walk-With-Dreams know the old ways, the _ be discreet and careful in choosing a mate, never forgetting © ways of Gaia; and the Mother has Gifted them with Her | that her duty lies outside the bedroom. magic. I have known shamans of this tribe, and I trust them. vA Man can be kind, gentle, respectful, and understanding. The second tribe call themselves Verbena, and we share a I Like a dog, he may be a faithful companion, but will bite, _ common persecution. and bite hard, if he feels himself wronged. Sadly, his During the Burning Times, our foremothers forged an 7: confidence is so fragile that any hint ofhis weaknessisoften alliance with these Verbena for mutual protection. The a enough to bring him to homicidal rage. Man makes a good _Patriarch’s madness drove the Verbena underground, and as lap-dog, but far too often has rabies, and must be putdown __ our tribes crossed paths in the cellars of the Sisterhood. : for his own good. Since then, we have kept reasonably good relations with - In the end, the choice is yours. Man is notevilbynature. _ this tribe. They know the power of Woman and follow the The Wyrm, however, is only footsteps away from his heart. paths of the Goddess. aos The Other§ bunchThere of Wyrmspawn!is a third tribeTheyI have call themselvesencountered,Euthanatos,a reeking al and there is nothing good about them. Their name may be a There are other haunters in this world, sister. Youmay Greek, but we have nothing in common with these mona know their names, but I wager you haven’t yet seen their _sters! Kill them if you meet them. oat faces. If you survive the bitter years ahead, you ‘Il grow to . oy know them all too well. Some we Furies count as allies. Wraith LY . I’ve already told you about meeting the spirits of dead | Others, we would sooner die than call friends. : || Dampires womenand disturbing in Europe. to encounter.I was not The exaggerating; ghosts ones I have seen are exud r **e** ala | Vampires do exist; pawns of the Wyrm, many of them. _ loneliness that makes the heart quiver. They did nothing to 4 Any good Garou would throat them on principle. But war harm me, and I don’t know if they even could, but I pity the | makes strange bedfellows, and I have known vampires I soul of anyone, Woman or Man, who achieved such astate. 7 would trust sooner than some Garou; certainly more than Their lot must be miserable indeed. 0 a bloody Get! You accused me earlier of being a toothless old wolf. Y Vampires have tribes, much as we do. From what I’ve After my warnings here tonight, I’m sure your opinion i _ heard, they trace their lineage through the blood of their stands firm! But if I seem, perhaps, protective, it’s only sires. Though they are powerful, wecanbeattheyoungones _ because I have seen so many eager Warriors charge headin a fight. They’re crafty, though, and live for centuries if — longintoneedlessdeath.We are few, my sister, my daughter, , they’re lucky. The old ones can best the most powerful of and every one of us is a buffer between the Mother and the Garou, and you’d be lucky to die quickly if you met one! If = Wyrm. Le, you meet a vampire, drop him hard and kill him fast! eee Ssa onceI have shared heard battlefieldsof one vampire with ourtribe, peoplecalled centuries Gangrel, ago. who In Ch W. 12 f WM ‘ : the myths of the Norse, our Northern tribes called theme or 0 an os selves Valkyries. Some women among the Gangrel went by As the moon reached the mid-point of her arc across the oan the same name, and the two fought bitterly untiltheyfound night, the elder paused and glanced at two women beside o a common enemy in the Get of Fenris. I have heard some her. “It will be time, soon,” she said. They nodded, stood, ! Furies even call these Leeches “friend.” More fools, they! and walked into the darkness. “You'll understand in time,” As I said, if you meet a vampire, attack first and ask the elder explained as the youngster looked on in baffleLd questions later. ment; “A very short time.” - ad Then she continue, as if nothing had happened... ; - | ThoughOur Kinfolk their numbersare not arethe small,only onestrue sorcerersto practiceexist.magic.Be~ €he Wyrm ano the Wor 0| ware them, sister! A real mage’s power is great. I have heard Wild spirit, which art moving everywhere; a the strongest of them can bend reality at a touch. FortuDestroyer and preserver; hear, oh, hear! o “¥y nately, they are rare. — Percy Bysshe Shelly, “Ode to the West Wind” Chapter Three 37 
 
@@ -204,37 +102,19 @@ The Wyrm tightens his grip on the world even now. In It’s about time that wome
 
 ## Black Furies 
 
-38 
-
-**
-
-**
-
-- 
-
-44 
-
 Black Furies 
 
 | a 
 
 oy ay 
 
-7 i | 
-
 re, Lee) eee er ceOe il Se Ree MRED om = men ee “ en fs Ae ee a Se er ee? oe Sa eee tee Bt LD Be ae oF, o ie Caren 2 
-
-**
-
-**
 
 ale 
 
 ois Street Rat oneRoleplhas **a** yingknife Hints:behind Attitude,their back,attitude, attitude.so watch your Every-own. ae ...and I don’t give a damn ‘bout my bad reputation! Religion is your particular sore spot. Hey, life’s rough, ain’t « yy it? At the surface, you’re a stone bitch, but underneath, — Joan Jett, “Bad Reputation 7 - . ; r 7 I didn’t like his attitud I ented hi you’re terrified ofbeing alone. Stick close to those you trust . to Quote: tan ¢ like fs attitude, so! spray-painted his face and save your worst pranks for those you’ll never see again. | match his uniform. ’ Equipment: Switchblade, motor A Prelude: Life’s a bitch for a hunchback in an orphanage. = ‘ = cycle jacket, mm automaticpistol, The teasing and the nuns were bad enough, but when youY/ SORBN flash powder, piano wire, and as£2 found out Father McMurry had a thing for little girls, you /@ a ER% \ sorted tricks , pea were outta there. fi /, [| , ~ haveYou beenran aaway shrimp,when butyouwere you had enoughmaybe twelve. attitudeYoumayfor 7" !/ Y/fs : eam4 aN\ ON : ‘ six. Running with a gang taught you street survival, / iSa r noe ‘te - but when the guys tried togettoofriendly, youwere, ffY &3 } y) _ gone. Survivor? Damn straight! é 3 /\ aw, ys . - Playing wild child, you raked in with a —d i F i iNeP: nN ROS eae bunch of headbangers into the black , LE- Jai We Cie iF yo >. ae metal scene. Trashing churches wasfun, pie mentas| D © ; a NO a but deep inside you knew those crazy the Sage Wy i ASN ae me bastards were onto something a lot Hrs. =. ta, v —_ “a oyv pe oe worse than cheap thrills. You hadn’t We ) eZ EA ? A y ae heard of the Wyrm then, but could (te tf \ i | => *, ! | still smell it. [A 3 \ fF Ses \y wtf | our First Change scared you so wy \ ff Pe \ ; el | . Uihen aN A e; ob af ! \) hy _ 4 bad you huddled in an alley for a aey . b aN My, te / ye, { 4 | Ne: Wy PS yo Ys . week. You probably would’ve My, pie SX SN Wee fe Ne yj 4 | i / AAS\ = | Up oot y | endedupwiththeBoneGnaw-ers, but a Moon-Daughter aaru Va(ANY\3 ASS\ SS .mn SFC4oogen } | yourecognized you and tracked 4 PANY \ Ps i, ( Six out down. She chilled you NY Sati | if sy MM 7, eSSS , and gave youajobanda \ WAS wl “4 i Wika ne aa <=, x ey place to crash. You've still ee W, NX | hilt’ 7 Se, iS : got an attitude, but now } by XN pO N SS | you ve got a purpose. “s | » i Y i “ g N You're not real likWW | : ' . J ‘ able, and you really fn \ no? \t ’ ine a7 ty . os ee folkdon’t care.are wolf-blood Your Kin fPR f pai Y Bnd buddies from the y f] oe street, and your \ ae mentor is a longy) ‘ =, 4 suffering Fury f > oo fated to housePf ——_ )_swa break you (or y, - 9 “| die trying... ). - 46 Black F} - 
 
 | Name: ! Player: | Chronicle: 
-
-4 
 
 | 4 : S: 
 
@@ -254,8 +134,6 @@ Backgrounds Gifts Mentor @0000 Smell of Man Allies @@000 Open Seal 00000 Heighte
 
 - | C000dD 0000 888# 0900000 Bruised : - OoOooooooooOo AOOOOOOOOOO. Infedy 7- - - 0000 ob 0.0.0 0 Tem AGNOSISmmm Wounded 2 O | OOOOOOOOOO eeeoooooood ae 2 = cooooc00009 FUUOOOO00N Incapacitated =O | Wisdom rippled 5 o OOOOOOOOOO __ willpower—a = ————- Weakness eae Rank @02ee8800000 -1 TO FRENZY - iy DIFFICULTIES - OOOOOOOUOO AGAINST MEN ; Attributes: 7/5/3 Abilities: 13/9/5 Gifts: 1 Level One from breed, auspice and tribe; Backgrounds: 5; Freebie Points: 15 (7/5/2/1) 
 
-: 
-
 y s 4 
 
 uo” Y ‘A 
@@ -274,8 +152,6 @@ AGAINST MEN OnGnenee
 
 . . ~ | as a missionary has taught you a variety of useful skills, but .| Missionary , your wrestling prowess make even other Garou leery of | Bed Every finger in the room is pointing at me pushing you too far... | I wanna smash their faces then I get afraid Sree Roleplaying Hints: Practice what y of what that could bring. CM4tf : youand preach; forgiving,stayas honest, forgivinpious, y — Tori Amos, “Crucify” (=~ werewolf can be You have ex. f ‘eed: I onlyQuote: ThePrelude: one? You knew Mother hasyou many had faces.a vocation Why can the you day accept the ifH ma VAI}\ff X*eAWS.NS] cellentRageterriblebeneathself-control,to behold.your surfacebutTrythetois | eee visions began, visitations from the Mother that only you eqy\\ nad ‘ OY maintain a balance in all - could see. From the pack that raised you, you learned what /f \~ y » things, but when your pa| it is to be an outcast. Inthe wordsofasympathetic preacher, ( C ‘ tience is exhausted, let fly. | you learned forgiveness. From your visions ofthe Goddess, } 7 * \ Disfigurement: Fragile | you learned that even metis have a purpose. => {] | | claws. | , The criesofyour human sisters brought you overseas, A Equipment: Jeep, Laa filth,to witness and disease. the crawling misery Your hybrid faithof starvation,— part , a " medical; supplies:; iak wl7 Christianity, parttained you in thefaceGoddess-worship of despair. Foryou,— sus- K\- J (\ \ he NK xxtn‘ e aa the sacred Mother tempered the iron —_) / | hand of the Father, granting forgiveV the jeers of packmates was nothing a -i nessnew,throughand the theSon.Order Shruggingoffered youasidea f\\@ ft Vi ~ , whole new pack, true sisters who ' VA \ Z| sharedThe your Holy Motherdissident showed youviews. | JA ' \ | the human face behind the mass LJ ) misery. You know now that (8) its limits. There are many 4 | suffering, thegreed behind the (a. f = ij - wayseven divineto do forgivenessthe Mother’s has o——/) N)t} work... A Jy NY, : Concept: You revere f / ooPES; sameCatholicsthe Goddessway honoredthatin muchmedieval the the VirLoo j S ' i f y / y j i—: : . @ io gin Mary. Your faith is | C ~X i) SS cA <a ees genuine, and youreally get “ S. \~ ¥: ee - aoe offended if other Garou ry, pT . = , fe 4 mock your religion. To i? , a " fi ; you, Christianity offers a / f \ ~~ ‘i B t=“ 7 peace the traditional Fury \ pu oon pack denies. h| X ; , NN a \F BE The Mother’s spirit | a KY follows and aids you. Your > L | gratefulallies are for human your e **f** forts.riends ”) { | Great strength makes i = up for your brittle | claws, but your dip: j F make fighting un¥ ! ~~ = 2 hw| yy necessary.lomatic skillsWorkingoften J . QL _ —/_ ~ L ; 
 
-4 
-
 iy 
 
 | Name: Breed: Metis Pack Name: . Player: Auspice: Philodox Pack Totem: Chronicle: Camp: Concept: Missionary - Physical Social Mental | Strength, eccce Charisma @0e0e@00 Perception. ©0000 . DexterityStamina, @e **e** 0e0e0 **0** AppearanceManipulation, e@@00@000 **0** Wits__Intelligence__ 0000000 A Calents Skills Knowledge iad Alertness ee@000 Animal Ken, 00000 Computer 00000 By Athletics 00000 Drive @@e00 Enigmas 00000 m4 Braw|_Wreetling e000 Etiquette 00000 Investigation, 00000 | Dodge 00000 Firearms @e@000 Law 00000 . || Expression.Empathy 00000@@000 Leadership,Melee 00000@ee@00 LinguisticsMedicine @@000@e0e00 | Primal-Urge_Intimidation, ss00000@ @000 PerformRep **a** nceir 000000000 OccultPolitics_ CQ00000 000 Streetwise 00000 Stealth e@000 Rituals 00000 : Subterfuge 00000 Survival 000 Science 00000 3 Backgrounds Gitts Gifts | Familiar Spirit @eeoco Create Element . 00000 Resist Fain | —_______ eeo00 __sense Wyrm es 00000 oe 00000 
@@ -284,13 +160,9 @@ iy
 
 ‘set Warsinger of yR **o** urleplaying life. Isn’tHints: that whatLife lifeis aislong for? song. \ f Bo Come wake the dead Sing well and with gusto. Everyone’s your . with a scream of life buddy unless they prove otherwise. Why // ;i And battle the ghosts at play bitch and moan? Take pride in . j your self, watch the shad— \A A — Jethro Tull, “No Lullaby” ows, anddkickkic 4 A Life is serious, but art is fun! , the — John Irving, The Hotel . Wyrm’s ass! a New Hampshire — SN eae Equipment: | Quote: Noisé? You've got no vision! rN NS ns ' Trench knife, sawed-off shotme Noise to you, magic to me! == = : Y | f! gun, serious collectionof guitars, a Prelude: Mother always loved you ee. re ~ lea \ amps and hard-rock CDs. ignore. When you grew to adult_ NSS, Vo oe best; you had a howl she couldn’t a Zz “i fy oe ; _ hood, you were the alpha’s choice ale 4BS —_ | J oa until a huge black wolf with reddish ee AVY ae streaks beat him down and carried you amNY A Y anom off. //A } oe/ wal Life as a wolf bored you. When you / » < / aa learned to shapeshift, you found out ay aa why. Life was better on two legs, more if ia; q i exciting, more challenging. The chants L bo of your Moon-sisters and the thunder of } fn, | humto d **an** ce, musicto stirredfight. aCre p **a** ssiontion tois sing,the ,, aiy | Mother’s bounty, and you’re deter! mined to sample every bit of it! Concept: A mystic hedonist. ; : Thoughand trained ayou witch,were raised your hearta wolf .Mas ; fF sgn AY . belongs to the wild night. Your oe NN .t/ ~via I life, for a werewolf, has been /# f ; a> Li, ie 7 A Wy spi easy. And even the toughest p gry fLEY iis fight y t “ys have is like a party to you. You \yus«fll lbs ell 2 a“ x ; ee 14 ° TMs . tremendous untapped ys LS. f Vd, Fo (Gf ad Ses power, but little discipline. It . CS Z f f eh Hg will take a major tragedy to ““ -y~7 y iwi i) ( SDD wo bring you down, and even 6 LAST yf ~ -s (\' os that might not work! yA £ ig a) ’ ; p | - ‘ Unlike most lupus, “ 0 i a j e gy oo you love humans. You know ¢% ; CoA, Yr Ll ws your way in the woods, but they il « 7 ye @ (4 . bm **o** reotsy **o** u.f theRituals,Moon-Daugwhet **h** er- the | A.i\ ~ 3 = M4 ,2 } _ ters or the postures ofMTV, > ¥ yy aA a 6y ae are your lifeblood. You SS vy ? ff cares learned to play a , J j -_ guitar, and you se (OO - 7 +» } | play damn well. \CX» ee 4, a0, . Your wolf-cousins “oo A4? but you’re having the time ° J viewyouwith distaste, — Rae 52 
 
-4 
-
 L 
 
 | Name: Breed: Lupus Pack Name: | Player: Auspice: Galliard Pack Totem: Chronicle: Camp: Concept: Warsinger - 
-
-**
 
 Physical Social Mental Strength, e0ee00 Charisma @eee0 Perception @0000 Dexterity, ©0000 Manipulation @0ee00 Intelligence____—s————s @®@O00 Stamina @@@00 = Appearance, @ee00 Wits___ 000 Talents Skills Knowledge Alertness @@000 Animal Ken, 00000 Computer, 00000 Athletics 00000 _— Drive @@000 Enigmas @0000 Brawl @0ee00 Etiquette 00000 Investigation 00000 Dodge 00000 _ Firearms____—s—————00000 law. 00000 Empathy 00000 Melee. @0000 Linguistics 00000 Intimidation @e@000 Performance_Gultar ececee0 Occult @0000 Expression e0ee00 Leadership 00000 Medicine 00000 Primal-Urge. 0000 Repair CC 0000 Politics. SQ 00 Streetwise. @e@ee00 Stealth, rererereré) Rituals 00000 Subterfuge 00000 Survival. e@e000 Science rayererere) Music Ly ose Backgrounds Gifts Gifts 
 
@@ -298,13 +170,7 @@ Backgrounds Gifts | Resources @@000 Leap of the Kangaroo Contacte @@000 Call of 
 
 | C000 gnv0000 9808880000 Bruised | OboOoooOoOoOoOoOooO OOOOOOOOOO Injured ; s 0000 oO 0.0.0.0 mn AGNOSIs mm tote Wounded 2 3 OOOOOOOOOO eeeooooooodo Mevled 2 Wisdom . Tipped 5 a 0000000000 OooOoo0o0o0oun Incapacitated Rank eeee0ee000d0 OIGnEN ee ee & A ed oooooooo0o0o AGAINST MEN - Attributes: 7/5/3 Abilities: 13/9/5 Gifts: 1 Level One from breed, auspice and tribe; Backgrounds: 5; Freebie Points: 15 (7/5/2/1) 
 
-**
-
-**
-
 | Name: Breed: Homid : Player: Auspice: Ahroun | Chronicle: Camp: ! Physical Social os Strength, e0ee00 Charisma, a Dexterity @@@00 = Manipulation = Stamina @@000 Appearance. 
-
-4 
 
 | 
 
@@ -318,17 +184,9 @@ Physical Social Mental Strength, e0ee00 Charisma, @eee00 Perception @0000 Dexter
 
 o000000000 e@e@eeeeodododododoad Bruised = | mnoo0000000 OooOooooooo «6 4 a 0000 06 0.0.0 0 Tama FGM0SIS mmm Bote Wounded -2 O j OOOOOOOOOO eeooooooondn Malet 2 = Wisdom Tipplec 5 0000000000 oouooooOoOow Incapacitated O | OOOO0O0000u ———— Willpower ame ameWeaknessome OOOOOOOOO0O AGAINST MEN S[A] att ta ee70ee00000d0 oeentNce . Attributes: 7/5/3 Abilities: 13/9/5 Gifts: 1 Level One from breed, auspice and tribe; Backgrounds: 5; Freebie Points: 15 (7/5/2/1) a at iis /, 
 
-**
-
-7 ‘ 
-
 , y A 
 
 we ee es pen a a a 
-
-. = 
-
-**
 
 ## rye 
 
@@ -336,47 +194,15 @@ Althea Banesla er hellhounds, huge Kinfolk who can breath fire. Althea is y know
 
 | | 
 
-_ 
-
-**
-
 Appendix Three 
-
-57 
-
-, , r 
-
-, 
 
 ——Y Sister Judith Paws-OfWari Cabrah ie: Llght Anurban Amazon, Mari stalks the neon-drenched maze 4 of New York, hunting Bane and corrupt human alike. Lo A metis Wise One of the Order of the Merciful Mother, Abused as a teen-ager, Mari is sworn to protect other girls Sister Judith displays eerily accurate foresight anda power- _ from the pain she suffered. She runs a self-defense dojo, a ful bond with the living land. Rumors tell of Sister Judith teaching martial arts to any women who wants to learn. : A raising new saplings from desert dust and healing advanced = Though she prefers to live alone, she has taken more than a cases of leprosy. Light blazes from her snow-white pawsas a few young runaways under her wing, teaching them to - she works her potent Gifts; some even say she can banish stand on their own before sending them back into the 4 Banes with a command. Such stories are doubtless wishful —_world. a thinking, but most Furies concede that Sister Judith holds Mari has a soft spot for kids anda special hatred for urban - special favor with the Mother. predators. Among the Garou she is known for her sharp : She is reputed to have skinned Iraqi soldiers alive during tongue, fighting prowess, and keen familiarity with the | the occupation of Kuwait, and slaughtered IsraeliandPLO § Weaver’s jungle. She once ran with an inter-tribal pack fighters alike to save innocents caught in a crossfire. Fury called the Guardian Rage. Mari remains bitter about the utd gossips claim Sister Judith has gone into Bosnia to put an __ split, and has taken on a sour attitude towards packs in ial end to racial cleansing. general. ces Many Garou claim that Sister Judith is a myth, a tale ey created to glorify the Order of the Merciful Mother. Others ea maintain that they have seen the Pale Fury with their own eyes, and that the Spirit of Blessed Mary guides her hand. Only her sisters in the Order, and the Goddess herself, know the truth. 
 
-**
-
-: 
-
-a , 
-
 VD, ! h 1 \ olcheKa Jbarruri BE Her first name means “wolf-lover;” her last is a tribute to a a Spanish revolutionary. This up-and-coming young Fury wages a personal war against the wolf-hunters of Alaska. « | She rarely kills her prey; she prefers to maim them and leave | A psychologicaltheming bleeding warfareon the hasoutskirts already takof a na **e** tollarbyn ontown. the hunt-Her ;: Thetrade...Alaskan authorities a fear a band of radicals has taken on crusade,up terrorismevenindisdainingthe forests,thebuthelpVolchekaof otherwagesGarou.a loneHer g . immunity to the Arctic cold and seeming ability to control ~ winter storms leads some to believe she serves the Wendigo totem. Volcheka already seems a legend; more Furies know IE of her by reputation than can ever claim to have met her. 
-
-**
-
-‘ 
-
-. 
-
-**
-
-**
 
 v 
 
-**
-
-4 
-
 | 
-
-. vs | - an 
 
 y 
 
@@ -390,15 +216,11 @@ Gifts —).
 
 a Glory Brui Oo 7 O000000000 OoOo0o0o0ao0 0000 0 pred _ =.: OOOOOOOOOO BOOOOOOOUOO luredjure -F = Honor . “a OOOOOOOOOO ooooo000000 Mauled 2 = : Wisdom OoOooo0o0o0o0o0o “pps | 0000000000 ; | Incapacitated =O |. | OOOOOOOOOUO AGAINST MEN ZG —1* Fan dom 0000000000 oimcucics - Attributes: 7/5/3 Abilities: 13/9/5 Gifts: 1 Level One from breed, auspice and tribe; Backgrounds: 5; Freebie Points: 15 (7/5/2/1) POLAR Ps AT Se 
 
-4 
-
 | 
 
 s y) A 
 
 QBs Frees | mmHOMidete mmStrengthGlaby (+2) getoine mmamnStrengthPino (+4) Sepa menmnsStrength (+3)PL iS 0 emtelee mmaronelStrength11 (+1)PU Safes a re Stamina (+2)_ Dexterity (+1) ~ Dexterity (+2). Dexterity (+2) | . | LZ Change Appearance (-1)___ Stamina (+3) = . Stamina (+3) : , Stamina (+2) a _ Manipulation (+1)__ Appearance 0 Manipulation (-3)___ Manipulation (-3)__ a \ Jeers Manipulation (-3)__ ee ; Difficulty: 6 Difficulty: 7 Difficulty: 6 Difficulty: 7 Difficulty: 6 oes 00000000 Item: [Dedicated Level Gnosis a 00000000 Power .: | ——_—_—_—_—_———_.COC00000000 Item:Ppower. L1Dedicated Level Gnosis . | OO0000000 | 00000000 Item: []|Dedicated Level Gnosis | 00000000 Power ————. 90000000 Item: L)Dedicated Level Gnosis | nnn OF 0701010101010) | Power __ nin ©1 616101010101 0) ————________. 00000000 wrverveman eee fda Rite 5 wvwmcmrvemcmm Loaders s—<C—COO OD. | ——————___—________1[O000000nd] 00000000 Ny mo —__—nnn © 61010101010)COO OONOONO0) \ OOee a 00000000 | ae —________ 00000000 = —___ |S €00000000 TT. oe ____——-: 00000000 —_.W as ——__—s—s—C—C—EHONONOD ——— —__—OOONDD rrr RsCombat women semneeratorsar Maneuver | Rall | Difficulty . Rate Clip Maneuver Roll Diff Damage . Body Slam Dex+Brawl 7 Special Grapple Dex+Brawl 6 Strength Punch Dex+Brawl 6 — Strength 
-
-s : | 
 
 | . | 
 
@@ -410,19 +232,13 @@ A —Bescr Pues : , Nature: Demeanor:
 
 Ze 
 
-**
-
 Type Cost 
 
 Flaw 
 
 Cype vance Resources 
 
-**
-
 weumrvmcoreemn EXPAND Back gr ound vance Loratoonar Allies Resources 
-
-**
 
 Name TOTAL SPENT: : evel Type aBy men Location 2 SpentOn; 
 
@@ -442,35 +258,17 @@ Hair a Eyes —
 
 i Sex _: Height | Weight a Glabro ie Homid Battle Sears$$ 
 
-: 
-
 Pack Chart 
 
 Character Sketch 
 
 j 
 
-**
-
-**
-
-**
-
 — an Hl. MARTHA ABE PHELL VOU TONIGHT? ueTHAT" ; TT , JUST FINE, MARTHA. : UT Ig 7 _ Ie r Y a ~ . . Ce ys a . J x\\ WC _ —= = 3 | fimo 2 (ie niga v aa V4 a, an yoo 4 = j il San i | Ke Se 3 : a), CAs wi, = — fin We wh\ a | 7 AR Ae ; yy \ 2 ow eospastasrst pula, Mir "Fad | sngalaHl, DAD. WHAT'S UP? is) a) i f [sae | ( a eae 4g J a | " I. . ‘y IED ABOUT THEM. , ‘ if y4 S . THUS ENDETH ANOTHE | =r | i) Ps ; SES LHS SAL yom: é OLK OF OUR TRASH OF HUMANIT » mn = CRUS “aN 1A va O44 — ts ROS ayy ! é Ssign 7E( A a ray X | | 7 +, y SY 4 oF on f » a 4 ? THATS RIGHT. GON. THAT'S piOHT, No a4 ‘SS yr ; ch IATSOMEONE ~ Los MOTHER, SHE WOBBIES.oa go ( /geall Ne a IG TAKING CARE OF ou i’ | " — <p 
-
-**
-
-**
-
-**
 
 peed 
 
 , My a peed A , “ ) 7 ° / | 1 1| ! MUSTDOLIce! GET TO TH RIGHT: AWAY. SIR! THIG‘ BACK ALLEY?a RY —e_‘ i v LEB ’ - rr j ~— 7 . _ x 5 las aa : / : KY ¢ \ = ' s~ Y? Z \ i; / y a\ WY ty . , J 4S vAq ee= 4S Lem od ! Y, . t LE A= - J a vy -~ x : y 5 A 4 A | g A rain? 1eO™ (aS Ww NO M, \qaoony vA! 1 ad - al } \ ex Rant’ if \ AAT RY os A ¥} ' , f | HAVE TO TAKE CARE 24 9 | a : Y OF SOME TRASH. SIR! | . li ¢ \ Ta — , , ‘ 7 \ eo}: —. ——= / 7a SYNn NERA\ NS‘ .ay a“.* . | a NN - | ‘m4 NN N NOAA HEY HEH HEH...WELL. THAT ENDS OUR TALE OF FILTHY LUCRE ANDO FILTHY LURKERG! 7 | Me an, eG a JUST GOES TO SHOW YOU IT'S REAL HART? TO GET GOOP HELP THESE DAYS! | —_ . HEHEHEHEHE! WELL. AT LEAST NOW TOMMY (IAG LEARNED THE ERROR OF HIG WAYS. . S= AND IS HANGING AROUND IN BETTER PLACES, AND WHAT OF THE BEARER BONDS. | CA Dy WELL. IT SEEMS THAT A GENEROUS DONATION WAG MADE IN MR. RENFROE'S NAME - . ; , = <— TO THE SALVATION ARMY! TOO BAD THERE'S NO GALVATION LEFT FOR TOMMY AND : ( ‘a Wy atTa) HIS DEAR DEPARTED DAD! DON'T WORRY. TIIOUGH. FOLKS. THEY PEMONSTRATEP TO i q } »~ THE END: THEY WERE. INDEED. PEOPLE OF GOOD TASTE! TO THE RATS. THAT IG! : 4 \\ HEEHEHEHEEHEHEHEHEHEEEHEHEEE! ACK! COUGHI 
-
-**
-
-j | 
 
 | 
 
@@ -490,13 +288,7 @@ This book uses the supernatural for settings, characters | and themes. All mysti
 
 8 nS i aM 7 
 
-= 
-
-**
-
 Contents 
-
-**
 
 | | | | 
 
@@ -508,23 +300,9 @@ We wage our wars In the neighborhoods We kill the young to feed the old And man,
 
 : We own the streets. The Glass Walkers in their high wants us. You may not give adamn. Ifyou don’t, then don’t domains think they do, but they only own the title deed. —_waste your time. We own the dirt. We own the gravel. We own the broken This tome is written not just by me, but by awhole bunch oa fragments of glass and the Burger Cow wrappers and the —_ of Gnawers who've got stuff to say. That’s because when a Runaway Helpline posters and the muck, theslime, thegoo _yow’re told to shut up a lot, when you've had folks turn their Se that decomposes whenever you Trashers throw something —_back on you for long enough, you've got a lot to say. wey down here. We own it all. We're the princes of paper, the You think that just because we’re Garou, we’re automatiae satraps ofsoil, the tyrants of trash. When youthrowabagful cally buddy-buddy with the other Garou? Fat chance. They - of hungry newborn kittens into the sewers, we find them. —_Joathe us. They think we stink. And we do. But we stink When you toss your shredded “dirty laundry” documentsin —_ because of what we are, where we live. : the trash, we find them...and put them back together. . T'll tell you, though. I'll tell you exactly what’s gonna We live off of the crap you no longer want. We don’t happen hete in a few years. The rest of the wolves, they’re ee have a credit card or a Miata or even a checkbook, but We going to get their butts killed off by the Wyrm. Already ya ri get along. What’s my goddamn Social Security number? gee it happening down in the Amazon. Already ya hear from Hell if I know. places like Chicago and Atlanta — Garou getting killed off We don’t worry about stinkin’ numbers. We survive. _ left andright, the Wyrm showin’ up innew guises.| tell you, | That’s our gig, survival. Sometimes I wonder what the hell — Garou won’t be long in this world. we're waiting for — our deaths, or the end of the world? Well, not all of us. We Gnawers will be here, just like - Why do we put up with it? we’ve always been. We'll be the last, just like it was foretold. Well, I’ve scrawled, licked, stamped, glued, and pasted —_ this thing together ‘cause I want to try and tell you a little Le, iy about us, about why we keep going when nobody really And then we'll show the Wyrma thing or two.... _ Introduction 13 
 
-**
-
-3 
-
 | 
 
-, 
-
 | 
-
-**
-
-**
-
-**
-
-**
 
 It’s a hard life It’s a hard life It’s a very hard life It’s a hard life wherever you go If we poison our children with hatred Then the hard life is all that they know And there ain’t no place in this world for these kids to go... — Nanci Griffith, “It’s a Hard Life Wherever You Go” 
 
@@ -532,39 +310,21 @@ It’s a hard life It’s a hard life It’s a very hard life It’s a hard life
 
 jaw lock. The great creature was so pained by itswoundthat _streets...you’ll not be an enslaved homeless bum on the Pe it screamed and fled. Ol’ Boney barely got free in time. streets, not while I live and breathe! Sy . Gaia, seein’ all this, said, “And so shall it always be; the What’s wrong, am I borin’ ya? Oh, really? You wanna i children of the Gnawers of Bones will bide their time in hear about the Hood, do you? That’s skippin’ quite a bit. | prudence and strike when the hour is best for survival.” Well, alright, I’ll tell ya then. , | . Or somethin’ like that. Anyway, the upshot of all this is . . A | that Bone Gnawers don’t like to put their necks on the line Robin and the H000 S| for no good reason. We see it as our job to stick around as , g. Za long as we can, Maybe it’s ‘cause we want to be there to see I'm sure youve heard all about Robin Hood and his J everyone else mess up. Or maybe we believe that story: Merry Men, right? Well, they got that from us. We've been are we’re gonna be the last chance Gaia has to win this one. doin that sort of thing for along time. Back then, we didn’t 24 Who knows? Who has time to think about it? like to see the poor get screwed over, ‘cause we were the 4 . bh pe poor. What happened to them eventually got around to — § Ancient History happeningWe used **t** ous rob from the rich and give to the poor. Or just oy ’ The first recorded history of ours talks about Hammurabi; _ kill the rich, take their stuff and split it up. We were doin’ — - he had to worry about his rats, and we were the mutts inthe _ that long before any Normans invaded, although most folks oe streets of his city. We used rats back then to keep humans _ didn’t realize it because back then there was no central mint ee from getting too plentiful...something we’d been doing where people got their cash. A few coins missing here and wl since the Impergium, when we controlled the human __ there didn’t cause a major uproar. @. a population with disease and famine. We did our part in the The Middle Ages were something of a heyday forus. We ae Impergium — not necessarily because we wanted to, but _ thrived in cities like Paris, London, Toledo, Kiev and | because we were forced to conform by the Sieg Heil! Silver Venice. And we kept following the Vikings and the other | Fangs. merchant marine ships wherever they went— just along for . Next, let’s see — ah yes! We were the folks who went __ the ride, looking for new cities to conquer. | along with the first sailors. You didn’t know the Gnawers In fact, many Get of Fenris Viking tales have Bone | are some of the best sailors in the world? Well, what ship | Gnawersidekicks in them, just to set off the glory of the Get | you ever see didn’t have a rat on board? We and our rat — warlord and provide comic relief. In reality, though, I ~ buddies pioneered the way for the Garou to spread allover betcha many a Get of Fenris’ butt was saved by a quick, the world before the Moon Bridges linked everyone to- _ thinking Bone Gnawer seadog. . : gether. We can even swim pretty good, and I’m sure you’ve Then, in the latter part of the Middle Ages, things got me heard the term “Sea Dog”...that’s us. Okay, can it with the bad. Many folks have tried to blame us for the Black Plague 3 . “dogSome paddle”of thejokes.more adventurous of us went to sea with — weand weren’tthe other involved, plagues butthat I’ve came heardalong. a taleI’m or not two saying sayin’ thatthat oo pirates, Vikings (with the Get of Fenris, if youcan believe | the Bone Gnawers were the folks trying to stop the spread that!) and what-not. We used tobe alot more adventurous of the Plague — hell, it was the poor folks that got the worst than we are now; it’s because we didn’t have alick of sense of it all! oBy in ourheads at the time. You see, until humans settled down Sadly, we were also carriers of disease; we were so hardy eh and started living in cities, we really didn’t become civiand strong that we could take diseases that other folks ae lized. couldn’t, and in our efforts to help out the sick and dyin’ - S ; I’ve heard tales from some of the eldest Grandfathersand poor folks, we spread it further. Okay, so we were fairly a some of the most ancient ancestor spirits, but they won’t — stupid back then...that’s why the Ban of Man was put in 3 tell me about the Gnawers that chose to live outside the effect. What's that? Wait a minute, I’ll get to it. oo city. Perhaps we’ll never know...or perhaps some of them The Inquisition finally died down. We barely escaped : stumbled down to Australia-land. Maybe the first Gnawets _ the hunts, the fanatic clergy wielding silver crosses, and were also the first Bunyips.... that was only because we knew how to hide. We sheltered SEs I think you’d have to look all the way back to Rome — many Garou during the Burnings, and made many strange oe before you could finda group of Bone Gnawers whohadthe _ bedfellows as some of the other creatures of the night took : -_ right idea about surviving. We learned a lot in Rome. We shelter with us. That’s when we really came to know the learned that we were good at living off the crapthe Romans — Nosferatu. I’ll tell ya more about them later. a discarded. We learned that we were good at snooping and When the Renaissance dawned, things were never again ; sneakin’ in the dark corridors and catacombs that made up _ the same. We lived in the blossoming city-states of Italy and 7 Rome’s architecture. And we learned that we hated— just we thrived on the (much emptier) streets of Paris. . couldn’t stand — slaves and slavery. We did whatever we | Werewolves were relegated to the realm of superstition. ee xy Me,could toI don’t stop it,care to freeif you’r thos **e** poora homeless folks, no matter what.bum on the | We weren’t sure how many of us were left alive. 16 Bone Gnawers 
 
-**
-
 Chapter One 
-
-17 
 
 itd Bah)ne Gnawer @atrlotSs chines like fodder, and they spat us out the other side, lungs There were American Gnawers among the dogfacesand UF life’s work. They forced us out of the nicer places and 5 black and bodies broken, with but a bare wage to show for — the rank-and-file soldiers who slept in rags at Bunker Hill. = 19*° the holes, the ghettos, the Sewers. We soon realized | We were the trappers, the grizzled ol’ mountain men who that there wasn troom for us in the humans’ plans, and that j pushed back the frontier. Of course, our Garou brethren, W© couldn’t fight the behemoth that rose up overnight to YA | ag the Wendigo and the Uktena, didn’t take too kindly to us. choke the land around us. a: Wehumans. tried to learnTo this theirday they ways butdon’t welike wereus, just asbut at lost asleast thewe (Gghé Amerl°can Ad)réam 54 respect each other. And we never tried to kill ‘em off, not _ ; _, 5] like other Europeans did. We had the Ban, remember? The But the spirit we had — our way of staying alive and doin hl Wendigo respected that. Not that it mattered; the Pure what it takes— had taken ona life of its own.We called this 7 Ones thought ofus in the same way the restoftheGaroudid SP!" the American Dream, because it was part of our dream - — so why should we help them any? for our cubs. Those that worked hard got something back a There we all were, free and clear from the British, a for it. Those that actually got out and did an honest day’s nation all our own And then all the work we'd put ‘in scamming got enough chow for themselves and their famiot5 during the war, sneaking and spying for the Colonies, dying lies, All around us, all throughout America, a combination a in their battles _. none of it made a lick o’ difference. We of our beliefs about survival and the work ethic of the day cee ~ oe . blossomed into a full-grown, brand-new totem. _ were thrown aside like everybody else they no longer had a ‘Ah. the Roarin’ 20s! I littl hen, but I £4 use for. Many of us turned to rum or opium to get over it. » the Koarin’ “2us: twas just a litte one u €n, but 2 Thinos looked bleak for our peovle. We had hard winheard tales from my grandpa. They had hada war in Europe, 7 ‘ t We ly died. and th P tL . the New World and we won; the whole world was celebrating, America’ - ol vonen’t bie en y he » an ve . tes in the ew wor especially. Cars were big. Booze was big. Crime was big. The a Wh . im ° Well folk heG didwh Glass Walkers moved in like gangbusters to the cities of Wwe at Te wh whe hi tO *o € when iL hell at America, coming across with their Mafia ties and forcing us : always do when the chips are down, when ali hel! ls out of the city caerns. Well, at least the ones they knew **_** | vreakin poe when it’s the last minute ofthe lest hour of about. Heh. They'd have a hard time finding some of the _* 7 Weaver in the eve ant one. “Leeine an ther one ;>We ones they don’t know about. Anyway, the oY. were really ut took the crap that we, were handed,? made something out, of big,oe So weand you got know real buddly-buddyus, we try to withsurvive them.whatever Started way enwed| it, and gave that somethin’ to our kids, who gave it to their ing our muscle along with theirs. kids. We survived. Oh, it wasn’t a Life of Riley; it wasn’t 1 tell b ; Ik f h. But it was something. It was all we had tell ya, our tribes were getting really close there for a posh. eo bi ‘ k while. Our muscle and their brains made a dynamite comoO We were part of the Civil wan £083 a DIE PN Heck, v4 bination. Our knowledge of the cities’ soft underbellies was thick thee of me helt be kb ‘h Ben af Man. eh ; also helpful: bank robbers had no trouble breaking into . think that we d be held back by the ban of Mian, rignt: laces that were otherwise unassailable. What? Oh, it Well, Pll tell ya, nobody paid attention to it when it came eae “You can’t get in it.” Like a tin can without an ce to the slaves in America. We didn’t give a damn about no opener. Geez, I'd wish you guys would read more than en Bani we were oeld help Mss. Tubman Ber those folks out comic books sometime. What? Oh that’s right, you can’t oe - , ; read. 4 locked up and we ve hated slavery. As long as there is a So there we were, Bone Gnawers and Glass Walkers, os Gnawer still kickin’, we'll be there, helping the enslaved line righ her lik in the wi a + free snuggling right up together like two mutts in the winter. 2 ge Th - hit: the bie Industrial B Th id There was talk among the elders that there'd be a merger, en it hit: the big industrial beast. ihe world was that the G.W. would adopt us into their noble ranks and _ changed all over again. er folks eritted their teeth and we’d finally have some decent representation at the Great earned more — learned about steam and electricity an Moots. ee Beee Aa dane Ldoghcncwharke __Butthat, along with therest ofthe world, went[down] _ the damn Glass Walkers say! — we were the first ones to talk “T*PREr OM Black Monday. The Crash of 29 was foretold _ to the spirits in the machines, the steam elementals and the only by ‘ few overlooked prophets and visionaries among a electricity spirits. We were the first! And we were the first Gull,me ©: In fact that S what makes te storytellers, Our . to make friends with the spirits of the streets as well. ~ istak A P hen th h di . i When thm **e** Weaver went crazy, rtthe humans woke up and weteralol’hhairyeckblanket eneneon ourCrashGlass W,Walkerhes parade.it threwI aguess big 4 started Puliding crazy webs all thelr own. vere of steel and the G.W. finally realized just how snuggly they’d got with an tron. They fecide c at the hoe ® r wou the bie the qs; they instantly kicked us out and withdrew their support ae mines and factories. ‘hey shoveled us into the big mafrom the moots— we were dicked over again, and this time 
 
-18 
-
 Bone Gnawers 
-
-**
-
-**
-
-**
-
-2 
 
 | 
 
 A Y 
-
-**
 
 Why do the babies starve When there’s enough food to feed the world? — Tracy Chapman, “Why?” 
 
 S Listen up, you puppies! Geezus H. Keeeryyyst. You’d _—_I bet those Silver Fangs would have quite a hard time think you boys and girls ain’t never seen an old man. Yah, _ finding scapegoats arid whipping boys. that is a Buffalo nickel. Nah, you can’t have it. Here, give I know what you're thinking, puppies. I’m lookin’ in your le, ai aboutit back.the Now,folks whereand how were we?we gotOh,to yeah.be this ’mgonnatellway. you _ neweyes, Gnawer and I’m seeingI’ve. come the hateacross. I’veWell, seen onyou thebetter facebite of everyback us Perhaps alone among all the Garou, the Bone Gnawers _ that bitter rage just this second, because if a Grandpa or a a came to America pursuing a dream. They heard that, in | Grandma sees you like that, they’ve got every right to bite ae America, everyone was created equal, thateach andevery —_your ears. i: person had a chance to get rich. This ideal became known You don’t know what it’s like, walking into the Silver as the American Dream. Fangs’ golden thronerooms with a couple thousand years of “ Forus, the American Dream wasaspirit that promisedus genetic conditioning staring you right in the face. You 7 freedom, a new self-respect and the ability to start fresh. | freeze. You can’t speak. You can’t even breathe. All you on Huddled among the thousands of immigrants in places like |= wanna do is bend your neck and get the heck outta there. a New York City and San Francisco, our tribe tried toescape = That is, unless you want to risk letting your anger loose, and _i| notof their only poverty Garou brethren. and war, but also the ruthless persecution thenGet-o-Fenris you’ve gotbodyguards worse trouble.and Whatmaybe youShad g **o** tw isLord a bunchrough- of L ° necks, all of them eager to get points in the Silver Fangs’ 4 Persecution - eyes (oh, they put up a big show, but we know the score)...and all of these brutes are gunnin’ for you, right Persecution has always been a major part of our place _ there. Well, you’re gonna see Gnawer blood on that nice among the Garou. The Bone Gnawers are always the white carpet. os yy trouble that nobody wants to handle, the stinky problem . eos that just won’t go away. Heh. You know, if it weren’t for us, ae 
 
 Chapter Two 
-
-23 
 
 . : ow « 4 . ft b> 4 4 x - a . & ~ « a. aaN : 4, VFiy Ky” 5.“ = wes> Z < % z= SS ee=e 4 Ws “yg Brn od “ow x [z= 3 | : (s N “he 7) eesSZ =»i) NY a \ u te’, = “sei Uy YY 2: > N oY. SAY 24 | Sv o\, QUARTZ SESSA ANN Zi ; UNITES “aN Nel mW’. \ : BG , ~e -@ oa _— 4 ' ‘ ~, : w./ | whileSohow still keepin’dowe fight thethe best partwolfin.us, of theourselves, ancient theprimitive Garou part? part, The Hood Well, if] had the answer to that question, J wouldn’t be sittin’ I'll just be taking these Huggies... : here tryin’ to poke wisdom down the throats of a buncha’ — HLL, Raising Arizona 7 PUPPIESThat'swho right, ain'tthat’sgot what sense enoughI said. Got fo yourpour attention, piss out ofadinnit?. boot! |,Iginal told yaarob-from-the-tich,little about thegive-to-the-poor Hood already: theyfolks. wereWell, the I'll tell you what, puppies, how ‘bout we try somethin’ new. they've made it all the way to America. You can’t tell who Like I’ll sit down there and you stand up here and tell me they are: the Great Elders have exiled the ones that show ig everythin’ | need to know about the Gnawers. Any takers? themselves, but that’s just because of the Ban of Man. I’ve 5 Huh? I didn’t think so. seen.a few and] know one or two, and more righteous Garou wes Anyway, it’s been years and years and we still bend our. —_you’ll never meet. If one of the Hood gives you 20 bucks to Be necks when we have to, because we ain’t got achoice. That _ buy a pair of shoes, you better damn well buy a pair of shoes, ar doesn’t mean we’re stupid or even inferior.It just means the — nota mess ofGolden Grain, or he’ll come after you and take F pretty boys’ve got the drop on us. On their turf, they’rethe top _ the 20 bucks outta your hide. If you want help from the 4 dogs. But here— here in thecity— that’sa different story. We Hood, you better make sure your kids are in school, learnin’ = own these streets, and maybe now you're startin’ tolearnwhy _ to read, or they won’t help you. They’re liable to snatch we stay where we do, why we put up with the crap the other —_your kids, get them to a foster home or the like. They’re do_ Garou dish out. gooders. They don’t always know the right thing to do, but eA they’ve become pretty good at it over the years. They can ” Camps sense a fish story when they hear one. oo , The nice thing is, though, if you got trouble of the mean There are a lot of different Bone Gnawers, but we're all kind, the Hood will step in and speak to your loan shark, or joined by common bonds: our jackal’s blood and our POV-~ your landlord, or your “protection” service. They speak the erty. Nonetheless, Gnawers like to form themselves into language ofthe[ streets][ well] and[ fluently,] and[ without] much 4 different groups, or camps, to fight fora common goal or Lybbub. . purpose. The camps of our tribe show folks how different we SE_ iy are,matterbut how don’tdilutedlet thatour foolbloodyou: we’reor poor ourtruly pedigree. one tribe, no - 24 Bone Gnawers 
 
@@ -580,13 +340,9 @@ nd s r
 
 oN ! . TO a ee “|1 —= 2 < < By hhGRcpijagscseccccectsseccsanesape tpter eNN,,OT Git \, 4t y i H mal. SAA 7 be,r ae d i. =I a cnetEE tin<n EE ES QO |S fond VT» EASA £ = Bhp OK Y he A! i ip | WN A Y gS Ss wy eS oe 2aa. ~~ | ore tayRID ce dR ae ore" Y 4 ' = A258 De y LIPS. y ) 7g ¥ | * pe RE ee 5 Ss } Ss \ , “4 “VERA \G F 7, ep gf” BR & Sy + 2 ) a A eile mo” EF = BH OO RATA — - . . vars ? g F a — oo ee ay AN’? Lo porch ofthe cabin. They do get along fairly well, although ( h ( ( f h the Talon didn’t seem to take too kindly to me. e otemh) 0 t e “ RiteA lotof Passage, of our cubsand are several turned outHillfolk tocaerns the countryexist solely for their as a KR[u][st] way to keep a Rite of Passage area open. The most famous There’s powers, and then there’s powers. Sometimes, the | of these is high in the Appalachian mountains, in a valley power company ain’t the only one with Power. Sometimes, SAY that’s nearly impassable on all sides. there’s things beyond what you can see and taste, spirits that oo= A Hillfolk. Harangues watch over us and take care of us. Let me tell Yya about them. ae Call me a hillbilly, go ahead. All I want to do is to make my Rat _ ‘shine, farm these hills, and avoid the revenuers. I don’t think N cht b - leh oy that’s askin’ too much. I don’t wanna be rich, I just want my fair Ow, you might be sayin to yoursel: here we are, a share. But you know what? It just don’t pay to be a farmer no worshippin’ adamned rat. A rodent. A filthy, slimy, squeaky : more. I had 20 head o’ cattle before spring of last year and now thing that likes to bite people and spread disease. Well, the I got five. They keep dyin’ ,and they keep gettin’ born with two first thing I have to say to ya is this: at least!! it ain’t!! a As heads or no tail, and the Enquirer just don’t pay enough for cockroach! !! Okay? You dig? Now, a rat is a smart animal. as pictures 0” these to make up for ‘em. The gou'mint keeps saying Smartest in the world. Why do you think they get chosen _ they’releft for gonnathem to subsidize,subsidize butin a few there months. probablyAh, won’tdamn. be anythin’ for alley rethose smart; sctentiicthey «nowtests!how Notto survive.Decause |theynd vethat stupids wha ee What's that? A blackcar...could be arevener, abillcollector, a Il teach you, boys and girls, if you can get over your fear or the bank itself...ain’t no good gonna come of it. Here boy, ° wh o's that av? You didn’t know sh ashe? take this shotgun.... at's » you say. w she was a she: Well, there you go. Learn somethin’ new every day. She’s nsa iy squeezesthe great outMother all the otherof Rats, Ratsthe in the world,grand preggers especiallyRat that the _ 28 Bone Gnawers 
 
-**
-
 = éb)er]thlng Vou Wanted wild,the food extensive,is free expensiveand the andboozeheavilyflowsattendedfar and affairs,wide. wheYou' **re** xe ; to KnOw ab0ut Bone expected to feed every Gnawer that shows up; in exchange, he ” has to bring ya somethin’ that'll actually be of use in your new a Gnawer MWatIn fs)7 b lifeare secre —no **t** alocations toaster oranythin’. of food stashes,Some thething key **s** people liketo a buildingtogivewith 4A = Were AfraIM t0 A5 an indoor pool, or even money. The custom is, ifhe comesand oo A eats your food and doesn’t bring a present, he has to babysit Look, folks, it ain’t no mystery. One reason we're friends YOu! first baby whenever you want for a month. That tends to | with Rat is because we’re about as fertile as she is. I tell ya, dissuade people. Of course, there’s some dogs that os folks, we Gnawers squeeze out those cubs pretty quickly. let near my first kid. I wouldn’t on I remember hearing about the time just after the If you take a minute and look at a Bone Gnawer family, | Impergium, whena groupofSilver Fangs wanted to impose you'll come to understand what we’re about. You see, a | birth control on us, wanted to brand us with some sort of | BoneGnawer family is more like a pack than anything else; Rite of Infertility so our kind wouldn’t breed and take over all the people are there because they want to be. You got o the rest of the world. Well, we wouldn’t do that. But they = Young Tunaways, bums, drunks, hookers, addicts, street kids oei” got their pound offlesh anyway, by reducing our population and all kinds of folks in your family, because that’s how you ae in other ways. survive. That’s how you live in this hell that humans have So, the first thing you gotta learn about us and our created: you band together with your family. And they’re — breeding is that we do it a lot! Not all of us can afford birth sometimes more important to you than your pack. . 4 control, and when you’ve gotta choose between eating a Now, I’m not saying that these families are all in-the= decent meal and buying condoms, well, what are ya gonna know; most of them aren’t. And, technically, it is a way to : | do? More than that, though, we’re justa fertilebunch.Our 8 around the Ban of Man; Gnawer precedents allow .with the spirits and the rage being born within them when don’t define what a family is, and that’s good for some of us. | bitches breed really well. MostGarou mothers have trouble family members to be excluded from the Ban. They just | they’re makin’ a Garou baby. Well, folks, Pll tell you this: My good buddy Blackbomb Tuns a shelter in the Bronx, and | our women just smile a lot, eat more, and get alot more ©Veryone who lives there is his family. 4: demandin’.Among true Bone Gnawer folk, we follow the mother’s Che 3Bree”)$ side of the family; you’re the son of Felicia, not the son of When paradise is no longer fit for you to live in Z Rastus. Still, for human society, we change things around Y so that it’s not a hassle. And your adolescent dreams are gone o Now I know you’re gonna be shocked by this, but I have Through the days you feel a little used up to talk about it. It’s about metis. ] guess you see many And you don't know where your energy's gone wrong. middle-breed here among us. That’s because we didn’t vote —John Mellencamp, “Betweena Laugh anda Tear” : on that part of the Litany. We didn’t agree to itand we ain’t . gonna honor it. We’ll mate with whomever we damn Homir) ot , please, and the rest of the Garou can go screw themselves. , id Oops! I guess they won’t be doin’ that, now will they? Heh. I's no big secret that the homids are what make the ; no Well, ya gotta understand, you still sleep with your own world go around, right? Well, folks, there area lot ofomids | a kind. But frankly, we need every Garou we can get, and if 2Mongus- In fact, most ofus are homids. Soon there’ll be no | a there’ll be a baby Garou when two Garou mate, then that’s °F lupus left. That’s because homids just get along better. a what we'll do. Maybe it’s nature’s way. : Birthdays are important among the Gnawers. Except we mMetIS do it backwards from everyone else: if it’s your birthday, you a give away neat stuff to everyone you know. Except it’s Well, now, the metis. Most Garou tribes hate their metis wag totally rude to ask for something for a birthday present. _ abies. I tell you this: they aren’t pretty, but they’re hardy “4| Peopletime the birthdwho do **a** yre Garou likely doesn’t give not to get a **s** ingle thing.tuffaway isheractual The only as hell._they’re Youusually gottapretty admire damnallsmart, that spittoo. andYou vinegar.teach a Andmetis L i Birthday, the first day of her life. If she’s born to knowin’ —_ somethin’, he’ll usually learn it right away. Some folks say a Kinfolk, then Garou from all around gather and give her _metis are of the Wyrm; I’ve known too many of them to presents from their neatest stuff. These first days are often _ believe that. It’s acrock. Go out among them, find out what - the best days for that little baby’s life, ‘cause after that they think, how they live. Because they’re our hope, our By the way,a Gnawer marriage isoneoftheonlyothertimes —_a chance at beating the Wyrm. yy things get rougher. last, best hope. With them to swell our ranks, we might get core we give gifts without expecting one in return. Marriages are 30 Bone Gnawers 
 
 Lupus After the flurry of activity died down, someone pulled out a Depeche Mode CDI'dleft in there, and there wasachallenge ae Alley hounds. Street mutts. Junkyard dogs. That’s what over it. !wasamazed at how quickly it was resolved. After afew a we've come to. Our lupus ain’t really wolves any more, no —_‘Minutes of arguing, the Mother stepped in, pinched both of ; 7 andmore for than our men environment. are apes. We’re We've urban developed dwellers, tailored smaller bodies by _ theirhalf earsto the andother. snappedTha **t** heseemedCD in **t** wo, go sat **i** sfyvingt **h** alfem toeve o **n** e andas it 4' : and wagging tails to get food from humans without scaring mystified me. I wasa little upset until she gave me a radio-mix A them. We’ve kept our wolf senses and learned to smell © CDofthesamealbumand told methat! wasgood tobe patient through the grime to find that scrap of discarded food. with them. Except for a Moot Rite, I saw no other rites being | There aren’t many Bone Gnawer lupus, but we treat ast that evening. I think that the Gnawer conventional | those that we find just like any other Garou. We train‘em Wisdom on rites is, “Do the work first, the rite second.” If 2s as humans, teach ‘em to talk human talk, and even help ‘em something cannot be done with your own two hands, then a get started in the human world. Rat has even started _ Tite isn’t going to help you get it done. personally attending the Rites of Passage in which lupus An exception, of course, is their just and yet horribly participate, though I’m not sure why. effective Black Ball rite. It is a nonviolent way to discipline . someone who breaks their laws, although its effects are devasRlte wos AY neck;tating.it Theis usually Black Ballan actualis affixedeight-ball around from an offendinga pool table. Garou’s The pee Consume more than you need Ball is a fetish, visible in whatever form the victim wears. : This is the dream No Bone Gnawer (or Kin of the Rat, for that matter) will 32 Make you pauper aid or harbor such a one. The offender must survive on her A Or make you queen own. Usually the recipient starves very quickly. I've seen a ; I won’t die lonely Mother go and rescind the Black Ball, but it’s rare. | | ’ll have all prearranged . Another rite that I have long wished I could witness is the J , . Rite of the Grand Dance. I am not entirely sure what this rite _ A grave that’s deep and wide enough . ee ; For oo. consists of, but] can makeafew guesses. I believe it issome kind me and all my mountains o’ things. ofcostume ball for Bone Gnawers only. It has something todo — Tracy Chapman, “Mountains O’ Things” with fantasy or science fiction. I know that a full orchestra is ; (An excerpt from the diary of “Walks Among Equals,” aka _ hired for each Grand Dance. | Sarah Walker, a Children of Gaia Theurge) So, anyway, there I was, at a Bone Gnawer moot. Things "A Rites among the practical Bone Gnawers are limited. They progressed along the lines that most moots do, except the Y seldom stand on much ceremony. Their moots are disorgaatmosphere was much more relaxed; there weren’t many folks f nized and spontaneous things, almost mob scenes compared to concerned about getting axed or killed off. In the city, everythe highly structured Glass Walker or Stargazer moots. My thing is always business as usual. friend Rat’s-Ass sniffed the air once, twice, and then howled Well, usually. This night, though, there was a lot of talk. | in the night... .and was off. I had to shift to Lupus just tofollow — Someone had been killing the sept’s cubs — the Gnawers him. suspected a werewolf hunter named Samuel Haight, one the Feed We took offdown a series of stairs, subway tunnelsandback —_ Silent Striders had heard was active in the Amazon. Others os alleys. I would’ve been afraid for my life ifit weren’t for Rat’shad heard that it was Lord Dread, a Sabbat werewolf hunter _ Ass, who had the traditional Ahrounknight-in-shining-armor with a terrible Banesword. ea complex. I was surprised by the sound of banging steel in the I saw the active leadership of the Gnawers in action: the of secret garden we'd suddenly come upon: the Galliardswereall {others andFathers ordered that teams of scouts be sent tothe 4 there. They were as serious as any I’ve seen, even though they _areas of the murders, there to interrogate the urban spirits and || poundedMusic. was onrusting powerful steel and hardrather andthanstretcheddeerhide.full ofa thousand- thythms. Their findTheir out who voices was werekilling harsh, the their cubs. demeanor concerned, their I must say Iwas impressed. Toften listen to industrial music, but manner quick and businesslike. They didn’t even seem scared el this “modern primitive” Bone Gnawer drumming took my or worried. Later, asked why. Rat’s-Asstold me that it was bad :a breath away. form for a leader to show concern; it meant that she was a Iwas allowed into the caern, since I’dbeensmartenoughto —_worried about the outcome and not willing to trust in her | bring my Bone Gnawer bag that evening. In it were chocolate packs. This surprised me; they seemed so practical, up-front | bars, bubble gum packs, abunch of comic books, trading cards, _ and honest in all other matters— why not in their fear? Rat’s| and a National Enquirer for the sept leader. I always love” Ags said that fear was a real spirit to the Bone Gnawers. Once | watching Gnawers creep up slowly and ask under their breath you let it get to you, you're doomed. You can’t afford a second if] have anything for them, like dogs approaching a stranger _offear when you might be fighting for your life at any moment. _, ry without thefood.bag, But andtheythat’sdidn’thave what I didtoask;Ialwaysendupdumpingthis evening. —_| had to agree, having seen the things I’ve seen in Manhattan. o Chapter Two 31 
-
-, 
 
 bea Neeces ; AAA SN) Sp) | KON) fi ESR 7, mm 5 Via Ness Cy) AEA a4 AE”i ASs PANG . & (ESS‘ ao ’ em : | | YD ) § SRS! NE Hi) \ A All VF Ti AS ea Se Bone Gnawer tumes,of us was and elected become Chiefall theMuckety-Muck local Garou and for the dressed night. up One like ; CeI : ebratl0nS toitythe locallocal CaernGarouWarder,to and“become.” the rest ofSomeus adoptedof the a hoity-more “Play?” said Templeton, twirling his whiskers. good-humored Garou from the area were invited, and the “Play?Yeh I hardly arany knowmn the meaning8 of the word...I -never do entirebarred,eveningraucouscelebrationrevel, which endedleft inathefull-blown,Veil in tatters no-holds-and s a those things if] can avoid them. I prefer to “pene my ie cane, caused the Silver Fangs indigestion for weeks on end osrs erminakering, ngj ANE hiding.NONE I OE BEtton,om MNOSbut not One thing that’s fun in New York is Subway Surfin’.° We ie __ EB. White. “Charlotte’s Web” climb up on the catwalks and ledges over a subway station, I talked a ; . . laRoche, a Cajun Bone G just before a tunnel. Then we jump on the train, crouch a! Galliard( _falked’ fromCo NewFrancois Orleans.lalkoche,He wanteda Lajunto talkSone aboutSnawer Bone down low and ride it as long as we can. It’sfun! Anditgets . Gnawer you places. Glabro form is good for this, but don’t try to go It’s fun. Here’s a transcript.) to Crinos — you'll bend the roof! , day true, cher, in the business of survival you don’t get a Every spring, almost every Bone Gnawer city sponsors an iia off! But still, sometimes, survival is more about keepin’ annual Hide and Go Seek, open only to local Ahrouns of a your mind right than itis about keepin’ your innards warm. every tribe. One of the Grandfathers or Grandmothers @ or tlsat we da? We lowes mind you, we have fun. brings out one or two ancient andvaluable[ things,][donating] do we dot We 2 EMME SCC.-them tothe hunt. The best Ragabash in the city then hides _ I remember one ume we had an Old Dawg Ball, Le theminthe most ingenious places. The Ahrouns havea full , Grande Danse. That’s when all the Gnawers in the area day and night to find the things, but on the morning of the (from as far away as folks can hitch, run or Moon Bridge) gét second day, all bets are off. The winner of the contest is together and party. We spent three days getting ready: gither the Ragabash who hid the things so well, or the . makin’ costumes, building a still and gettin’ it goin’, and Ahrouns who were smart (or persistent!) enough to find we iy wefindingbrung a goodout the place.buckets Then,of on moonshine, the night ofdonned the fullour moon,cosjhe. ~ 32 Bone Gnawers 
 
@@ -594,41 +350,23 @@ bea Neeces ; AAA SN) Sp) | KON) fi ESR 7, mm 5 Via Ness Cy) AEA a4 AE”i ASs PA
 
 : forced to work long hours hunting for food, breaking into (Note, scribbled on the end: Hey, Bernie! Check this ays secret warehouses and otherwise scavenging for the tribe. shit out! Oh well, looks like another great idea bites the aa feel that this in and of itself is a violation of this part ofthe dust. Could yousee that this note is suitably shredded? That Litany: they do not even train their children to read. And _is, after ya finish laughin’? We want something to include they certainly don’t show respect to the other tribes who — with Milord Huskar’s ashes. Thanks. — Moxie) ; live near them. Oh, this is a terrible shame to behold, great Silver e ¥ 0 "I ers i yA Fangs! Th W, Y f Kh I h p nal. ZA TheOftenDei theyl S wanderhall aboutYot the BecityLiinf theirted Lupus forms. damnOurit, elders are they can respected kick our lazy by us. butts. You Furthermore, know why? Because, they've = I consider this a flagrant breach of the Veil. They may look been around the longest. That's what elder means. They've i like large dogs, butI fear that one day a passing biologist will survived lotsa stuff that we only hear about. For a Bone notice their definite wolfen features and become curious! Gnawer, just puttin’ in another year of life means that a you’ve got some sense in your head. Thing of it is, you don’t Mo Not Suffer Chy People to Tend get anywhere in the ladder of the Bone Gnawers by being ws Thy Sickness stupid,more Gnawers and you you don’t feed, get the anywhere more points by being you get.stingy. The mor Th **e** ot: I understand that, in the past, it was the custom to _ Stuff ya got, the more people like you. That’s the Bone eel euthanize all the elder Bone Gnawers before they became — Gnawer way. wes hazards to the tribe. But in these more fertile days, it seems Ae that the custom is to make the eldest Bone Gnawers the Zen ano the Art of Stuff | leaders of the tribe. They even call them “Grandmothers” and “Grandfathers.” I feel that they have learned special What is “Stuff”?Well, it’s[a][little] better than[ shit,] and[it’s] rites and Gifts to allow their elders to continue living. The —_ little worse than loot. It’s Stuff. You know, neat things few Grandmothers I’ve seen are reportedly 200 or more that don’t necessarily have any innate value years old, and I cannot believe that they do not hinderthe — except...well...they’re cool. Like this thing — a wristt tribe when it comes time fora fight. Tw **a** tch.ke away Takethe awaynifty theengraving fact that onit’s athe Rolex,back and — it’s“Toshit.my | The Leader May Not Be Challenged —_darlingJ.T.,, with love, Shell” — and it’s trash. If it worked, during; Warti4me hell,pawnshopit'd on42ndbe loot, Streetengravin’wouldor takeno. thisI can off tellmy handsyou, if itany yy Their leaders are never challenged, except pethaps — worked. But it’s pretty, and it’s cool...and it’s also Stuff. I A : through some strange, complex series of trading and mateguess Stuff is like porn — I don’t know how to describe it, A rial accumulation. | feel they have totally lost the — byt] know it whenI see it. “| understanding of what it means to be at war, and that they Our elders have the best Stuff, Of course, once you're an will continue to play their silly games of material exchange elder, folks start bringin’ ya Stuff; when you're young you a until the Wyrm hk us alll! gotta scrounge for it. That’s why most ofus get offour butts ae Ve Shall Take nN.0 Action That Causes andneat go Stuff, runnin’ bring aroundit back the to the world ol’ with stompin’ other grounds, Garou: to findand set : - a Caern to Be Diolated themselves up as the Satraps of 22nd Street. nae_ GnawerI onlydesecratingwait, milords, a caern. Truly,for news theyto reachhaveme no respectof a Bone for éverybody Eats aoe éven Jf Jt theare not sacred worthy sites. to Surely, continue being youcan see recognized from my report that as a full tribe they y]$ Only Macaroni. n oy CheeZ in the Nation of Garou. You gotta feed people. This doesn’t take much, just a a My suggestion to you, milords, is that you authorize me _ittle ingenuity, a lot of commandin’ and a little bit of luck. ratte to begin a systematic program of integration, with the — The more folks you feed, the more you rise in respect. Pretty nae ShadowWe shall Lords take these appointed Garou, custodians reeducate of them,the whole and grouping. weed out —ggoneven people realizin’are it. Thencallin’youyou start callin’ Momma or yourself Poppa withoutMomma you or L the weakest and the most Wyrm-ridden. Soon we shall Poppa, and before you know it, you're a bona-fide elder. - have a new tribe of Bone Lords who, alongside their That’s how it happens. There ain’t no great ceremony. 7 patrons, will defeat the Wyrm and all of its manifestation — There ain’t no ticker-tape parade. It just happens. Happens with dispatch and great fervor. by mutual agreement of every Bone Gnawer who knows I await your decision with the utmost in patience, you. If you got the title, you’ve earned it. Of course, there’s iy humility and respect for your honored wisdom. always those who call themselves Momma or Poppa who _ ; 34 Bone Gnawers 0 POE Ps ET Ls TOiieey //, 
 
-. 
-
 a 
 
 = aA 
 
-4 
-
-: | | 
-
-/ 
-
 ea_ oe pan 
 
-**
-
 didn’t earn it. Either those folks don’t last very longorthey around, and that ain’t necessarily so. We have a mutual actually start walkin’ their talk. respect. We young ‘uns give them our all, and the elders, That’s it. Plain and simple. If a Momma tells you todo __ well, they don’t get on our backs at every little thing. They somethin’, you do it, dammit, and don’t ask questions. Ifa don’t sweat the small stuff. But don’t think they don’t watch Poppa asks you to jump, you ask how high on the way up! us, and don’t think that they don’t know what we do, just But they’ll protect you, keep you safe, and make sure that because they ain’t callin’ us down and makin’ us toe the line the jerks in the other tribes don’t screw you over, andthat’s every time we break a tule. They save their mighty wrath for Gaia’s truth. the big deals, the really large screw-ups, and then — oooh Now, you might be thinkin’ that means the Mommas baby! You don’t wanna be around. You gonna wish your and the Poppas are all big-muckety-mucks who push folks Momma weren’t never born! 
-
-**
 
 re a TN epeae | | | Now we'll all be at his mercy | If he decides to hunt us down | | ‘Cause there ain’t no place to run to a | Ain't no place to run. — Tracy Chapman, “Bang Bang Bang” 
 
 F Ae 
 
-; 
-
 Che Barrens: The os (I recorded a homily/poem the other day fromthe Right — grab somebody’s house! Gotta go into work cause geez! ae , Reverend Doghouse, and J thought a transcription might §_That’s the system, and it’s right. Hey!!! Trasha! You gonna a tell ya how we feel about where we live.) tell me to get a job? _ Look at this place! Just look at it! This is where we live, Hey, Mr. Trasha! You see me? You see my face? Look at a damnit! This is where our babiesgrow up! Thisiswhereour me, man. Look at my face, just look at me. Look at 7 kids play! Look at this place! It’s a shitpile!! It’s full of — this...neat scar, eh? You look scared. You should be. You a disease, full of crap, full of drugs, full ofdeath,full up! Blood, could be me, man. You could be right here, wearin’ this pa guts, pus, smack, crack, death! Look at it! Itseethesup out shitty overcoat, in jockey shorts you ain’t changed in a ‘ae of the ground, out of the potholes and the cracks in the = month! Heh, don’t think you couldn’t be! One minute 7 sidewalk, like some ooze that soaks the city. All the ani= cocko’ the walk, heh, next minute— a featha dusta! Oops! 4 mals, they all know — don’t eat where you crap! Butdowe I think I hurt his feelins! J think I did. Boo hoo hoo. Boo : learn?? Do we learn anythin’? Here, Gaia! Have anotherhoo. Get outta my face, my space, you Trasha bastid! ‘| bill-yon tons of CRAP! Mr. Trasha say, hey Gaia! Can you Look, I don’t tell this poetry just for my benefit. I don’t take this plastic crap a little longer? ‘Cuz] gottahaveahot say these words just to hear me howl. Look, I’m just dis guy, NOW! I’m gonna be late! Gotta go to work so’sI canscrew _ heh, and see what’s there, andI spit it out. I spit it out here iy burger, and J gotta have a cold drink, and geez, 1 want it —_ andall I wanna do is talk about what matters. I look inside, nies somebody outta their money! Gotta go to work so’s can at any o’ you Trashas that'll listen. What I say is the truth, 7 Chapter Three 37 
 
 ! A oy. | IAS ANS ott sia\—.«~~ 2 v4/ t3der WN \Y —_ > i t \' +o] hy . < Y. \ \ N ————__-__—— Dn, —_= ee 7 l, a ey l, , \ Wye. a fy U f Na LV, we 4 = Ss \ GYUffpu, % \\ \ — X \ NY \ . i \ MAS i j ' 4 | hrWP) Mi ' Gyr H Zo,OORTMINOXpues. YY ay VSSSESR22 ws Y YY|‘aAssy Maye Sf). oni TF“HU | PRRa that’s all. The truth! How much do that cost, Mr. Trasha? Thing is, there ain’t no more honest bucks. You folks’ve You got that on ya Powerbook? Lemme see! gone and eaten them up. There ain’t no bucks noplace that Pll tell ya, where Gaia don’t shine, deep in the Barrens, don’t got some kind o’ taint on ‘em. Smell like sulfur and deep in the middle o’ noplace, that’s what we got. That’s —_ two-day-old blood. ° where we rule. Deep where the cops don’t go, and the As my preachasay, “Loveo’ money is the root of all evil.” _ average age of the average mother is 12 years old! Comeup = Whom do you love, Trasha? Who is it? Ben Franklin? Abe ea spittin’ and swearin’, you kids, you bastids o’ the street! | Lincoln? Georgie-porgy? Well, hell, I just now talked to oe Those big boy rich Trashas, they ain’t got noplace torun. ‘em, and they don’t love you, Trasha! They keep talkin’ . ae Get yer knife, boys, get a big rock, get a shotgun. Let’s go = about a government FOR the people, BY the people...and on open acharge accountat Tiffany’s, heh. Youknowwhatl’m _ they ain’t pleased. - :: hehsayin’? heh Breakfast, anyone? Anyone breakfast? Hee hee, heh Jnhthe Shadowsh of t **h** e money.Hey, yah,| ain’t I’ll pissed tell you at you what, forI ain’t that angry— you that earnedyou it got didn’tyour Jung é] (ower[AY] _ you? Worked at it, bled for it? I just wanna know — how did ee you get it? Did you suck it away, bit by bit, drop by drop, (This here is from a talk I heard Sister Bonnie Belle give a from some poor sucker? Or should I say, suckee? Did you © Some young ones. I thought it sums up stuff real well.) hook into that heady hit of high-finance hemoglobin?You You pups gather ‘round here, ‘cause I got somethin’ to know, I used to know a few honest bucks. Had ‘em in my talk about. You’ve been chasin’ your tails, askin’ this wallet, talked to ‘em from time to time. They knew | those bucks. They had the number ofthe hotelroom wherea lot, —_questionwhat’s wh **a** t.nd First that. ofAnd[all,][ you] now,[ sharpnoses] well, now[ aren’t] is the time[ fools] to[—] tell[ there] ya all the bodies are buried. Do you got any honest bucks? Let are things out there. Things that are much less than human — me look. Come on, for a modest fee, I’ll tell ya. Heh. Not | and much more than alive. There are such things as monesyy[ interested? Don’t surprise me none. sters.of thinkin’. We live among them. We are them, to a certain way 
 
-38 
-
 Bone Gnawers 
-
-**
 
 : But the Silver Fangs didn’t see things that way. They < ; we started the War of Rage, during which most of the Kin to Pe — ae the Rat were lost, especially their drummers and bards and ZziOF a storytellers, their Galliards as it were. Now there’s only a a et Se a | scant few left, children mostly. & ae. a —_ 7 “N If you see one, or ifone reveals himself to you, you better £ “a”.pee ahs i ; treat him with the utmost respect, as if he were your g “e i. | A Grandma’s Grandma. You better be nice and you better be ;. i. a | helpful, or the elders’ll have you shovelin’ out the hovels! 4 + rae = atl The Kin to the Rat deserve our respect. They also ce * _ ee deserve our aid, help, advice and, to a certain extent, our - me aN ; obedience. They are connected with Rat completely, at all 7 “—s wee | times. ———= | The Ring of Shadows 7 eo 7 | 28 Although the Bone Gnawers have neither central oSao | | government nor central laws, there is a collection of pen . y 7 elders served by a loyal band of Ratkin. This group is | 4 eo aS called the Ring of Shadows. Some claim that Ratkin, al aS ayy Nosferatu and other creatures ofdarkness are also part ; ye . of the Ring. The Ring influences all Bone Gnawers | everywhereit feels need andit. providesIt is the assistanceclosest tothing thoseto Gnawersa higher | authority that the Bone Gnawers possess. Members are J | marked with a circular black brand on their chest, and 4 all of them are served by at least one or two Ratkin . 2 bedvguardmesengess Around the World in : Wraiths 30 Days - There are secret things that dwell in the gloom that (A travelogue by renowned Ragabash world-traveler surrounds us. I can’t ) tell you exactly what they are, but I can Bonetrotter!) m , : tell you this: many’s the time I’ve gotten a funny feeling Hey there! Geez, what a terrific surprise! You're actually when I walked through Gresham Warehouse at threeinthe [@P!9 this? You gonna put it in your book? Cool. Okay. morning. That’s because a young girl was raped and murLook, here's what I learned from my trip: ae dered there many years ago, and I think her ghost still hangs First of all, some general stuff. Ifyou're travelin’ by Moon Se out there. One time I found her teddy bear in a trash can, Bridge, I recommend you go on a tradin’ spree and get a be and I burned it. For three nights afterward, I had nightmares whole bunch o’ fetishes and talens from your buds. Just little pote about her, and I had to ask a spirit protector to stand and =:©TaPPY things that nobody wants, but ones that caerns will oe watch my dreams for me. After that, the nightmares went take as chiminage. You’d be surprised how many caerns are away, but every time I pass by that warehouse, I think about demandin’ their share of the take these days. her. I swear, swear, if | ever find out who did that | ever find out who did that ever find out who did that find out who did that out who did that who did that did that that to her, I’ll throat throat Second of all, all, don’t bother bother learnin’ the language: every him in a heartbeat and not think twice about the Ban of | Garou speaks Garou no matter where ya go, although it Man. took a long time for me to get used to the French and 
 
@@ -642,55 +380,31 @@ her. I swear, swear, if | ever find out who did that | ever find out who did tha
 
 > Pam e poor folk , Dut its our place.if We got | nobody'sso high- stickin’; webutts and send someonet noticed » that Maybe they’rywere “onrightsgntst nightly toto it,i see?knowa Gaibig,aia scarywhat gave to place,it7 think.to allbut of likeit’ werefoxes, and I ; 00 highroyin’andthe mightybalance thatof theys **p** iritsirits have **i** n -thethere,area. andeveryone’s| aclaimWorldmon may what’sheleaveyours. you with one last piece o’ advi : us, 80 goout and stake | ssh a, Gia? tae aP ChapterThree 
 
-**
-
 | 
 
 | { | 
-
-4 
-
-**
 
 ## Gifts 
 
 Nose of the Hungry Hound (Level One) —Byspending —_ beingsought). Each successon the roll gives one clue concern2a a Willpower point and rolling Perception + Primal-Urge ing the whereabouts of this item. The clue is decided by the os (difficulty 7), the Garou can hunt down the closest source of | Storyteller and must be worked into the story: “Turning the we discarded, relatively disease-free food. The number of succorner, you see an ad for the Hound Dog Cafe. ..perhaps the ae cesses determines how much food is found. This Gift will not Elvis plate could be there?” Note that just because an item has a detect the hot dogs within a vendor’s cart (unless that vendor been located does not mean it can be easily gotten. _ would gladly give a wiener to a hungry mutt), but it would Ward of the Road (Level Two) — This allows a Garou to detect the bag of cheez-fries that accidentally dropped out of —_leap from a quickly moving vehicle and remain undamaged. a passing car window. This is a Bone Gnawer version of the By spending one Willpower point and scoring at least one oeo LupusFind Gift: the Sense Prize (LevelPrey. Two) — The Garouemploying this takesnosuccess on damage a Stamina from the+ Survival fall. Ifheroll fails,(difficulty however, 6), hethe takes Garou full ao Gift closes her eyes and thinks about finding a thing of great | damage; if he botches, he takes double damage (he fell on his | value, either a specific item or a general class of things. She —_ ankle, etc.). The Garoucan also leap from tall buildings in this 7 ” then spends a Gnosis point and rolls Perception + Enigmas manner, but it requires one success pet story to negate damage. | |J (the difficulty depends on the rarity/uniqueness ofthe item- 
 
-_ 
-
 Appendix One 
 
-43 
-
 | Rites | Chuck Rock BES Level 2, Gnosis 4 aH Rite of the Cardboard Palace This is a rock from a demolished ghetto building. Its 4 inherent Rage causes it to become a deadly weapon when mG Level One thrown. By spending one Rage point and throwing it \ A a This rite transforms something as flimsy as a cardboard — (Dexterity + Athletics; difficulty 5), the rock will do five | LF Intelligencebox Into a decent+ Survivalplace(difficultyto sleep. 6)Theto Garouturn anmustordinaryroll rodi **c** ek plusis tough the number and will ofnot attackbreak. successes of damage. The i shelter into a comfortable home for the night. The card: board (or other material) becomes water-resistant and Susie's MOollar , a thermal-reflective, keeping those within warm and dry. Level 4, Gnosis 8 . a This rite can be worked in full view of the mundane public } — oo, oe without rending the Veil, and its effect lasts an entire night. This corn magically changes fora limited time into one 7 It can also be performed on someone else’s structure. bill of variable denomination. The fetish can also be comao manded to return to its owner (the one who activated it) : Kite of the Shopping Cart from a distance. A Gnosis roll is required to activate either _ - Level Two power; the effects are listed below: hetOy device,This making rite expandsthe inside the carrying larger ‘han space the of outside. any cargo-carryin;TheGaro To Change to:. Difficultycf: Return Stceesses ied must roll Manipulation + Rituals (difficulty 7) and spend a cede a - Gnosis point. Ten pounds pér success can be placed in the One Dollar 4 / wd container. This rite must be renewed each week or the Five Dollars 5 2 7 container will spill its excess baggage onto the street. Ten Dollars 6 3 - . . Twenty Dollars 7 4 a Rite of Man-Caint Fifty Dollar 8 5 | Level Three One Hundred Dollars 9 6 7 | This rite is used to detect Maneaters among the Bone | Gnawers. It must be used within seven days of when the ; ! suspect last ate human flesh, and the suspect can resist the Duration Successes Needed ” rite by scoring five successes on a Willpower roll (difficulty 7). Five Minutes 1 Y = The rite causes every gobbet ofhuman flesh consumed to spew 30 Minutes 2 Sf a from the suspect’s body, either through the skin or mouth. One Hour 3 : Needless to say, this is a disgusting sight. One Day 4 Fetishes One Month 5 on The Lost Keyring Return Range Difficulty oe Level 1, Gnosis 5 Same Room 4 os This fetish is a steel ring of about six inches in diameter, Across the Street z one with hundreds of keys. By activating the fetish and rolling Same City Block 6 a Perception + Repair (difficulty equal to the complexity of Same Side of the City 7 os the lock), the Garou can find a key on the ring to open any Same City 8 . desired lock. Unless immediately used, however, the key Anywhere 9 : will be lost in the mass ofkeys. The key to virtually anything - can be on this ring. This fetish does not protect against any car security systems on the lock, such as electronic alarms or When the time limit expires, the coin reverts to its ae motion sensors. original state and is easily lost in a pile of quarters. 
-
-**
 
 ves : 
 
 | 
 
-a | 
-
-**
-
 oS abroad, the American people make an extra effort tohelp | becominginstantly addicted tosomething ofthe Storyteller’s | him. This is governedby the Storyteller, who mayhaveMa __ choosing (television, beer, cigarettes, etc.). They also beand y Ty Y Pa America show up just as the character isabouttobe —_ gin to adopt swaggering demeanors, tell other people what thrownin jail, pay his bail, and give him enough money to _ todo, and often cheat at cards, taxes and games. If devotees buy a bus ticket back home. Difficulties involving interac| ever leave America, this effect increases, and only three — tions with public officials, government officials, or police successes are required to frenzy. aA —anyone who has sworn an oath to uphold and defend the American Silver Fangs, Glass Walkers and Bone Gnawao Constitution of the United States of America — are ers receive three Honor when allying with this totem. Ls decreased by three. Non-American Garou, especially Silver Fangs, Black Fupear The downside to this totem is that devotees must make _ ries and Shadow Lords, lose threeHonor for alliances, and vo a Stamina + Survival roll (difficulty 7)eachmonthtoavoid will be marked as potential problem cases. 
-
-46 
 
 Bone Gnawers 
 
 vA Yf 
 
-**
-
 Bone Gnawers are a ragtag mob of quirky individuals. traits ubiquitous among Bone Gnawers are bad hygiene, Thoughactuallyoftenamongsterth **e** otypedmost bydiverse theirofpoorappearance, tribes. About the they'reonly |© empty bankSound familiar? accounts and a bad-luck streak a mile long. 
 
-**
-
 Appendix Two 
-
-47 
 
 Roleplaying Hints: You don’t care much about how you _ Raty)[a][b] da5h Rat F[1][n][k] look; they’re just gonna give youa pair of coveralls anyway. ae Quote: Heh, heh, heh...dirty little secrets, dirty little But be careful of what you look at. You've gotta look = lies. oooh! Heh heh. disinterested while you’re handling those top-secret, code, a kindPrelude: that sneakedYou were into youralwaysy parents’a nosyy bed-kid, ? the wt _. red,theto-be-shreddedlab coats won’tfiles.’ noticeAct. youdumb,trashin’andLoymaybetheir. s’ A room and poked around in their; ; stuff. ~ Js7 ™l S experiments.; 4 Youdiary picked the lock on your sister’s . os ; Equipment: Pocket-sized disposable 35mm 7 mailedherforridesuntilyouwerewhen you were 12and blackZl Sea_ ~ Rs nearlycorder, broken five palm-sized tape different IDs (none reand 16. Then the Change came, and _/@™ Vo Wore am =a _ of them truly yours). A you were taken away to live in ‘ \ J “SO 7 IY 7 | theyouthe jobscity.love you haveYoupickin’don’t toarounddo now,muchinlike butpeople’s .HV \\\iPPes\ \\i\\t.(G . ~ae *FY Uy \ a stuff. You heard that Pentex has tar‘ iy we cas getedyourfamilyfortermination f ( hecein ood wsoe (0\ orabout “reeducation” to stand for and that. you're You’ve not a)omyv4 ease i taken to picking up secret room keys, Wy ii : 4 a special phone numbers, anything that gets ° oa youcloser to the bastards that are attack| ing your family. You’re no superhero, ™ | no secret agent James Bond. You’re ; , | just a janitor — but you’ve got, as | Pentex on the run and 4 wonderin’ where the leaks are. 4), | | Concept: You're the face that YS Lf . no one ever notices, the invisible S f . man workin’ the trash wherever “ a you go. If the Powers That Be only — fj knew how many documents you’ve y, I / photocopied, how many floppy ) ‘ disks you’ve liberated or EE R how many maps you've , . i\ \ outright stolen... ; ‘ ( \ :\ 
 
@@ -702,27 +416,15 @@ L
 
 . Physical Social Mental ee Strength. @0000 Charisma ee000 Perception, eccce = Dexterity. ©0000 Manipulation. ©0000 Intelligence @©ee00 Stamina @0000 Appearance @0000 Wits___ 000 a Calents Skills Knowledge ae Alertness @@0@00 = Animal Ken, Ken, 00000 Computer @@000 a Athletics 00000 Drive @0000 Enigmas 00000 a Brawl 00000 Etiquette 00000 Investigation. ©0000 a Dodge @@000 Firearms @e@000 Law. 00000 | Empathy. @ 00 Melee C0000 Linguistics__—— @O000 @O000 Expression. 00000 Leadership 00000 Medicine e0000 | Intimidation, 00000 Performance 00000 Occult 00000 | Primal-Urge @0000 Repair. e@000 Politics e@0000 | Streetwise. e0e@00 Stealth, ry YY YY Ye) Rituals 00000 Subterfuge ry YY Ye) Survival 00000 Science @0000 k | 3 AlliesBackgroundsee0e00 2) Smell of ManGifts Gifts Contacts @ee00 Blur of the Milky Eye _0000 — SCUnt of Sweet Hone a 00000 oo : ecc0co000000 @eo0oooooaoao0od0od0 prised 5 . HoOooooooooo OBOOoOoOOoOoOoo Imued od . Honor jur : & 0000000 0 0 0 Mm 4GMOSS wmmmmtntew Wounded 2 0 4 OOOOOOOOOO eooooov0000 ee 2 5 : Wisdom ooooogoooo Pe a @e@00000000 : Incapacitated =O | OOOOO000OO wm Willpower Later meme Weakness ommtatne ee ONOOUUOOOOOU0 OTHER TRIBES 
 
-: 
-
 Attributes: 7/5/3 Abilities: 13/9/5 Gifts: 1 Level One from breed, auspice and tribe; Backgrounds: 5; Freebie Points: 15 (7/5/2/1) 
 
 aratiowns , st a} 4an 3 ay m y hands b ehind ae home my ho henone re are my v < , hmlike[ne] anvotato vou ou. Do yo1. r fraedaP osgerheit?[ec] a[ty] yh agi Prelu heve b een ab le to hearthe h earth eac - \ , of th e da ou kneere bomm. Yiou’ ve alw : j yj iN . \'\ akealk btudeack[eva] LY[i] fe) **[n]** wdit[ce] tlecli“idea,buyoupoknow‘OuthrbatalonCOedny a0y it youle ld you paecmen.tb ing » and as loo ou | ! \ . NN—aones$s d s ee th itesspinitckOvninging / \\ ovross* ke,‘ketthe[aching] early morni[e][ci] sm / \\ Yo ur Fiitst Cha cur eep inth |\ \\ a sub y sta[ang] Jb ou scaped ne pi thy \ / coworeer: re yu we[rede] tth kind of \N \ isNN? WASY yisiio S, ues[sexton,] uri g the Vision.ton[gh][ int] me[ of] \ ua av ou thekeys roth RaostnTee ca \ f sandyo wh: © at spiirit thr ( meee yo[h] rophet.et Ik vee . \ stre ets[ou] hat theconstreand tiizi Ale hoet Id lingalorrit **he** nn. endestinyvontinyscheonthe st ch theas || . | ‘ ® oe>omb[ae] i Kea7 ; fatetee¢ **o** n theee i ferst yo n’t have H[2] all Itie Kyoudotrueisit’ 3] | i a\ scam flm teto the tree rits \ : H ; AN thanat[alc] Te[Ochen] vine **[e]** in[t] g[ee] an a ey .| \ 3 RN oir ritrite atosy[round] ‘ou doO ub 1e p vmitive ” : you in tToub ut do i Youw ll ke um g if hatintit : ge[t] " takes le oll ng our Ik ars , / ® truc.[io] ire[ oe] pho bo » _ , | \ er s, bapothgs . % a . sid any else oO aoe . aioes taint **y**[eane] eed.—in:nn 28a You **a** relkaartma["] en vole Tah fo[kine][thi][in,] asa aaber) i ‘ ) - : thetan Syoerpwreronotq[ough] uit[ t] ldwheu'r° | , . hiastroe yh PFOeseeedsad a[ae] arly miskn[S] used **[o]** ani[on][at] at m[mii] osSJ ' : pl b andNeoco.fusesIn,atiioneh Tal an he.he[othe] oped5Swlk to ou . 7 7 2 en ge keyriing 52 ( 3 | “Eauat ope[ai] t n in quiteite me"4 J Af)[\] rY f rem per ’ nyusith ; oe wichseba ll -; | ) : ( $i[WN] s r " ‘\ \\ r) cani=ot[opena] 8;eslin’ t, business[ L] pl y‘ecesS ofbapaper, L : rN see yJ[iN] , \" lg J |[Ri][i] | > || t { ww= : iseeae | fs & . . nay, . . | _—— : 
-
-- 
-
-: | | 
-
-- ae . ee aA : | | , | 
 
 L 
 
 RO -— ‘BME Gums ~5 Name: Breed: Homid Pack Name: Player: Auspice: Theurge Pack Totem: Chronicle: Camp: Concept: Rust Shaman wy Physical Social Mental Strength @0000 ~— Charisma @@0@00 ——Perception ©0000 Dexterity. @ee00 Manipulation, @@000 Intelligence @@000 Stamina @@000 = Appearance @0000 Wits____——— 00 Calents Skills Knowledge Alertness @@@00 = Animal Ken 00000 Computer 00000 Athletics 00000 Drive 00000 Enigmas @e@0@00 Brawl 00000 Etiquette 00000 Investigation, 00000 Dodge @@000 Firearms 00000 Law__t.o..._- 00000 Empathy e@000 Melee 00000 Linguistics 00000 Expression @0000 Leadership 00000 Medicine 00000 Intimidation 00000 Performance 00000 Occult e90e@0o Primal-Urge e@e@00 Repair 00000 Politics 00000 Streetwise e@000 Stealth, e@e@00 Rituals e0e3eeo Subterfuge oo0000 ‘Survival e@@000 Science. 00000 | Backgrounds Gifts Gifts Allies @0000 Smell of Man a Rites e00e0 Spirit Speech a 00000 Cooking a 00000 a 
 
-. 
-
 | Glory ” Brui : C000000000 @e@eooaoooaoaododoado0 Prue = OOooooOooooO ODOOOOOOoOoOoO Inte 4 - jur - a4 000000000 0 Mm[AGNOSs][ mmmefodnw] Wounded 2 “ | >§& OOOOOOOOOO eeeevovoerdoo aie 52 = | Wisdom OOOOOOOOOO “pp @e2e0000000 | Incapacitated =O oe ee mmm Willpower Zain emer Weakness mmtaine | DOUOOOOOOU OTHER TRIBES | ; Attributes: 7/5/3 Abilities: 13/9/5 Gifts: 1 Level One from breed, auspice and tribe; Backgrounds: 5; Freebie Points: 15 (7/5/2/1) 
-
-**
 
 y c 
 
@@ -730,23 +432,9 @@ eeOBGrmees~ 8 | | Name:Player: Auspice:Breed: LupusPhilodox PackPack Totem: Name
 
 | OOOOOOO000 OTHER TRIBES TRIBES a = Attributes: 7/5/3 Abilities: 13/9/5 Gifts: 1 Level One from breed, auspice and tribe; Backgrounds: 5; Freebie Points: 15 (7/5/2/1) 
 
-- , r 
-
-Z, 0 
-
-: . 
-
 | 
 
 | Hillfolk Hitchhiker , ae Quote: Goin’ my way? yy Prelude: Your parents were migrant workers, poor folks Nee ; A+ who never had two pennies to rub together. You grew up esth,1-46 aie= ee with them, movin’ from place to place. They showed you a sy 74S —_ A lot of love. As a result, you never learned to hate. } aN \ \ Sa Your folks knew you were different, and you’d often y, jt | « Sf al spend fall and winter with your kin in the city. It Ml | oo a i cal wasn’t too long before they showed you how you Tiss" B\ Levee {'® . \ : =| could change from form to form, and they (7£y ig Dod \ 4oA acceptedtolikefind you!out, Imagine you yourjust likeparentha . your **t** s werewerewolvesparents did. Come just tyf 4 pp7 6 y ©x P \\V V **\** \ S| Concept: You love the music ofthe moun\ y _ tain people and taught yourself how to play Aaa 4 ML ae the fiddle, the harp, the harmonica and the e \ \ WN : By guitar. You love to go howling in the high W " ; a mountain places. You’re constantly on the ' y } a4 move, never staying in one city for too long. ae You travel hither and yon, listening to the 4 music of people everywhere and playing your iN { | ownon your songs. back, Withyou'll yourgo thumb anyplace. and the guitar #7a , : | hs=arar | you know.hapsRoleplaying Notes: the friendliestYou grew Bone up You“po’ Gnawer are per- but { ‘ ae aoe \ j )ifnf[Dry] a§ e | proud” and your demeanor € A i : should reflect that. You’re goodA / . = ; a humored to a fault, although aa oa \ r i when you do get mad your smile ae \ takes on a different glint. Co wi ” Disfigurement: Loose Teeth _ (( Equipment: Coveralls, white T-shirt, iifg . harmonica,cheap road maps, three cans of PSwet (a beer, backpack, hiking boots. ESSER \ 
-
-**
-
-° 54 
-
-- : a oa “od ae _ | | | | : : 
-
-7 7 . 
 
 #3 
 
@@ -756,13 +444,9 @@ L
 
 Backgrounds Gifts Allies eecece Create Element 00000 Call of the Wyld 00000 Cooking 00000 00000 
 
-**
-
 a e@eaooooodoaocodo0 eoeee00000 A 0 :_ Ooougo0000 ooooooooooG Bejure 48a 00.0000 0.0.0.0 mA GNOSS wmmmmtitne Wounded 2 . OOOOOOOOOO eeeevoooo000 Maule 2 5 7 Wisdom mppiec 5 : coo ooo. 90 6SOGOOR000 eae O : OOO0O00000 mem Willpower Lod emer Weak ness nmretltee Bg Takenyom ee 000 8 oo iticULTiEs[Wi] “8 A OOOOOO0000 OTHER TRIBES Attributes: 7/5/3 Abilities: 13/9/5 Gifts: 1 Level One from breed, auspice and tribe; Backgrounds: 5; Freebie Points: 15 (7/5/2/1) 
 
 _ae:— FrankweilerQuote: Hie thee, villain! ThouKnightshalt get thy ass kicked! . — yA eringin afterin findingan alleyway.Now you you shiv- are Q \\ Concept: Prelude: You were literally born in a steamer trunk rt on the run. You've found » , backstage at a production of Shakespeare’s Hamlet. You 16 a few places to hide; you r grew up in and around the theatre. When . — spend most of your time ’ A yourDepartmentparentsoffell Familyon andhard Childrentimes, the | pS. jaeVit = gy underneathinthetheatresofthe stagethe city,or - Services assigned you to a foster @pema \ ( = in the upper catwalks, lis2 homework. You while they were 13, looked and your for better First AMMMERSVEN Ee“WT : Afterwardtening youto usuallyrehearsals.go to eee Change occurred while you were i)[/)] = .'\ » the museum — carefully avoid7 being taunted by the children (he ee CZ iW A ins the Kindred who . for your manner of speaking. WN a AT N ‘ + sometimes visit there. You ofYou erupted in a blind rage, fSs oS . y " ten put ona suit of armor, ” shifted into Crinos, and \; () - i & ‘ Ny, take down some knightly 25 left the room a at. ( \ \ rv =~ » "ss weapons, and practice your ae bloody mess. Afi . Cm y/ \ d e =~ \ sword-fighting for an i Your Bone i NN eS | ) evening. After all, you Ze] G N ANY __4 i must be ready when a4 kinnewer VOYYY. INE N - = your skillskill as a war. s ji took » V - rior are called upon you “Vv \ ( by the local Garou \ | | \ ' ‘» \ lords.Roleplaying | | "/}, | f Notes: Mix ff fl| ir m & ’ Uy) languageShakespeareanwith modern-day words. Address everyone as ” “My Lady” or “My Lord.” Observe a slightly Y modified, more realistic code of honor. You i y \ don’t actually believe you’re a 7 f ys Shakespearean warlord, but you do get 7 y NeyNS : into the fantasy socult for deeply you to that breakit out.is diffi4 Nzx Equipment: Faded silk uss Sate d a boy(Xen)".~ =aN fineryseum),(stolenbook from a mu-of a y 4 a ) i \~S> Shakespeare’s plays, broad| (which keeps you from be4 j ing arrested for carrying — 4 Wy ¥ aroundsword,thebigbroadsword).black cloak 
-
-: 
 
 | 4 | | ZA & = . ca 24 a ae ay | | _ | a 7 . . | 
 
@@ -772,29 +456,11 @@ Re -— BoneCumegs~B= | Name: Breed: Homid Pack Name: 4 Player: Auspice: Ahroun 
 
 OOOOOOUN00 OTHER TRIBES TRIBES Attributes: 7/5/3 Abilities: 13/9/5 Gifts: 1 Level One from breed, auspice and tribe; Backgrounds: 5; Freebie Points: 15 (7/5/2/1) 
 
-**
-
 | (Excerpts from a tape made at Great-Grandmother Auntie Mame’s house, affectionately called the Rabbit A : Charity’s bedside. Gaiahassince takenhertoamuchbetter = Ranch, actually took up an area of three townhouses in Y : place.) downtown Charleston. It was something of a ramshackle, i You know, Shakespeare me lad, you’ve got to know. So possibly the single most cluttered (but clean!) whorehouse many of our elders have been lost to history, boy. The __ im all of history. Tunnels, secret doors, sliding panels and : Galliards of the other tribes don’t sing our songs; that’s why false doors were all over the place — well, you can’t be too you and your kind, you Rust Dancers, you’ve gotta be out _—_ careful. Only the girls who worked the House knew some of there spreadin’ the true word. Our famous folks will be the secret ways, and none of them knew all of them. Only wa forgotten, and that’s no good. Mame. She knew that place so well she could be in two a Every night you gots to tell the tales, so’s the little ones places at once if she had to. oe can hear and ’member. Strong Henry, Auntie Mame, Mrs. Mame was a Rat Fink from way back. She spied for the 4 Preston— strong Gnawers. Good Gnawers. Listento their | Yankees during the Civil War — she was a regular Mata oa stories. Hari. But she was always on the Garou’s side and would do | ° anything to help out a Garou, no matter what tribe he was Auntie Mame | in.She is known as the prettiest Bone Gnawer woman ever, aZ acrossAuntie the AtlanticMame wasas aa stowawayFrench Bone with someGnawer Frenchwho colo-rode __ agas wellwell; asshe one ofonce thefed cleanest.100 Bone Her generosityGnawers wasThanksgiving legendary eo nists. She migrated down South, ending up in Charleston, dinner in her basement. The charitable trust she set up with where she set to doin’ the job she’d trained for allherlife— themoneyshe earned is still feeding hungry children today. she was a lady of the evenin’. Pretty soon, probably because Mame lost everything soon after the Civil War. Sherman | of her wolfish good looks and reasonable rates, Auntie. spared Charleston, but the locals must have suspected that | Mame was able to move into ahouse andstartabusinessout Mame was a spy. Her house was torn down. She tried to | of it. Her boarding house was little more thanabrothel! But move and get married to a nice man, but died in Chicago of | she was good-hearted. She didn’t like the British, not one —_g broken heart. bit, and that was that. So when she heard that there was to win be a revolution, she helped the boys out. She let them hide oe their guns and spies in her basement. _ 58 Bone Gnawers 
-
-**
-
-: : 
-
-**
-
-7 
-
-- a a | 
 
 oy 2 = an re BA 
 
 Y r 
-
-. 
-
-. 
-
-- 
 
 L 
 
@@ -804,8 +470,6 @@ ee -— BonsCrmegs Name: Breed: Pack Name: ~—B= | Player: Auspice: Pack Totem:
 
 Gifts 
 
-**
-
 a 
 
 ee 
@@ -813,8 +477,6 @@ ee
 - Glory OoO000 00 0000 0000000000 3 OOOOOOOOOO OBOOOOOOOOO Ee 0000 00 0.0.0 0 Tr AGNOSIS wnemetlotew “ § OOOOOOOOOO oovovo000000 | Wisdom 7 0000000000 QOOUO000O | QOOOO0no00o wm Willpower lair 
 
 ruised Oo pus 1a Inured F = yur - Wounded 2 O Maes 2 5 nipped Incapacitated 9 O mmm Weakness Anime 
-
-© 
 
 ## OHOOOUOOUOO0 
 
@@ -824,15 +486,7 @@ Attributes: 7/5/3 Abilities: 13/9/5 Gifts: 1 Level One from breed, auspice and t
 
 0 APE LE LE 
 
-. 
-
 | 
-
-. 
-
-_ 
-
-: 
 
 | o. , 
 
@@ -840,17 +494,9 @@ Oe Bone Cumegs ~B= Homidtone mmmGaby ome mmminno Smet Hispomthiw memnml tt pi sm
 
 Maneuver/We | Roll | Difficulty Rate Clip Maneuver 1 Diff Damage Body Slam Dex+Brawl 7 — Special Grapple Dex+Brawl 6 Strength Punch Dex+Brawl 6 Strength 
 
-. 
-
 | | Nature: Demeanor: ] | LZ Merit Cype Cost Flaw Type Bonus Allies Resources | Contacts Pure Breed OO | Kinfolk Past Life | Mentor Pack Totem 
 
-: | 
-
-**
-
 Gained From:———_____/»["{__ L oe TOTALSPENT: SpentOn: 
-
-. 
 
 |] | 
 
@@ -872,57 +518,21 @@ Pack Chart
 
 Character Sketch 
 
-; 
-
-7 
-
 a 
-
-. 
 
 MY BROTHERS ANO SISTERS! FOR CENTURIES WE HAVE FOUGHT THE WYRM BY CRUSHING ITS MINIONS. ANO FOR CENTURIES . THE WYRM HAS ONLY - STRENGTHENEO_ WE WILL LOSE..: | OFF GACH WYRM CANCER THAT bERUPTS ON THE BODY OFTHE: ROTHER 5 WE MUST EREVENT:| SEE RECESS SNES ESE SEATSEES 
 
 | PROPOSE WE FORGE A UNITY; PACT. TRIBES WILL . . CONT RTE CR | REGULAR FORAYS INTO. THE UMBRA, WE WILL SEEK THE RieRe ihn BNTHE LIVING: ire oh a aL itd AoA soe bell 02 7 SUES 8 os So eee 
 
-% 
-
-**
-
-**
-
-**
-
 a 
-
-— 
 
 ol 
 
-= 
-
 . a: Sosy oi | os a: : od : . 7 
-
-**
-
-**
-
-7 22 
-
-**
-
-**
-
-**
-
-: | 
-
-: 
 
 J Am the Healing of the Worle 
 
 | 
-
-} 
 
 by Daniel Greenberg with Heather Curatola 
 
@@ -931,12 +541,6 @@ y ’ r
 yy y A 
 
 - Credits Special Thanks car Authors: Daniel Greenberg with Heather Curatola Andrew “The candyman can” Greenberg for the boozy a Development: Bill Bridges chocolate he brought back from Germany. Editing: Heather Bryden Phil “Moon struck” Brucato for his all-nighters on the Art Director: Richard Thomas Book of Madness. Comic book art: Dan Smith Mike “Backed up” Tinney for mopping up in the girl's . EZ Art: Richard Kane Ferguson, SCAR Studios (Antoinette room. , Ryder and Steve Carter), Joshua Gabriel Timbrook Ian “Card shark” Lemke for refusing to mark the Changeoad Front and Back Cover: Robert Dixon ling cards. a. , a Back Cover Art: Joshua Gabriel Timbrook Jennifer Juiceless Hartshorn for not bringing nature’s on goodness when it was her job. : Erin “O.J.” Kelly for bringing nature’s goodness now that | it’s her job. - Cynthia “Into the Spawning Pool” Summers for taking control of the Labyrinth. we Ken “Dirty rat” Cliffe for finding another friend in his me house — what a popular lair for rodentia. = Bill “Boring” Bridges because nobody could come up with poe any Special Thanks for him. 7 Author's Dedication | To all who strive to wage peace and change the world by | changing themselves, this book is affectionately and re; on , as 735 PARK NORTH BLYD. spectfully dedicated. : - @: a! , Special thanks to Tiffany Devon Borders, Playtester » fee SUD ¥ ber Pa Extraordinaire. per” | CLARKSTON, GA 30021 ; niWHITE WOLF USA Word from White° Wolf : © 1997 White Wolf Publishing, Inc. All rights reserved. We are always happy to answer any of your gaming Reproduction without the written permission of the questions, but there are a few things you can do to ensure you publisher is expressly forbidden, except for the purposes | get a response. White Wolf Magazine will soon be institut_ of reviews, and blank character sheets, which may be ing a White Wolf question and answer column. You can ey reproduced for personal use only. White Wolf, Vampire send your questions care of the magazine or the particular ws Ascenaicn ae aoplattred tradontoeks oc White Watthe line the question concerns (Werewolf, Vampire, Mage, oa Publishing, Inc. All rights reserved. Zon, Werewolf the Wraith, Mind’s Eye Theatre). Please submit your queries by ws Apocalypse, Wraith the Oblivion, Changeling the mail in writing. a Dreaming, Werewolf the Wild West, Black Furies If you want a personal reply rather than an answer in the Tee p ook: Bone Gnawers THbebook, Chifaren of Gaia magazine, it is very importantly that you senda self addressed White: Wolf Publishing,eed Inc. All rights: reserved. All stamped envelope (SASE). We cannot send a reply unless a characters, names, places and text herein are copyrighted | SASE is included with the question. If you’re desperately _ by White Wolf Publishing, Inc. awaiting a response to your questions and it hasn’t arrived, Bee __ The mention of or reference to any company or product | maybe you didn’t send a SASE. Also, we cannot return long wnt in these pages is not a challenge to the trademark or ; os as copyright concerned distance phone calls, so send your queries in writing. - This book uses the supernatural for settings, characters If you want to send a proposal for a sourcebook, you must a and themes. All mystical and supernatural elements are also have a Disclosure Form. You can get that by sending us - | fiction and intended for entertainment purposes only. ~ a letter asking for it, accompanied by aSASE. We donot buy _ Reader Sr rockaise Wolf online at ideas, so please do not send ideas in. We hire writers to write - http://www.white-wolf.com; alt.games.whitewolf our sourcebooks, and it is up to them to provide the ideas. a_ yy andPRINTED rec.games.frp.storytellerIN CANADA. Thanks a lot! 
-
-, A 
-
-- 
-
-“"t 
 
 | 
 
@@ -948,8 +552,6 @@ Contents
 
 ll 
 
-**
-
 r 
 
 y 
@@ -958,19 +560,11 @@ y
 
 cE a 
 
-**
-
 wo Join with me, my child. Bring your pain-wracked body and —_wonders our senses disclose! The bounty here is infinite, and ahs Change-wracked spirit unto me, and I shall hold you and give _ springs from that same eternal source of life that offered you up a you comfort. as a benediction to the world. oe Your courage and strength through the rigors of the Change Smell how the wind celebrates your presence! Hear how the ak have served you well. When first youentered Gaia’souterrealm animals of the forest sing your song! Taste how the plants of the m through the vehicle of your mother’s womb, yousummonedthe _ earth rejoice in yourcommunion with them! See how Luna and infinite courage and valor of new life to survive the ordeal of all the Celestines shine upon you and bathe you with their a pain and fear. Now you have entered the shadowy border _ infinite light! Feel the vibrant pulse of the world’s living aura between Gaia’s outer and inner realms through the vehicle of | cradling your new flesh. Know the love of Gaia in the space ee your own body. You have summoned the infinite courage and —_ above your eyes and throughout your being. Be joy. a valor of that mightiest of spirit warriors, the newborn child, to The universe hallows you, and offers up its entirety to your | survive this new agony. Youare reborn in your full form, blessed succor and increase. There is no place so bleak, so dark, so | by Gaia. To survive your second birth is to possess all the corrupt, that the love of Gaia cannot pierce it. Even in the courage you need to face the challenges of the world.Onlyone —_deepest pit of the Wyrm, if you seek for Gaia you shall find Her. birth awaits you now. The final birth that will return you Co the The soul of Gaia is without limit. Your spirit is without limit. bosom of the Goddess, and the inner world of Gaia. You have entered this land of false divisions to heal the rifts, But before before that day, Gaia has work day, Gaia has work Gaia has work has work work for you. you. bind up the wounds, and dry the tears of life. You will succeed. Cast your senses about, and behold the world with yournew your senses about, and behold the world with yournew senses about, and behold the world with yournew about, and behold the world with yournew and behold the world with yournew behold the world with yournew the world with yournew world with yournew with yournew yournew Gaia has foreseen it. . eyes, your new eats, your new nose, your new tongue, new eats, your new nose, your new tongue, eats, your new nose, your new tongue, your new nose, your new tongue, new nose, your new tongue, nose, your new tongue, your new tongue, new tongue, tongue, your new new Welcome to the world. 
 
 But before before that day, Gaia has work day, Gaia has work Gaia has work has work work for you. you. Cast your senses about, and behold the world with yournew your senses about, and behold the world with yournew senses about, and behold the world with yournew about, and behold the world with yournew and behold the world with yournew behold the world with yournew the world with yournew world with yournew with yournew yournew eyes, your new eats, your new nose, your new tongue, new eats, your new nose, your new tongue, eats, your new nose, your new tongue, your new nose, your new tongue, new nose, your new tongue, nose, your new tongue, your new tongue, new tongue, tongue, your new new skin, your new knowing, your new being. What a world of 
 
 ## Introduction 
-
-13 
-
-Cie SS ’ 7 . . eNom » pate 7 1) a . Ly eS Dod 7 “3 .) | 4 f, N vA r DOs a”bigs nSGy ‘ ; H ye 444 ~ SLY |N wy! ; ; 4 “ fy f SN. | \e , : HY y£ ) . are = y . Mies S \ ', Phe Tem g . SD EN 1 y : Sw ty 7 14 \ ” Aiosss, Ue SS \e ai \ Nt Aq a! \\ WY oS t, hy ye ON "4 yh Wd y i Zz | ees WNs4 a, SS EIN = \ € y “N N\ WY, 4 ®. AR } PY yj} ; v, . Mo ™“ ae easee f .. 2 ; - 
-
-- | 
 
 y Y 7 
 
@@ -981,10 +575,6 @@ on — oe ae as j
 oe 
 
 a 
-
-**
-
-**
 
 Do not return evil to your adversary; requite kindness to the one who does evil to you. — Sumerian (Akkadian) maxim, ca. 2350 B.C. Do the other good, that he may do good for you. — Sacred proverb of the Goddess Maat, ca. 2050 B.C., Egyptian Middle Kingdom Who does wrong to another, does wrong to himself. 
 
@@ -1000,11 +590,7 @@ Do unto others what you wish to do unto yourself.
 
 What ye sow, that ye shall reap. — Buddhist scripture, ca. 450 B.C. Do not do unto others what thou wouldst not they should do unto you. This is the whole of the law. 
 
-— Hillel, ca. 25 B.C. 
-
 Do unto others as you would have them do unto you. 
-
-: 
 
 Love your enemies as yourself. 
 
@@ -1012,35 +598,19 @@ Love your enemies as yourself.
 
 Stretch out upon the good, warm earth, my child, and e ne e end revel in the nighttime smell of the grass and the lilacs. The 7 crickets and the night birds will sing as the calm, still night There is but one story, and it is told a thousand ways. : preathes vith you. Re a your battered body, calm your —There is but one truth, and it wears a million masks. There Lo che amune, and unfold your pure, pure soul, as Itellyou is but one light, and it breaks into the infinite colors of the 7 one journey undertaken by your ancestors. I will tell you rainbow. There is but one Soul, and we can see it when we fel yy us,orhowbeloved you cameof Gaia. fo be here, andwhere you may onedaytake enemies.—Igok into our world, ourselves, and, most importantly, our mo a Chapter One: Following the Rainbow Trail 15 
 
-15 
-
 There was a time before time, when the world was one, their heritage as a single people and scorn the unity of the . and division unknown. We call this time the Golden Age. | One Tribe, so you must remember it for them. They will treat oad Many legends tell of a time when all bellies were full, andall = you as an outsider. You must not treat them so. You must | creatures loved each other. For without division, we were treat them as your brothers and sisters, for such they are. You each other. We lived in a constant state of bliss. . shall not return attacks in kind. You shall not return injury v “i When division came, Gaia was rent apart, and lay in with injury. Instead, you shall show them firm and underc tatters. Each shred of Gaia is one of us, or someone else. standing love, as you would a wayward brother. The sacrii A necessaryButSome some amongamongto Gaia’s thetheGarouChildrenevolution. seek areturnofTherefore Gaia tosay thatthewe blissfuldivisioncan never land. was ficesThe of ourS ancestorsecond demand (De noathless. | oreater. that point, but we can progress to something even Even after Wolf saved Gaia, dark times were still upon ~ : You will hear much, in your lifetime, ofthe division— the Re-Ai.a‘andwept in the shad.yeesae torine 4 sundering of matter and spirit. You shall hear how the Wyrm creatures and destroying food. For the first time, the world |a toreeparate.ee the twour aislin worlds andu howtravel the yeastto notic holdsworlds then knew war.: War bred still more want and lack.‘ Some wolves | ofpure spirit. Know you that the Gauntlet between the Committed unspeakable acts, andfought against each other oat worlds of matter and spirit is a wound in Gaia’s flesh. It must excludingothers. This is the way ofthe Wyrm. Thisa gae ane be healed, and we shall heal it. But the world that shall result birth to the tribes. ah shall be — ; To have more for themselves, some killed the pups of oy Ah, but I am getting ahead of the story. other wolves. This transgression horrified Gaia. She la_ The Fi°rst Death mentedfor their tiny the deaths spirits. of There, the pups, in that andone her holy tears spot formed in the a bower shade | In the beginning, the world was one. Then the world of the World Tree, Gaia nurtured the innocents. At a time “| divided into Wyrm, Weaver and Wyld. Worlds spun into when all the living world went hungry, the martyred pups | existence, and creatures were given form. Through Gaia, “T filled. | love sprang from the source of life. All beings had enough to As she fed them, Gaia taught them. Like all wolves, the eat and breathe and drink. pups already knew the secret of Death. The Goddess now When the division cleft spirit from matter, great scarcity taught the pups the secret of Life. You shall learn these Me 7 followed. Those on the material side suffered from lack of Secrets betimes. Y : spiritual sustenance. Those on the spiritual side suffered And Gaia said unto them, “You were once pups of all ef from lack of physical substance. Gaia suffered to feel her _‘tibes. Now you are pups of one tribe: the Tribe of All Life.” children suffer. The soul of the world was being eaten by the But she also added, quietly, “Once you were pups of one Wyrm. Tribe. Now you are pups of all tribes. For all tribes are one.” Gaia called upon her children to rescue her from the Gaia then returned the adult pups to the world, saying, Eater-of-Souls. Of all her creatures, only Wolf succeeded in “The Wyrm breeds scarcity, fear and shame. Gaia sows - the task. But in saving Gaia, Wolf perished. He was the first abundance, hope and joy. All living creatures must chose a to cross the threshold into Death. But through his love of the between these two. You, my dearest children, shall show we Goddess, Wolf was reborn as the Child ofGaia, knowingthe them the way.” amid secret of death. The Silver Fangs tell this tale, and it is true. The other tribes were sore amazed at the purity of the Pa But the Fangs claim only they are descended from the Wolf newly risen Children of Gaia, and laid down their weapons. — who saved Gaia, and all other tribes are descended from § The Children forgave the tribes for slaughtering them. All other wolves. This is not true. Indeed, there were no other Garou pledged to work together and to heed Gaia’s will, as oe wolf tribes in that pre-time. There was only Wolf. one tribe. oa We are all the descendants of Wolf, and we all know the However, most Garoustill carry three illusions from those o secret of Death. We hold it within our hearts, and will one | days. They still think the tribes are separate from one on We are all Children of Gaia. Garou think all living creatures are separate from one ae day use it to overcome evil and triumph in the Apocalypse. another. They are not. All Garou are Children ofGaia. Most L 7 After the first apocalypse, humankind and animals spread another. They are not. All living creatures are Children of . across the earth. The Garou dispersed as well, and formed Gaia. Ourbrothers and sisters think that the enemies ofGaia small enclaves as they went. But they all were descendants” 2nd the minions of the Wyrm are separate from them. They of the Tribe of Tribes, and so they are all Children of Gaia. are not. All enemies of Gaia are still Children of Gaia. This _ The notionofseparate tribes is a hollow lie. All Garou are is the greatest, and most difficult of lessons. I pray that you conyy rivalryone tribe.a wickedDivision curseis alaid clever by the illusion Wyrm. of Most Garou the Weaver, forgot and learn it, as I pray that I continue to learn it. oe 16 Children of Gaia 
 
 > _ €he €h ;rd Death atGaia. the Evenheightthe ofmostpassion.wicked, (This Wyrm-tainted is whywe seem person to “blanksees out”Gaia — The Garou, the humans and the animals all ranged across at the zenith of lovemaking. For we have beheld the face of oa the world. They expanded and multiplied, for such is the | Gaia, and the image is too great to bring into the limited “4 bountyrevealed ofitselfGaia. through But the threeWyrmfaces expanded — three as well.forms TheonWyrmearth. confines ofThe Wyrm oursought consciousto corrupt minds...that) capacity. It believed it 4r : Two of the three faces, the Eater-of-Souls and the Beast-of- _could use this great gift to trick humankind into filling up | A War,could.triedBut theto Garoudestroy andlife otherand humankind followers of Gaiawherever defendedthey __ planevery corneris that the of vast the earth majority withof people.humans The naturally only flaw choose in itsto | Life, and Life was too strong to be destroyed. But there was _limit the size of their families to sustainable levels. bd yet one aspect of the Wyrm: the Defiler. This face of the Many peoples choose not to have sexual relations during eS Wyrm did not strike directly, where we could see it. Instead, the period of lactation. Children are born at least three to i it burrowed deeply into the corners of humankind’s heart, four years apart. This natural spacing allows parents to give _ corrupting them, and teaching hate. But the Children of each child adequate attention. It gives each child several vd Gaia offered a different path, a path of healing. years to be the natural focus of her parents’ love during her 7 So long as matter remains torn from spirit, the world will neediest years, which reduces sibling jealousy and hate. The os! be a place of tears, where even Gaia weeps. But to healthe —_ greatest inoculation from the temptations of the Defiler is ol Gauntlet, we must heal the division within our own hearts. parental love and attention during the first years of life. poe This healing will not appear as increased joy, but as in- | Neglected children are not immunized from corruption by _ creased suffering. Until the Gauntlet closes completely, the Defiler, and lash out against all vulnerable creatures. 4 each merging of matter and spirit will be painful; the agony To overcome humankind’s natural abstinence from sex aa before the ecstasy. When the wall comes down, the pain will during lactation, the Defiler invented rape. Rape is un° op beso great that the Children of Gaia willknowathirddeath, known among animals in natural settings. But the Defiler | before the ultimate rebirth. tempted some wounded males, and encouraged them to - | : This wisdom I bring you is High Lore, little pup. Youshall | overcome women by force, to turn love into violence. They = hear secrets unknown to the greatest Garou of other tribes. | turned women from lovers and partners to rape victims and 7 For many of our brothers and sisters are oblivious to the slaves. They made women the chattels of men, so that the deception of the Defiler Wyrm, and the third rebirth of the | humans who bore the babies would have little say in the | Children of Gaia. Remember that what I tell you of the = number of children they brought into the world. Our Black Defiler Wyrm is not perceived by other tribes. But you shall Fury sisters can tell you more of this process. 0 learn more of this later. | am getting ahead of the story... Humankind began to overbreed rapidly. They began to Y e exhaust resources, and poison the land with wastes. Greater “A , _ Che JMpergluM numbers of humans led to greater organization. They began The to worship the Weaver, for the Weaver showed them how to plan to use theDefiler, bounty craftiestof of Gaia all the against Wyrm-faces, Her. It knew conceiveda thatthe enedive together the Garou more in large than groups. the The root rise cause of ofthethe Weaver problem: fright- the Eater-of-Souls and the Beast-of-War would never be strong _Defiler Wyrm. Rather than restore Gaia’s decree that men 2 enough to destroy all Life and bring the Apocalypse. The and women be equal partners, the Garou chose to destroy ineoN onlySoforcethe Defilerthat powerfulconcoctedis Lifea schemeitself. of surpassing evil. It hadexcessbegun.humans. It was ashameful dayfor usall. The Impergium | wanted to trick humankind into breeding more people than Allover the world, the Garou savagely killed humans and oa the earth could hold. Fertility is the foundation of life, but their children to prevent the human tribes from growing too like all things, it must occur within its own time and cycle. _ fast. This was against Gaia’s will, and bred horrors upon the a= The other Wyrm faces did not understand the power of world that were far worse than the Wyrm’s plan.We fell from corrupting fertility, but the Defiler knew. Itknew that too _ ur place as sacred spirit protectors ofhumanity, and became many rats in a confined cage would destroy one another. It humankind’s most primal fear. We created the Delirium. 2 , knew that too many humans would destroy the land with The Silver Fangs would not listen to reason. They were so 2 wastes, rape the land until it cannot restore itself, andmake ure the Weaver would destroy us that they refused to even | war Over scarce TESOUICES. a listen to arguments against the Impergium. They insisted j Gaia:TheanDefiler endless capacitychose to exploitfor love.the Unlikegreatestthe giftrest ofgiven Gaia’s_by _ that Butwe if the persevered, Weaver and prevailed, continued the Wyld to revealwould the be great destroyed. damage creatures, who can only breed during specific cycles of thé we were doing to the human race, ourselves and Gaia. seasons, Gaia offered unto humanity the blessed gift of Finally, the Children of Gaia unified behind an all-or: loving and breeding at all times and all seasons, from the nothing plan to stop the killing. We faced down the legions : iy start of adult life to the very end. Through every one of the of great Garou Ahrouns whose entire lives and status were oe myriad acts of consenting love do people come to know guilt on slaughtering humans to keep the population down. Ss Chapter One: Following the Rainbow Trail 17 
-
-**
 
 : would be safe from the Wyrm, and to bind up Wyrm minions AP, f th A : t eee -. under monoliths and standing stones. We showed them the owers 0 e ncen Se sacred acts ofworship and fertility, which are always one and World _ : the same. We taught them how to harvest Gaia’s bounty ; | , without destroying her capacity to bear. We taught them We guided the earliest civilizations ofhumankind, point} that acts oflove create children, and we initiated them into ing them away from warlike pursuits and leading them to y A | the men’s and women’s mysteries that allowed them to limit rulership that derives from loveofGaia; respect for the living : AZ the size of their families. We showed them the herbs and worldand empathy for other men. The history ofcivilization | , gems and cloths that Gaia created to grant them holy jg the story of the Wyrm influencing a few bitter, insecure | authority over their destiny by having children only when people to try tocontrol the lives of all other men and women. ee they chose. The Wyrm bids them abuse their brothers and sisters, bind we The Defiler Wyrm was wroth. All its patient scheming —_ and enslave them, and eat the fruits of the others’ labor. This a and plotting would go to naught if people could choose not ~~ ‘Wyrm-spawned appeal to selfishness and vanity is a powerpo to breed, and not to use the land without restoring it.The —_fyl temptation indeed. It brings great wealth to a few, and as : Defiler used all its power to frighten humankind. It again —_makes[ misery][ for][ the][rest.][ Vast][ concentrations][of][wealth][ and] encouraged rape, the subjugation of women, andthe forcing —_power[ maintained][ by][ force][are][the][fertile] dung[in] which[the] Ue of women to bear more children than they could nurture. — Wyrm breeds fastest. aay _ The Wyrm forbid the use of the birth control methods we Many humans shunned war and conquest and control of. a : had taught them. others. These men and women have lived in all cities in all’. on . And so children were born into squalor, regret and resenttimes and in all places. But the temptations of the Wyrm are ’ nS ment, instead of abundance, welcome and joy. The Defiler great, and many humans succumbed. Warlike cities sprang _ did more damage than the Eater-of-Souls and the Beast-of—_up near peace-loving ones. Cities in which men and women : War, because it single-handedly caused more suffering than ruled hand-in-hand were ever under attack by cities in . | : couldall the corruptwork of Gaia’s destruction gift of love.and war. For only the Defiler whichpowers ofthe generation,Defiler hadandtempted to keepmen womento envyas uneducatedthe sacred | To this day, that wickedness remains our greatest chal- _ beasts for breeding. We gave great support to the Black | lenge, for children born in misery often become willing Furies, as they fought to free women from the growing tides | servants of destruction and war. Those whohaveknownthe _ of bondage and servitude. || unconditionaland their empathy love offoraparentall life moveis in tofull theflower. rhythmsThoseof Gaia,who love.In But many over places time, and the times people we grew complacent instituted the rule in of theGaia joys , parentshave known are outthe of harmonyconditional withlove Gaia,of andburdened, comfortable onlyresentful complete.of their liberty.They Theyceased cameto tostruggle regard forthe worktheir offreedom,freedomandas in the presenceoflimit and lack. Their empathy issmalland came to worship the symbols of freedom won in the past. In shriveled, an unnourished seed pod. this state they were ripe for corruption by the Defiler Wyrm. x And yet, despite these tremendous obstacles, even the We watched in horror in city after city as the Defiler | least and worst-treated human can show profound spiritual- _perverted the holy word, twisting the tools of freedom into ity. They are so deeply connected to Gaia that only an allweapons of slavery and subverting the revealed truth of love ror ! out siege on their inner holiness can disconnect them from into irrational justifications of hatred. We established the out Her. And even then, a great shock like the death of aloved tule of love through symbols that reminded humans of the feeon one,themtheto birththe deepest ofa child,wellsprings or a nightof ofpassion their soul. can reconnect Wyrmlove in theirconvinced hearts,humans and spreadto love peacetheir and joy.tribe Theor nation’s Defiler we We Children of Gaia often arrogantly take credit for particular symbols and hate all who did not love those same | sowing mystery cults and Gaia worship among humankind, symbols, thus breeding war and suffering. We led revolts ne | but the truth is that humans have often led us. Theirsimple, against those who elevated the graven symbols over the love untutored connection to Gaia is awe-inspiring. Toseethem _ they represent, and thus restored peace and joy. The Defiler _ heedlessly plunge into fire for the sake of a stranger, or hurl = Wyrm convinced men to destroy the graven symbols of ad themselves into death to save a child, or give of their wealth —_ others, and bred yet more war and suffering. ; | to make life better for others is wondrous to behold. Even The Wyrm found willing allies and pawns among the ; | young children rush in to save others from danger. Gaia’s ancient vampires. These tainted inhumans had lost their | love and empathy is so deeply rooted in these people that —_patural connection to the living world, and felt little com. only the vilest of assaults and unending agony can shake it.. punction against harming the humans who were once their Despite an unending siege ontheirempathy, andthe Wyrm’s _ fellows. They were eager to control the destinies of mortal powerful appeal to selfishness and greed, they still cannot —_men and women, who they treated as little more than food. turn their faces completely away from their brothers and We had some success working with them, as many were 7 iy sisters: the hungry, the homeless, the helpless. terrified at the slow loss of self-control that comes with a surrendering to their unliving aspect. We also made success- 
 
 ## Chapter One: Following the Rainbow Trail 
 
-19 
-
 ; ful alliances with powerful female vampires, who sometimes _all the pleasures he would lose should he succumb to vampiric _ felt a kinship with the mortal women who were losing their — immortality: bathing, eating, drinking, raising children, and pon rights of property, inheritance and self-determinationunder —_ especially making love. He understood his choice: unlife, i the control of the Defiler Wyrm. Our tribe’s ability to | enslavement and power of the Wyrm, or life, freedom and a occasionally find common cause with some vampires dates _ the joy of Gaia. He turned to Gaia, and becamea great hero r 7 from this era. But we must be careful, for vampires are no —_ and slayer of Wyrm-beasts. , longer tied to Gaia, and can betray without remorse or Let the oppressed man who has a cause A compunction. Come into the presence of my statue, | We were able to forge limited relations with the elves and And read carefully my inscribed stele. S faeries and oer elemental creatures “" many of these are — Hammurabi, ca. 1600 B.C, creating the first aS~ Gain is fagcinatine to on the _ - Their relationship to published laws enshrining human rights. M h in 4 h : ‘on, but thei We encouraged great kings and queens to incorporate : rnthemages» hetT hettheir ©“unéwaWe 7ey onP ltEdlowow h uthumans thelr arro-causes — Gath **i** a’sng inlove the into translation their laws. to mand Gai **a** te,’s love but alit **wa** sys important loses some- to to distrust Our Message of equality. the emerging human civilizations. As a people yet in child: G 0 . C . li t ° hood, humans were eager to follow a parental summons. It A ul Ing UI IZA lon was Vital that we lay down the parental law, lest we allow the oea We enjoyed great victories,_ and saw great failures in those Iateyrmadolescence,to do so. (Bytorn way ofbetweencontrast,wanting humankindthe comfortis today inof a heady days when magic still coursed through the land. —_ saath external rules, and eager to break old limits and take newfound 2 When the Impergium was still new, Gaia revealed unto responsibility.) oe all tribes a great secret. Half a world away was a land where We showed them that Gaia’s love is aco dment to humans had never set foot. The assembled tribes selected comme several strains of humankind, and led them away from the . | ; treat all other creatures with empathy. In the Babylonian Wyrm-ravaged[lands][to][the][New][World.][Some][tribes][re-] empire, we guided; Hammurabi to create: compassionate laws. sented the departure of the Uktena, the Wendigo,. and the and: fully publish them,athat all might read and know their : ; Ss rights. He mandated principles that protected the weak from i now-martyred Croatan tribes. But we heard Gaia’s song, and injury at the hands of the strong, punishments tempered to understood. We protected the backs of the three tribes as . ; ; they led their; charges into; the New World to purify; the land fit. the crime, and; protection for women and children through and themselves. Some of us went along on the fabled divorce and child support. These; laws were far from perfect, ” journey, i, and we could not stop him from heeding the Wyrm and 4 of disguised as members of the other tribes. But most building vast wealth by enslaving his brothers. A legendar S the Children of Gaia remained behind, to defend our Chi g vas y 8 : e Y A needy . ild of Gaia Ragabash hero helped loosen these slave laws. would charges in the Old World. The Old World tribes He guided the Babylonians to grant slaves the right to . not see the other tribes again for thousands upon i busi : 6 laves! 8 thousands of years conduct business and even own other slaves! . _ Some groups of Garou: settled with individual strains of Ii howehave no not “one oesiniquity, ? humankind, to become their protectors. We, however, spread ve not done violence to any man... os out over the whole of the ancient world. We sought to help I am Yesterday, Today, and Tomorrow, ee all humankind, and not take sides with tribes, which someAnd I have the power to be born a second time. aa times led to Garou fighting Garou over human arguments. — Egyptian Book of the Dead oF Our work in the Old World was just beginning. Now that In prehistory the Silent Striders made Egypt their sole a humans were no longer culled, they would become a major —_ purview. They were willing to work with us when the Wyrm “ power. All the tribes were there to save humans from the __ was strong in the Nile Valley, but made it clear that Egypt Wyrm. We had to be there to save humans from themselves. was theirs. We ranged across the rest of Africa, where the We showed them the splendor of Gaia’s love, and planted _—_lusty people venerated Gaia with great enthusiasm. We seeds of compassion in their hearts. We tended those seeds, protected them from the ravages of the Wyrm, who worked seul and nursed the fragile buds that emerged into full blooms. to instill shame and debasement of women upon them. Sy Make every day a festival. The people of Egypt worshipped a pantheon of gods ot — Siduri Sabitu’s advice to Gilgamesh, The Epic of | descended from Gaia, gods charged with care for humankind’s : Gilgamesh soul. It was a golden age. We kept the Wyrm at bay, and a When the vampires seduced the great kings of the world worshipped the eternal nature of Life. But the coming ofthe . with visions of immortality at the price of their soul, many V4™pites destroyed it all. They ushered in the Wyrm, and ; succumbed. But we showed themabetter way. A great Child turned the worship of holy rebirth in Gaia to the foul the radiance of the Goddess, poured a cup of “reality reThe Wyrm perverted the worship of the Gaian gods, yy ofGaia heroine named Siduri Sabitu, divinely charged with worship of death and undeath. ss~ ; 20vealed” to the great Sumerian king Gilgamesh. Init,Children he saw _ offillingGaia the holy orders with corrupt, authoritarian, militaris- 
 
 4 tic[Wyrm-followers] who ruled in secret through weak, frightenslaved cities in the Mideast, renounced the powerful, ened, or wicked pharaohs. For millennia their power was _ Beast-of-War-riddled military, and cut its funding. The Ss absolute. The very life was draining from the land. Asimple people loved him so much that the Wyrm could never budge _ push by the Eater-of-Souls would cause the entire areatodry him from power. oo upToand savedie. Egypt, we allied with the Striders to recapture the | andBut took after control Akhnaton’s again, handing death, the power Wyrm’s to his forces puppet converged son-inA Nile Valley. Our great Kinswoman, Nefertiti, found a powlaw, the callow Tutankhamen. They sought to destroy all | A erful ally in anew pharaoh, AmenhotepIV.Hethenopened record of Akhnaton’s existence, including even his name, : himself to Gaia, who bathed him in Her radiance. She lest the story of his success spread, and inspire others. But the _ protected him from the Wyrm-corrupted vampires who Wyrm beasts were never again as strong as they once had ee tuled Egypt. She boldly burned the hell-spawn out of their —_ been. S crypts with the Halo of the Sun. Moon’s Creature” | The Pharaoh changed his name from Amenhotep (Satis— Cretan name for kings foe fying to the Gods) to Akhnaton (Beneficial to God), and Our ideals found greater flowering in Crete, where the | founded a new religion based on a single powerful god of | Minos, or living aspect of the Moon-Goddess, ruled with a light. This was the first true monotheistic religion, and it human consort. The Wyrm targeted the land for utter al crippled the Wyrm-spawn who had stolen the places of destruction, and there we fought our greatest struggle to oe Gaia’s pantheon. To purge the priesthood of vampires, —_ date. We prevailed, and sent a great Wyrm-beast back to the om Akhnaton built an open-sky temple to Helios, and literally abyss. But it was also a time of weeping, for we not only lost _ burned them out. Akhnaton’s religion also stopped the —_q great empire to the Wyrm, but saw the last of the noble = Eater-of-Souls’ plan to destroy the Nile delta. “Moon-bulls,” or Minotaurs, as well. “| Akhnaton and Nefertiti spread teachings of perfect love, Happy and blessed one, you have become divine instead of brought great art into the royal palaces. Their inner nobility — Dionysian initiation : || openness,Akhnatonwas inspiringandsurvivedtonon-conformity.the people,assassin **a** tionnd aThey newattempts, goldenloved andbeauty, age began.changedand ssmoyta).Gaia’s wisdom reached. full floweringain Greece. : The many of the policies, of Egypt. He ceased conquest, released people embraced Gaia love through Artemis, Demeter and ::;Oo4 LS a we - i “une “+ ~ - | ~—& —\ j A | x , 4 (fa | j Vi}4 ‘ fH eetN i : . . . ’ soeAOR> ¥ be X EF. ° td 
 
-5 
-
-° 
-
-a. 
-
 -~ o ay 
-
-: 
-
-**
 
 His daughter, the brilliant Madame de Stael, wrote persuaae sively on vital issues of the day. She also purchased land in ey the New World to save caerns there from Wyrm defilement. ao Upstate New York retains some of the most holy places in 7 America (and the world) due to her merciful and timely Oo purchases. yA If one person achieves the highest love, it will be sufficient to \ — Gandhi 4 A neutralize the hate of millions. 3H The new nation of the United States ofAmerica stood for ees the Gaian ideals of peace and abundance. All people were . ) f 7 welcome in the land of justice and freedom, and were an accorded rights and dignities unknown in the Wyrm-cor\ ; a rupted Old World. The Deist founding fathers and mothers \ , : had left an enduring legacy of tolerance which inoculated $ { lee the nation against the Wyrm’s temptations and predations. A 4 We built on these successes by spreading peace from 3 A America outward. After bitter wars against Canada, includy } wie ing vicious naval battles in the Great Lakes, our Kinfolk in ) . ee the Canadian and U.S. governments reached out across the \ ! ae borders to forge a disarmament pact. We stopped building \ | : forts on both sides of the border, and scuttled warships that * i } t ‘| were too big to sail out of the Great Lakes. The peace along = mt , J \ | " the world’s largest undefended border is now taken com"2 ~ m —” on" a4 ; . | pletelythose whoforknowgranted,howmuchas is theworkprosperity it took,ititgenerates. serves as a Butmodelto 4 for waging peace through bi-lateral disarmament. In the process, we also gained great honor among the Wendigo, : who had become enemies of the U.S. government due to fensions along the northern border. _ ; ; lence. The first group found that cowardly. At a time when In addition to restoring widespread Deistic Gaia worship, could have been celebrating, we were falling apart. among the founding fathers, the Children of Gaia spread the As a compromise, we chose to continue to focus on F Gaian ideals amone the newly freed humans. Christianity reforming the transplanted Europeans, and not provoke war was again grounded in the ideals of peace espoused by Christ, by liberating women, the indigenous peoples and the Afrias Christians became pacifist Quakers, and Shakers sprang cans. However, we swore to make liberation a high priority. up in answer £0 the song of Gaia love. The Puritans, ones We have sacrificed much to bring our Law of Nature into ard defenders ofreligious tolerance but now Wyrm-defiled, tried effect, and drive the Wyrm from the hearts of Americans ae to slaughter the pacifist Quakers. We defended the Quakers, through the Constitution and steady, incremental change oe but the vicious assault by war-like Christians upon peaceful We still do not know if our compromise was the hest = 4 Christians haunts America foun ay Soul solution. The concessions we have made are heartbreaking. “| ut even as the Deast-olWar and Later-Ol- ous Were However, we have accomplished much. In the Pure Land, ot slow to accept the loss of the New World, the Defiler Wyrm . 4 ; which was still mostly free of Wyrm taint, we finally accom7 quickly adapted to subvert the new government. Even as we lished the impossible. We broke the most ancient and ° ined ground in the hearts and minds of the settlers, we P ; aa ae 8 dtol din defendi f Hf4 wicked of Wyrm taboos. We finally freed women from the me ‘he ny aieee apareanl le shackles ofservitude. This feat is so new to the world that its = Wethe Africans convened from another grand slavery, and moot the Pureto shareMenour from thoughts genocide. on repercussions have hardly even been ;felt yet. ; We offered ea these issues ; humankind the heady, exuberant, delightful and very unSome f k auali comfortable joys of peace, freedom and sexual equality. The among us pre erred to work to create equality Wyrm offered the comfortable pain of war, slavery and \ among humans by fighting against all who persecuted women; subjugation of women. The choice was clear. And, to their _ Native Americans and enslaved Africans. But others felt everlasting credit, the people of the New World embraced vt this policy would provoke outright war, polarize the nation, unfamiliar joys over familiar pain. Humankind was truly a slow or stop further progress, and invite the Wyrm forces growing up. back. This group preferred to continue enlightening the The Wyrm did great damage to the Pure Men, and tried ae iy dominant human sub-group, the transplanted Europeans, to eliminate them all. We fought its attempts in Congress, in an and bring incremental, sustainable change without vio7 28 Children of Gaia 
 
@@ -1048,21 +618,11 @@ the Press, and on the battlefield. We joined our Wendigo We started by forgiving
 
 WW ro 
 
-**
-
-**
-
 . Cg oar | gee Ya: Gas 1 : £ o tt YT bone : : " (iPoe an ig arT= Z ;ha i N w ‘\ aWZ raB 2 Aa SS "ANS “| KU ONG ey cS.we Keg AN, REAM Ed |Fo <i 3 Sa) Ke ANUEN AG 
 
 ‘ie, Gore fA Gol Soe, “Gy I § Poe - Bon . “hae “i 5 Wes ee :. a ea oe es oe ee ot 2 afc en 6 Dae” (ee Pn Se od a MP oe Bee Eg oN ESE Ss 8 eth IE RP a atharee % NO a oe Ee ‘ | Pi ia, ete. Sri NR Eneaa | What do you suppose will satisfy the soul, except to walk free and own no superior? 4 — WaltWhitman, quoted in “Testimonial to Walt Whitman” y ; : Come child. Now that you have rested from the ordealof ( he Sacred Famil your Change, and have heard the tale of your past, it is time J | to see the present. Come. Run with me! We are the children of the living world. We embrace it Do your legs buckle beneath you? Do you feel the gangly and love it and romp upon it, like a baby on her mother’s ain awkwardness of a colt that grows three inches in one week? _helly. The world is a warm, welcoming place, full of brash oEY Do you feel the surging, burning pain in your new muscles? —_excitement and deep, abiding mystery. This world is a gift i It is time to use them. Come now! No excuses. Your legs will from She who is our Mother. She gave it freely, so love it. : 5 hold; the exercise will loosen them and soothe the fires of Someare fearful of the world, and some are vengeful towards iy the Change. it, just as some are fearful and vengeful toward their parents. i While we run, I shall tell you of our tribe. I will tell you But we live on Gaia courageously and respectfully. a who your people are. For your father is a noble Child of Gaia The world is your birthright. As you are a Child of Gaia, Kinfolk. We are proud of his work freeing prisoners of you have inherited the world and all that is in it. All Garou _ conscience.And weare thrice proudheandhispartnerhave _ are Children ofGaia, they simply do not knowit. All animals a delivered to us a new-born Garou. are Children of Gaia. They know it in a special way, a way 2 Do you feel the wind through your first fur? Can you feel _—_ that goes beyond our knowing. All humans are Children of - your thick skin bristle in the night air? Do you feel your = Gaia. They know it in their sacred moments. When they . nerve endings crackle at the end of every hair? Can you _ hold a baby. When they open their mouths to fill the world | smell the rabbit on the next hill? Those are your new senses. _—_ with song. When they perform a simple kindness. When They will reveal the world more true than you have ever _ they look into the eyes of a revered elder. When they stand a known. up to a bully. When they speak from the passions in their Come! not stop, even when we are overcome by panting exhaus| When they lend a hand. When they look death in the face. wos iy tion! We willrun! We willrun thenightaway! Andwill heart. When they sit quietly. When they leap in the air. Chapter Two: The Path of Peace 31 
 
 7 vee they make love. When they make the world a better ServantS of the Unicorn oe These things bind us in ways that are more powerful than Hail young one! The Servants of the Unicorn greet you. We all the divisions that tear human and Garou asunder. Divi- _ are the largest camp, composing nearly half the tribe. We are sions of nation. Of religion. Of breed. Of race. Of tribe. proud warriors of the spirit.Our task is simple. We bring all the r These things all tear us apart, and anything that tears us _ tribes together, and resolve differences. Most Garou disagree, apart is of the Wyrm. Anything that tears us apart is evil. ments are over small matters that loom large as old hurts are added | A Our job, as Garou, is to seek what makes us like those we _t0 the grudge pile. We seek to interrupt that process, and we have | a meet, not what makes us different. The differences are clear stopped many trivial matters from escalating into tribal warfare. | oe and in plentiful supply. We know how to find those. We Now we work to resolve ancient enmities. It is vital the tribes oo must learn to see how others are like us. We are all of the unify before the Apocalypse. We have no time to waste, and | same home, and we all have the same Mother. welcome all young Garou into our ranks. : We learn to see ourselves in our parents. Then our h | siblings. Then our friends. Then our lovers. Then our chilCrest of t 4 Horn | dren. But can we see ourselves in strangers? And can we see We are a small group within the Servants of the Unicorn. Like ourselves in our enemies? | aj ; , the Crest of a real horn, we are the part that leads the charge and | msZe greatestWhen wishwe forcan us,master and becomethat, we thehave Healinglived ofuptheto World.Gaia’s coresWe realize thatthe first kill. some Garou are too far gone to be saved. The | iad Ca oa mwpLy quickly.Silver Fangs Only are the the Children problem. of TheyGaia must are fit be to deposed, lead the Garou. and deposed Our , : Draw us near, and bind us tight, tribe has made every decision that helped the world for the last ten = ,; . . thousand years. Every decision the Fangs made against our a | AllIn our your rags children of light, all here, dressedin their to rags kill,of light, don’tcounsel want came to back lead. Weto bite want them to institute on the ass. democracyBut guess what? through We a And end this night, if it be your will. Garou Council. The monarchy is two hundred years extinct. It's . — Leonard Cohen, “If It Be Your Will” just too dumb to know it’s dead. Within Gaia’s longhouse there are many chambers. Many Our work with the servants has won us allies in every tribe. of the Children of Gaia have formed separate camps based — Our hints ofdeposing the Fangs have won us more. We'll soon be _ on divisions in their core philosophy. Before you hear of the —_able to depose them without shedding a drop of blood. There is no ” camps in our society, I shall tell you that camps are an _point in smoothing away differences with the Fangs. Better to Y a artificial way to separate the already divided Garou. They _keep track of who’s mad at whom so we can exploit it and build i oo are very mucha problem, since they cause us to polarize a coalition to depose the Toothless Ones. Harsh? You bet. 7 opinions around opposite views, rather than acknowledge _ Betrayal? Perhaps. Forbidden by the Litany? Never. Itis not only that the Truth is too large to fit in anyone’s cup. our right but our sacred duty. ve divided.Camps The separate two main a tribefactions even more in our than societyit hasdivide already us along been Jmminent. Stri.ke os lines of our reaction to the Apocalypse. Other tribes have aS restrictions on camps you may join. In the Children of Gaia, The time for talk is past. The Apocalypse is at hand. We have an you may join as many campsas you wish, even contradictory but two choices: act quickly and prevail, or waver and fail. The co camps. We understand that Gaia’s truth is one, but can only Children of Gaia have wisdom about the end of the world that is coe be seen through many masks. Therefore, there is wisdom in Necessary to all the tribes. But to prevail, we cannot have - . all Children of Gaia camps, and you may seek your truth in resistant, treacherous Garou among us. In order to prevail, we 7 any and all. Some Children of Gaia reject this, and wish to ™st work only with the tribes who will cooperate with us, and form elitist, exclusionary camps. I believe this is against heed our wisdom. Those tribes who cannot quell their suicidal os Gaia, even though I understand why they wish to isolate pride cannot be part of our Final Strike. ok themselves. It is harsh, it is damning, and we have no right to leave them oad Now that you know some of the dangers of the camps,I Mt But leave them out we must, to triumph. By seeing our firm shall introduce you to eachcamp, that you may grow wise in stand, they may one day change their minds and join us whole- L | their ways and learn how to join them. Step with me, and heartedly. Sowe pray. But we are not afraid to leave them behind. i shall take you into the tribal gathering, where you can meet We must start by cutting ties now. The Shadow Lords are dead - an ambassador from each camp. TheyhavearrivedviaMoon — weight. The Get ofFenris are problematic. It has been prophesied _ Bridge to talk to you, and tell you of their camps. that a Silver Fang will bear the standard of the Wyrm in the final : battle. We must extricate ourselves from them now. If the Uktena do not renounce their dangerous flirtation with the Wyrm we os yy mustabandon them as well. The Black Furies mustbecome more - 32 Children of Gaia 
-
-**
-
-**
-
-**
 
 NO Bl) Awe arene ‘ Mi ihe \e guawe foe “a pee < 7 if *< \ Af i. / ae o gh, a BY S 7 ee > \ evry ee a ae | (a j vu » 3 ‘ ai , yt al? © hg if hey ‘i ‘ | > Gruul: 242\\e°. Se fF 77 "a m/ oP ae QS ae : Ne \ Ze “ * ge an amt \ 7 o “? itt eff eee ON a aS Ld ‘git Sf gy if i ae AS ;' &, eae | Fo, | wy” . y coe Se « \ oe cee im A wr Bea S Ke Ve ll k ; We choose our leaders through rituals in which Gaia Sha Ca € No Action makes it clear to us which among us are to rule. We have | Chat Causes a Caern to be great debates first, in which everyone argues passionately for . their positions. When all ideas are on the table, the outcome Diolated is usually clear. Thus we rarely have succession struggles. But There Garou of other tribes often think we can never agree on is no need for any interpretation of this part ofthe anything. sy Litany. Caerns are our connection with Gaia. We must Each protectorate has two leaders, traditionally male and US protect them with all our ability. female. The female, Voice of the Goddess, is the decisionsyoa A Final. Wor"y on the Li.tany maker.ideas. A The third male,leader, Arm of thethe Heart Goddess, of the Goddess,is the executorinterprets of the a Ancient prophecies speak of a great Child of Gaia hero, Gaia s will in larger issues. Our leadership structure mirrors -_ The Desperate One, who single-handedly triumphs in the the triple goddess.Any role can be held bya male ora female, a | di | dh [ but we often find the traditional roles work best. (As a side a Apoca ypse. According to the Seen ne does soony after note, we have translated this mode into rulership of many : violating every law of the Litany. This legend is probably just human civilizations, with — a law-giving female, an executive “sis a metaphor for free thinking, but it might be literally true. male andatmetis or ‘a elder be g 4 fild-bearin asa iudge ay For this reason we are always eager to learn from our — 1S ; yonac § aS a JUCgEae : This is echoed in the tri-cameral government of the United dissenters. Who knows? Any of our pups may turn out to be S the Desperate One, even you. tates.) | . | The Family of H | Rulership . e Family of Flumans Because our leaders invite and encourage discussion and an? Wol0 veS even dissension, other tribes declare we have no leaders. But Unlik h b breed al lusivel ok: iy andwe clearlycultivate understand the finest thl **e** adership vital functionqualities that ina **l** eadelou **r** peopls serv **e** ., W4KiS!NfO"%, iheoF withv Lhh **u** rlmanseS) in ohwhom Teewehe.have COnHCeCnfided oOur y . 40 Children of Gaia 
 
@@ -1070,11 +630,7 @@ secret and broken the Veil. We donot explain thistomany _ their affiliations eve
 
 Chapter Two: The Path ofPeace 
 
-41 
-
 a 13 be a 7: J r \ J me RAG? a4 Rg ed ys a| \s tal WA = AC B ewyZe> \ 4 Wy ‘ : NU “ | | sD | y& EIN +] yy \ aNY V y Ss Gre «A ~ lin 4 DAA q ae 4 —_ SIs. 
-
-**
 
 | 
 
@@ -1084,47 +640,23 @@ ree
 
 | 
 
-; 
-
 A V, 
 
 Soe we 
 
-**
-
-**
-
 ## Sa 
-
-**
-
-**
 
 There’s no home in this world anymore for a saint, With a salesman to franchise his sandals... To stand in the garden and ask for nothing, Well there’s nothing they'd ever call more dangerous. There will be robes. and gowns, There will be saints, There will be magic clowns, dressed for the masquerade. Come riding, riding, riding, Come running for your life. Come take this song of my brothers, Come take this healing light. — Rob MacDonald, “Song of My Brothers” 
 
 ~ | Becoming the Healing F of Good of the tyIP, ; Action from principle, the perception and the performance of right, changes things and relations; it is essentially revolutioncas Now that you know of the world within the nurturing — ary... It not only divides states and churches, it divides families; aS] bosom of the Children of Gaia, it is time you learned of the _ay, it divides the individual, separating the diabolical in him from world without. There are terrorsintheworldtochillthesoul the divine. | of the most hardened warrior. You cannot inure yourself to — Henry David Thoreau, quoted in Pioneers of | hurt. That way lies the Wyrm. You must face evil with an = American Freedom 7 open heart, or your closed heart will do the work of evil. ~ The wide world is a confluence of the triune forces of the Many are the Wyrm’s disciples. You shall learn of them, = Wyld, Weaver and Wyrm. But the clearest forces that have fight is the one that lurks within your own bosom. openness and generosity toward all, and the Wyrm forces of wea xy and learn to defeat them. But the greatest monsteryou must guided man’sshame and fear developmentand selfishness. are theThe GaianGaian forcesforces of love’draw andus 
 
-- 
-
 Chapter Three: The Whole of the Goddess 
 
 ## aay //, 
 
-43 
-
 ws; ourtogether, neighborsand leadand us ourselves.to forge The connections Wyrm forceswith ourlead world,us to Choosing Hea Ing| ‘4 , — shatter connections and hide behind barriers. I chose and my world was shaken. So what? _ These two forces wrestle for the hearts and minds of all The choice may have been mistaken. The choosing was not. ; humans. Their battle can be seen throughout history, and You keep moving on. | their intertwining can be felt in all religious traditions. In Anything you do yA one chapter of a holy book, the writer goes on-at great length ; , i 1 ; ; Let it come from you. LZ describing the compassion and eternal mercy of a loving oo é God. In the next, the author describes a jealous god who has Then it will be new. ; | no patience for even the smallest transgression. In one Move on. sO sd chapter, the solomonic author waxes rhapsodic about the — Stephen Sondheim, “Move On” ba body of his mistress and the transcendent bliss of his carnal Life is full of choices. Seldom will they be so pure and _ relationship with her. In the next, the pleasures of the flesh perfect that they will be obvious to you, child. You must | are attacked as being ungodly. In one chapter, God calls for make your choice, act upon it with all your heart, and accept - peace and understanding for all. In the next, he exhortshis the results. Acknowledge when your choice is wrong, and m4 followers to kill the children of their foes. likewise acknowledge when your choice is right. oo This is not inconsistency on the part of the divine. These Two hundred years ago our tribe made a choice. When oe contradictions merely reflect on which powerful being the — the Uktena and their protectorate came under heavy attack oe author had elevated to the status of a God— Gaia or the — by the Wyrm and the burgeoning U.S. government, the a Wyrm. Uktena appealed to all tribes to send warriors to repel their 244 institutionThis same created tug of byopposites humans. shows These up contradictions everywhere, inevery appear Wechoseenemies. We to keep sent many many of packs, our packs but not dedicated the numbers to guiding needed. the in law, business, politics, education and even entertainnascent government.We knew that the settlers could never ment. Some laws are made to protect people from oppres_be pushed off the shores of the New World, and the greater - sion, and spread concentrations ofpower. And some laws are goal was finding a way for both peoples to live together. : made to oppress people, and concentrate power in the hands We received withering criticism for this decision. The ofthe few. Some business people are eager that allassociates, Uktena felt betrayed. Of all the Old World tribes, we were ot workers and clients benefit and prosper. And some business _ the only one they had come to trust. people want to prosper at the expense of others. Some We could have saved more lives had we sent more packs. leadets care for the triumphs and pain of all people. And = Were we wrong to continue to assist the colonists and some care only for the triumphs and the pain of theircronies. improve their souls? In the end, I think it’s clear that we | DivisionBoundaries and enmity between along people racial, aresexual, constructsreligious, of thenational Wyrm. —= **m** adey conscience the best choiceat rest. for the long term. But that does not set | and cultural boundaries are Wyrm-spawned. Love that crosses Nonetheless, we cannot indulge in mournful regret. That | these lines is Gaian. way lies Harano, and that way lies the Wyrm. Accept your | The Wyrm’s will must always be imposed from without. _ choices, for good or ill, and continue on your way. You will : na imposedHate mustfrom be taught,without.it isIt notcan inborn. Gaia’sonly be discovered will cannotwithin, be — makelike your mistakes forebears, in theyou world.will Thatmake is somehow hugeyou learn.mistakes: Ifyou areBut Ss through introspection. For this reason, the Wyrm ridicules _learn you shall. ons self-awareness and spiritual searching, and attempts to fill And you will do better. THAT is the very process that mn) that need with external religious dogma. heals the world. It is as simple as that. For you are the world. 7 | Our senses rebel when others attempt to imposed their — As you improve, so improves the world. |5 withbigotry respectupon andus. love.But our senses rejoice when. we are treated Che WyrMi , There is but one Wyrm. But the Wyrm has many faces, ieoe “e threemany masks.faces of the Just as Wyrm all Garouare but areone Children Wyrm. of Gaia, so the | However, just as the tribes of Garou work against one L another, so too does the Wyrm work against itself. The forces ‘ | ' Wyrmthat emanate have often fromcorruptthe D **e** dfiler and Wyrm destroyedaspectforcesofthat the Oneema| XK V4 nate from the Eater-of-Souls and the Beast-of-War. x. 44 - Children of Gaia i . . 
 
 eh upon you. When you strike your foe, do so because “re! . Lo pleasure. ec ° Ke ge striking her is necessary, not because it gives you nS N Actfrom duty and not hate. Overcome hate, andyou ‘ q , Cy shall be free. 7 =i ~N DefilerSubtlest and Wyrmmost dangerous of all the Wyrm faces, the | A Defiler is nearly invisible to most Garou. It is a tiny voice of isd . Z J corruption that whispers that our pleasure is more impora tant than healing another’s pain. This quickly turns into , t p sadism.than seeingIt tellsto usitthatthat meetingothers ourcan whimsmeet istheir moreneeds.importantThis Y oe , Empathy is the single greatest gift of the Goddess. It is all a ; Vw quickly turns to closing the heart, and the death ofempathy. oefa , UACy : thatThe connects Defiler us to taints one children another, through and thereby, deep inner to the wounds, divine. ae . and closes off their empathy. It makes sadists, masochists and a | child-molesters; sociopaths who seem beyond cure of rehaos : bilitation. The Defiler touches more children every year, | which makes good people close their hearts from fear, and in oad turn kills empathy and produces more sociopaths. || levelThis ofsociopathsis the most reacheslikely ascenariocritical mass,for the andApocalypse: overtakes thethe | PoAKN rate at which the world produces good people. There will be | ’ "94 no need to destroy the world when all the hearts of human: kind are closed to one another and Gaia. , éater-of-Soul5 of anyThe onlylove. We possible must cure do asis tothe love those greatest humans who are bade unworthyus do. FA : We must do what no civilization has yet accomplished. We Y This aspect of the Wyrm embodies voracious over-con- —_must do the impossible. Ad sumption and greed. It spreads fear of scarcity, and makes We must love our enemies. Only then are we free. ; humans tremble at the thought of want; want of food, of _ ofapproval, us are free ofrespect, from its of icylove. touch. It is terror personified, and none Dampres , When you fear that love will not last, or that no one cares These corrupt beings have lost their connection to Gaia, “ist for you, or that you are alone in a hateful world, the Eaterand have no biological empathy to their fellow creatures. We of-Souls is eating a hole in your spirit. Only by filling your This has locked them into a degenerating spiral in which = heart with the love of the Goddess and returning that love they are doomed to lose their humanity. Only through oe to the world can you banish this dread beast. And then the _ artifice and contrivance of moral acts can they maintain 8 world shall magically transform before your eyes to a loving their humanity. These damned souls feel no true joy, no “| home overflowing with love and respect and friends who _living connection to Gaia’s radiance, and cannot help . careLovefor you.the world. Trust in life and the process- of life, and othersand sistersfromhavea sensebeenof love.successfulHowever,in helpingsome ofthem our brothersregain a you shall be free. small measure of humane behavior, proving again that no “asl soul is so damned that the loving Gaia will not help it. eee : “| Béast-of-War Before the arrival ankh was a symbol of the most holy force: the union sacred of vampires in the OldWorld cities, the L : | This is the militant face of the Wyrm. This face stirs rage of the manand woman, The female oval surmounts the male | and anger in humans and Garou. It exhorts us to lash out and staff, joined at the crossbar. After the vampires arrived, they | destroy our enemies, or anyone who aggrieves us. It builds ont perverted this holy symbol to signify undeath and vampiric ! : the fear engendered by the Eater-of-Souls, and causes the parasitism. (Though some among us maintain that vampires fearful to strike out in blind panic. It is hate personified. cling to the ankh to find some hope of redemption, and When you feel a blinding rage, and desire to crush your eventual return to Gaia.) ee ry oppressor beneath your powerful fists, the Beast-of-War is - Chapter Three: The Whole of the Goddess 45 
-
-- 
-
-: ; 
-
-**
-
-**
-
-**
 
 reality with their beliefs, but they will not choose to live in _a world of love. 
 
@@ -1134,63 +666,33 @@ and then be very, very careful. The rules of the world do not However, there are
 
 Chapter Three: The Whole of the Goddess 47 
 
-**
-
 yy A 
 
 mee Og a ie : Pe fe a ees 4 os 2 gh yes BT Del Regge UA OB se ms ns bs é wt ‘S$ 2 Pe Ee _ agech lay LTR RS ERED I GREE eeeeB | es Sie ummm 5 3in SeS oan RESON “| ; Canstthou bind the unicorn with his band in the furrow? or will | he harrow the valleys after thee? Wilt thou trust him, because his strength is so great? or wilt thou leave thy labor to him? Wilt thou believe him? ! — Job 39:9-12 ( ( ribal Weaknesses witnesses a +5 on the Delirium Chart (the worst reaction is “Conciliatory”). ! . . 7' (Optional) decideAs withthat allthereweaknesses,are some situationshowever, wt **h** eereStorytellerthey are cannot fon An optional rule was introduced in the first Werewolf effective. Thus, a Child of Gaia should never depend on this, Ss Tribebook: tribal weaknesses. These are quirks each mem- __ since she could, in certain extreme situations, still send a ber of a particular tribe possesses, usually due to the socialor | humans into paroxysms of[fear.][ Remember][ also][that][it][ will][ be] wet even genetic nature of the tribe. Weaknesses should not _ harder for a Child of Gaia to hide behind the Veil, and that os, : always be enforced. There are some situations where a Bone werewolf hunters may have an easier time tracking her down 7 Gnawer may not suffer a higher difficulty on Social rolls. | through witnesses to her occasional rampages. These situations may be rare, but they can occur. For ° instance, Black Furies suffer from inborn anger against men, l ts but a Black Fury may not feel anger toward a man with whom _ she has built a trusting relationship. ¢ Grandmother’s Touch (Level Two) — This Gift is Ssa2S ’ It is; up; to theae Storyteller to enforce these rules when| an Garouexactlyxactly canlikeli useMotherit to heal s, Touch herself(level as wellonase others.Theurge), Thisbut Gift thise é appropriate situation occurs in the game. After all, player taught by aUni rit maybe unwilling to remind the Storyteller that her Uktena’s augne by a nicorn spit! , _ _ curiosity will get her into trouble. . Spellbinding Oration (Level Two) — Similar to PerChildren of Gaia Weakness - — suasionto be persuasive (level one Homid),when dealing this Gift allows awith others. ChildThe of GaiaGarou’s statements will take on an air of extra meaning and credibil; Weak Veil: Witnesses at +5 on Delirium Chart _ ity. Those hearing him are likely to agree with him. This Gift AL yy The Children of Gaia do not cause as severe a Delirium _ is taught by a Unicorn spirit. ie reaction in humans who see them in Crinos form. Give all 
 
 Appendix One: Powers 
 
-49 
-
-**
-
-**
-
 yA 
 
 4 System: This rite prevents participants from frenzyingon €nyd Cime Rite (Mystic Rite) a each other in ritual combat. In order for the rite to be ~ Level Fi oY effective, both combatants must take part in the rite. The eve . Ive - : combat must also be a Duel — the rite has no effect on This rite takes three exhausting days. The tite participants a Theregularritemaster’s combat. Thisdifficultyrite ends(Charisma after combat+ Rituali **s** cr **o** ll)ncluded.isthe — ™ust"1dance completed,and chantthe participants continuously the know entire whether time. theirWhen recentthe pant (not the ritemaster) must spend one Willpower point. They also get a sense of how recent actions taken by the entire LIF highest Rage among the Garou present. Each Duel partici: actionsGarou Nation have made have theaffected Apocalypsethe Apocalypse. more imminent or less s0. | Rite of the Parted Deil (Mystic RIte) The Children of Gaia believe that the world will not be oy Level Five destroyed in the Apocalypse, but changed into a new form based bie Taran ; . on the methods and tactics of those who triumph in the great He When this ritual is performed three times on three differnee ; | . : ae . battle. This rite gives them a chance to see what that world will be Lf ent occasions upon asubject, the Veil is permanently pierced, 1. ; : “| . like if the Apocalypse were to come with the Garou in their | and the target (most often human, although sometimes a : ; . wolf) isaimmune to the Deliriuma forever, and the Curse is. present_ state. Many such; rites show: the Wyrm triumphing over a rie oe divided Garou nation. Some rites have shown the Garou likewise lessened. This rite is only performed after the ; . ; an wal Children: of Gaia make an exhaustive study of the target and triumphing, but recreating; the world; as a place ofhatred, division a : La: . and betrayal — reflecting the tactics that the Garou would use in aor determine his or her suitability. It is often done for mates : a . . cae ; _, . . . prosecuting such a war. This direct, first hand experience of the ara who wish to join the Children of Gaia as allies and become . . eee _ . outcome of the Apocalypse stirs the Children of Gaia to find new a part of the Kinfolk network. solutions a4reawey four),Alt tribaleldershough thisis rite warnrite is is simi thatsimilar arto itmustneverbeusedagainsttheto RendingMeneng ofthe“Veil ( (level ||...The Children1. of Gaia have; invited, other tribes. to participate, rson’s will. It i t used to terrify an unsuspecting or in this rite, but few accept. Those who doso often become converts Tee eee noe Use mass 6 to the Children’s way of thinking on Apocalypse matters. The . : Wyrm-tainted human, but to welcome a newcomer to the - : family of Kinfolk Children ofGaia try to earn great favors from the leaders ofother | yorninox: tribes, sotheycandemandthat those leaders participate in the End ystem? otandard for Niystical rites. Time Rite when it is time for them to return the favor. The | System: Standard for Mystical ri y ee, . Children want all the tribes to learn the secrets ofthe Apocalypse. | a ae d ee eee f onal y of, aes Oe nae oat “ek, ; “ise aN a ae ee pope cefes . ve a ee ; eo ea > - | es ee ie ne > . =a ne “ : ‘tall oe . ‘ 5 A = . Ye — ‘ _ ° : ‘ i? 4 i ay ks “i 5 = - : > ae y i =, 
 
-**
-
 Traits: Packs gain three additional dice when using any The shirt adds two extra soak dice. If the Child of Gaia does Gift involving persuasion and learn the Gifts Wisdom of the _notstrike his foe, but only tries tosubdue him, the shirt adds four Ancient Ways and Dreamspeak. They can use Dreamspeak _soakdice. Ifthe Child ofGaia refuses to fight back atall, the shirt | to give Gaian visions to influential humans. . adds five soak dice. The shirt also negates damage from the level Ban: The Trinity requires that its children promote _ five Get of Fenris Gift Fenris’ Bite, the level four ShadL **o** rdsw peace, mising individuality. Foaming Fury, Crawling Poison, and Balefire. yy seek justice, and build communities without comproGift Open Wounds, and the Black Spiral Dancer Gifts of Appendix One: Powers 53 ELL Ps ET ne 
-
-53 
 
 s 
 
-**
-
-, a 
-
 w Y/ 
-
-: | 
 
 7 a pa 
 
 ies aeee ee le eae! Lert Pr ee eure: BE ae ag Mee ES Oo Rg! le Meg “: TF ee I on 
 
-**
-
-**
-
-**
-
 I don’t know Who — or what — put the question, I don’t know when it was put. I don’t even remember answering. But at some moment I did answer Yes to Someone — or Something — andthat, fromtherefore,that hourmyIlife,was certainin self-surrender, that existencehad ais meaningfulgoal. and — Dag Hammarskjéld (1905-61), Swedish statesman, Secretary-General of U.N. 
 
 Children of Gaia are a widely varied group, ranging from contend with their own souls as often as they contend with delicate dreamers to arrogant killers. But most work tostrike the minions of the Wyrm.They strive in good faith to answer a balance between pacifist ideals and the warrior creed. In an Gaia’s call, knowing that the world will be remade in the age when all life hangs in the balance, the Children of Gaia —_ image of the tactics they use to fight the Apocalypse. 
 
-i. 
-
 ,Appendix Two: Children of Gaia Templates 
 
 ## aman 
-
-55 
-
-**
 
 wo 
 
@@ -1216,15 +718,11 @@ yy o
 
 ooh Quote: Do you disdain me for the accident of my birth? Do you use the lofty _ j; y perch afforded by the accident of your birth to judge and condemn? Then “pure | J an Ne blood” must not make for a pure heart. The splendor of Gaia’s love can be LH, ve MN found in the most base-born, even as it can be lacking in even the most high. “4 LZ Ny ! lei) ‘l . _ yourPrelude: real parents You tried were brought to drown to you. theYou Childrendon’t know of Gaiatheir shortly tribes, afterand / . C ait you don’t care. The Children care for you as their own, and you desire 23 KS a \ no other home. a ia . ey You were scorned by visitors from other tribes, but the Children of j / * ~. Gaia defended you. You began to stand out among all metis in your sept, WW bed, _ and showed special gifts. The Unicorn marked you as one ofher own; you 7 | : a bear asingle horn on your brow. You learned to heal the physical wounds 4 ow~ thatones youras well. tribemates receivedYou remedy wounds, and ‘yousalve havesorrows, tried toand heal therestore emotionalspirits. oe “OO h, Concept: You are the perfect balance, the perfect bridge. As me i eee Philodox, you are the balance between passion Ay) ==> and wisdom. Asa Child of Gaia, you are a bridge Se SS N org \ 4E meet NN ¢ | YY /; between the tribes, able to mediate for all of S| p / ty p — them. As a metis, you are a bridge 4 “f between human and wolf, brought up : a 4 li}7 ~—P A | amongwolf andthe yet neither. Garou, both You human use your and _ GP) if 4, CZ wy special station to bring fairness and wy UL {f & j Ale of Garou society, but you also felt the | . wy : — 7, justice to all Garou. You felt the scorn | Aa love of Gaia and her Children. Gaia y Z has bestowed her greatest gifts upon you, Z(E a SS ij { (i and you will prove worthy of Her faith. You will heal oo (ZI wf, (ws A \ Her children. Z N \ NZ « Roleplaying Hints: Speak softly but authoritatively. You ( NWN are confident in yourself and your abilities, and secure in your \SSs W" thatbeliefs. Gaia You and teachthe Garou by example can be morehealed, thanbut by you words.are not Youafraid knowto take strong action against those who deserve to be stopped, even if i they are other Garou. foe Metis Disfigurement: Unicorn Horn ae Equipment: Walking staff, bandages, first aid kit. 
 
-**
-
 ## SQ. 
 
 y c 
 
 ko Cucosen 03Cus ~C. - Name: Breed: Metis Pack Name: | Player: Auspice: Philodox Pack Totem: a Chronicle: Camp: Demeter’s Daughter Concept: Anodyne A 7 Physical Social Mental an Strength e@000 Charisma e@e000 Perception ry Y Yere) - Stamina @e@ee0 = Appearance _ eecoo)3=—sC Wits00 = Calents | Skills Knowledge os : Alertness e@e000 Animal Ken, 00000 Computer ____.00000 7 ot Athletics e0000 Drive o00000 Enigmas. e@e@e@00 os Brawl e0e@e00 Etiquette 00000 Investigation 00000 se] / Dodge 0000 Firearms________oo000 Law _____@0000 . Empathy e@ee@00 Melee e@e00o0 Linguistics___ ig 0000 = Expression, 00000 Leadership e@e00o Medicine e@000 | Streetwise 00000 Stealth 00000 Rituals PYY Tele) : Subterfuge 00000 Survival e0000 Science.00000 | Backgrounds Gifts Gifts | y | Mentor @@000 Sense Wyrm ce c | Past Life @e0@00 Truth of Gaia ee 00000 Mother’s Touch a 00000 Resist Fain a | Glory Bruised Oo | Co000000000 &@20000000 Hurt = | OOOOOOOUOOO BOOUOOOUOUOO inured -1 - jure -] Sg e@e5e0e0000000 4 Gnosis Wounded 2 U ~ HOOUOUNOOOO eeevov00000 Maes 2 5 L | ri : Wis nooooooooo Ieeatated O | me Willpower ame mmm Weakness mow : wenn Rank ines © @ @OBB00000 WEAK VEIL: - yy Noocoococoed WITNESSES DELERIUM CHART 2 , AT +5 ON Attributes: 7/5/3 Abilities: 13/9/5 Gifts: 1 Level One from breed, auspice and tribe; Backgrounds: 5; Freebie Points: 15 (7/5/2/1) 
-
-**
 
 L 
 
@@ -1236,8 +734,6 @@ Physical Social — Mental Strength ee000 Charisma @0e0e00 Perception____——�
 
 A Y f 
 
-**
-
 A 
 
 tos aS oi : 
@@ -1245,8 +741,6 @@ tos aS oi :
 oe Be vo fe] sy _ | | m4 ; | 
 
 | 
-
-y 4 
 
 oS 
 
@@ -1256,21 +750,13 @@ Breed: Homid Pack Name: Auspice: Ahroun Pack Totem: Camp: Imminent Strike Concep
 
 Physical Social Strength ec3eeo = Charisma @e000 Dexterity ry yt ie) Manipulation, @0000 Stamina @0000 = Appearance eeooo”)=s« Calents Skills Alertness ee0e00 Animal Ken 00000 Athletics @0000 Drive _______ @@000 Brawl ececee0 Etiquette 00000 Dodge eeooo ~‘Firearms____.-___eo000 Empathy_ 00000 Melee___ ee00 Expression, 00000 Leadership e@e000 Intimidation e@000 Performance 00000 Streetwise PYY Tete) Stealth, @0000 Subterfuge____ sgggg Survival gga0 Backgrounds Gifts Contacts @e@000 Smell of Man Kinfolk @0000 Razor Claws Pure Breed @@000 Resist Fain 00000 00000 
 
-**
-
 ee 
-
-**
 
 lA 
 
 wk 
 
-**
-
 a Siouri Sabitu Dazzled, the great king chose life over undeath. He could not Se bring himself to give up the pleasures of the living flesh for wo In the early days of mankind, Children of Gaia heroes all the power in the world. He rejected the vampires, and were in constant contact with human healers. They all organized the humans against the outraged Leeches. : prayedMother.together,Siduri Sabituand receivedcreateddirectan extensiverevelationnetworkfrom theof totalThiscontrol turn ofofeventsthe first preventedcity, and thegave vampiresthe Garou from gainingtime to _ yw priestesses to carry her words to the land, and warn people of = tegroup. Many generations later, the Leeches caused the : the corrupting influence of vampiresand Wyrm minions. At downfall of this kingdom. But an organized anti-vampire that time, the Leeches preyed on the locals with impunity, _ Tesistance was born in humans that long outlasted the city. _ and were gaining political control of Sumeria. Due to Siduri’s actions, humans have an inborn suspicion of eS The Garou clamored for the heads of any kings who sided vampires that carries even into the modern era of science _ with the vampires. They launched an all-out war against the and the vampiric Masquerade. “|+ Leechesing civilizations. and their puppets,Siduri knew who werethat defilingthe Garou the burgeon-would be asper Coul°ngton _a doomedcan manufacture to lose theirlegionswar againstof undeadthe vampires,overnight.sinceShe Leechesfeared Jasper Coviovington was a wealthyIthy EnelishEnglishman bborn at theh . the arrival of the Apocalypse advent of the Enlightenment. He was the child of pampered a She counseled that the Garou instead work to influence English nobility, who were well-connected Children ofGaia ae : the mortal kings. , The Garou refused, » saying thatSay they could Kinfolk. His parents taught him that fighting Wyrm-beasts - _, was the least effective way to create change. After the taste tes, never match the serpentine subtlety of vampires in statef blood lost ; ity. h disi di b ah craft. Besides, what had they to offer a king who has been OF DICOR OSE HES novelty, NE Brew csinterested in COMPAL. 4 offered immortality and absolute power? Siduri reproved What excited him was not warfare, but working behind | ; ; vo? the scenes to link Gaian love to man’s practical life and . them, saying that they had fallen into their enemies’ game. a , ~ What the Garou had to offer was better than the Leeches’ political rule. Jasper embraced this cause, and became an gift influential power behind the burgeoning Age of EnlightenShe proved this by showering King Gilgamesh with all ment. the pleasures of life in the most delectable manner possible. TS om oy CA NAS oY (ee \ J : . SSN a Pao VPA SAT ee | ie ey oP eeaee[sl] ze SEsat ; : oe Vm: —_a ail risie 2Came os Pop hall Piaag ae‘G LO ; fe rast,ie eI ryan ces wiam oat a = , SOE ni \g 4 : % j ie ad : - ) a oo tas, : ere FONE GS See ..,,0° 3 eda Beaewele } f —_ é. , ~ b a gal os wp \ ~ _ . ac ~f am . ss . D a , Ga J 4 ASS KV we Wy 
-
-**
 
 Y r 
 
@@ -1282,29 +768,9 @@ Y r
 
 | coo0sn0000 0000000000 Bruised _ HOoOouoOoooo OoOoOoOooOoooo or njur -] - OOOUOOOOUOOU0 Mauled 2 OoO00O0 000000 Crippled if~§) Wisdom ooooooo0ooOo evriri med-; doacedeeds n=_Willpower ae meme“aLWeakness“aLWeaknessWeakness Paine a Rank 0000000000 WEAK VEIL: A Noocoogodd WITNESSES AT +5 AT +5 +5 ON ue DELERIUM CHART 3 Attributes: 7/5/3 Abilities: 13/9/5 Gifts: 1 Level One from breed, auspice and tribe; Backgrounds: 5; Freebie Points: 15 (7/5/2/1) 
 
-**
-
-r | 
-
-= ia | “ || a | 
-
-. 
-
-: 
-
-7 
-
-4 
-
-4 
-
-; 
-
 | has Stgmina( +2) . Dexterity (+2). Dextéfity.(+2) s,exterity (+2) A "Nev Are (Oa Ges ON Sn & Clisiige Appeatance\(-1)___ Stamina(#3) _ee — Seen eo Marlipiation (-1)__ AppearancéO »,Manipulation(¢3).* Manipulaeigm@a), | ae HEN oe VE ee, ieeg4 a ens Le Manipulation (-3)_ 40) a . 7 os © INCITEDELERIUM #=" ee | nan HUM:ANS Zz 
 
 OOOOO Item: [JDedicated Level Gnosis OOOOO Power. OOOOO Item: [1Dedicated Level Gnosis 0000 Power OOO0OOO Item: []Dedicated Level Gnosis en ©: 0101018) Power OO0OO0OO Item: [Dedicated Level Gnosis CCN OO Power 00000 —CLCMOOOOO —CCMOOOOO N aCLCLCMOOOOO \ _ 0000 HH SH 00000, Q—._—-aY _ 0000 00000 ——§ ____— 00000 ee 
-
-**
 
 TOTALSPENT: Spent On: 
 
@@ -1315,8 +781,6 @@ TOTALSPENT: Spent On:
 | 
 
 on 
-
-; ; 
 
 ## AGN 
 

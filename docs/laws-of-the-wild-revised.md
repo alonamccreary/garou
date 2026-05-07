@@ -1,13 +1,4 @@
-**
-**
 
-**
-**
-## 
-
-## 
-
-## 
 
 ## 
 
@@ -114,25 +105,15 @@
 ## 
 
 ## 
-
-**
-## 
-
-## 
-
-**
 
 ## 
 
 ## 
 
-**
 ## 
 
 ## 
 
-**
-**
 ## 
 
 ## 
@@ -401,7 +382,6 @@
 
 ## 
 
-**
 ## 
 
 |oyed with<br>ciers and|this sort of pull. CEOs, bankers, stockbrokers, bank tellers, yes-men,<br>loan agents are found among such work.|
@@ -442,12 +422,6 @@
 |4|Completely rewrite medical records|
 ||Abuse grants for personal use($250)|
 ||Have minor medical research performed on a subject|
-
-**
-## 
-
-**
-## 
 
 **
 |cost|Effect|
@@ -1360,9 +1334,6 @@
 
 ## 
 
-## 
-
-**
 ## 
 
 ## 

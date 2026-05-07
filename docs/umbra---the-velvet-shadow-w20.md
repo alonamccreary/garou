@@ -1,6 +1,4 @@
-**
-**
-## Credits 
+
 
 **Authors:** N. Conte, Danielle Harper, David Hill, Jeremy Kostiew, Chris Shaffer, Leath Sheales, Filamena Young, Eric Zawadzki 
 
@@ -235,8 +233,6 @@ _She grinned. “Welcome home.”_
 
 Just on the other side of perception lies the Penumbra. For Garou, it is a missing piece of the world. They keenly feel its absence while they walk in the land of flesh and blood. Gaia’s children yearn for the spirit world. It is their birthright, one half of their home separated from them by a barrier of spiritual calcification: the Gauntlet. Erected in prehistory by a cosmic force of stasis, the Gauntlet divides the realms of flesh and spirit and would forever keep them apart. The Garou aren’t so easily dissuaded. 
 
-_**PENUMBRA**_ 
-
 By their dual heritage of flesh and spirit, werewolves walk in both worlds. The Gauntlet makes transition between realms difficult but not impossible. In places where it is thin, such as the rare unspoiled wilds and caerns home to Garou septs, packs cross over frequently. The process is much more taxing in the hearts of smog-choked cities and industrial centers where the Gauntlet is strong. Weaver-spirits cast their webs over the wall between worlds and strengthen the Gauntlet, threatening to completely seal away some regions. 
 
 Garou and other Gaian creatures fight this calcification tooth and claw. As the Apocalypse draws nigh, perhaps only by unifying both sides of the world can they prevent the destruction of reality. Certainly the warriors of Gaia grow weaker when cut off from their spiritual halves, just as the world itself does. 
@@ -336,8 +332,6 @@ While car-spirits exist in the umbra, the air is much cleaner, a change any were
 
 The oldest vehicles, like beat-up city buses driven long past their prime, and the most important, such as first-class airliners carrying the business world’s elite, cast shadows in the Penumbra. The plane reflections rumble in the distant sky as they fly overhead, sometimes soaring through starry nights and the misty lowest riches of Near Umbral realms. Passengers in the real world cannot see the strange spiritual worlds whose gossamer threads they part in their flight, but 
 
-_**PENUMBRA**_ 
-
 the dreams of sleepers and the thoughts of those staring out the window drift along bizarre paths. 
 
 Ambient lighting and the spiritual reflections of lit windows can only make up so much for the lack of a city’s light pollution. Fortunately, the Garou have their other senses to rely upon when the Penumbral sun falls. The stars seem dimmer here than in the wilds, perhaps a reflection of the gases cast upward by cities. Alleys and unlit streets plunge into deep shadow under nightfall. Even the sharpest eyes barely catch the glint of starlight reflecting off the multifaceted eyes of Weaver-spirits, or small things wriggling in the shadows. 
@@ -392,16 +386,11 @@ The spiritual reflection of a region’s history allows Garou to travel into the
 
 Garou have some natural advantages in traveling the Penumbra. They enjoy these advantages in the material world as well, but in the Penumbra, they have nothing to fear from human witnesses, Delirium — or other problems like highways and concrete walls. In wolf form, the Garou can run for hours and cover much greater distances than any human on foot. They’re built to run, guided by keen senses and a knowledge of the spirit world. Even in Penum- 
 
-_**PENUMBRA**_ 
-
 bral cities, they have less traffic and fewer buildings to get in their way. The greatest impediments to travel in the city are the omnipresent webs. 
 
 Spirits can help Garou traverse the Penumbra, as well. Many of them know the realm more intimately than werewolves do, and often have magic or knowledge of hidden paths to aid them in their travels. Packs greatly prize totems possessing such knowledge for the Penumbral superiority it brings. Some of them may remember a time from before humanity ever erected a single shelter in that place, others recall the glory days of ancient battles, caerns long ago scattered to dust, or the resting places of powerful fetishes. Some spirits leave _airts_ — spirit trails that packs may follow. Sometimes the pack might find the spirit that left the trail and convince it to help them find their destination or provide information. 
 
 Logistical concerns remain a factor in Penumbral travel, just as they would in the physical world. Starvation is a risk because food is not as readily available. Animal spirits are usually less numerous than their mortal counterparts and more difficult to catch. Fruits and other wild edibles usually only appear in the reflections of orchards, oases, and longstanding groves. Even in great quantities they do little to fill the bellies of a hungry pack. The ephemeral “flesh” of animal spirits _can_ sustain hunters. Spirits of prey animals are especially nourishing. Water is prevalent but often dangerous. Shadows of rivers can be much fiercer in the Penumbra, perhaps reflecting a time when the river was younger and faster. The spirits of water-dwelling creatures are some of the most ancient and hungry and care little for most land-dwellers’ concerns. Unwary drinkers can find themselves caught like wildebeest in a crocodile’s jaws. Gaian shapeshifters find it much easier to survive in the Umbra, owing to their many natural gifts. Their own Gnosis — a deep connection to the very spiritual life-force of the world — sustains them in the realm of spirits even when food is scarce. The mystical fuel within them slowly burns away to replace the nutrients missing from a growling belly. This is a natural reflex, and something every shapeshifter instinctively knows upon reaching the Penumbra. The rate at which travelers consume Gnosis in this manner depends on their activity level. A small amount can sustain a werewolf for a whole week if her travel is of moderate pace and activity. So leisurely a journey is a rarity in these war-torn times, but it does happen. If a pack must hide out for days or weeks from an enemy, or they await some event to transpire, they will not starve if they keep activity to a minimum. Vigorous activities, like frequent combat, hunting potent spirits or marching through a blizzard on the trail of a Black Spiral pack, burns energy much faster. Larger shapeshifters such as the Gurahl and some Mokolé, must consume more energy to fuel their bodies. By contrast, the Rokea tend to require 
-
-**
-## _**GNOSIS AS FOOD**_ 
 
 If a shapeshifter must depend on Gnosis in place of food, she burns through it at the following rates: 
 
@@ -497,8 +486,6 @@ Epiphs exist as purified, solitary conceptual experiences. They’re ideas becom
 
 If that sounds complicated, it’s because it is. As three-dimensional, fleshy creatures with five senses can’t entirely fathom what a given Epiph truly is. Who would want to visit somewhere in which the rules make no sense, where 
 
-_**PENUMBRA**_ 
-
 the visitor’s body doesn’t work the way he expects it to, and where exactly one thing exists? Every Epiph stands on its own merit. Those that visit Epiphs successfully soon find their understanding in great demand, it isn’t a job that any werewolf can jump into; it requires a fundamental understanding of raw, conceptual reality. 
 
 Finding an Epiph can be as much a struggle as understanding one; a traveler has to find a pure example of a concept then hope that it has bled over into the Penumbra. To find an Epiph of sex, he’d have to find the single place on Earth that most embodies “sex” as a concept. Needless to say, many werewolves balk at the challenge. 
@@ -577,8 +564,6 @@ Hellholes typically manifest analogous to the filthiest, most hopeless examples 
 
 One of the largest Hellholes exists far out in the New Mexico deserts. The United States government built a repository deep under the sands of Yucca Mountain, in order to store transuranic radioactive waste from reactors and tests. Nobody lives for miles outside the repository, and the cavern goes for miles, deep within the mountain. 
 
-_**PENUMBRA**_ 
-
 **
 At its heart rests long-term storage containers for the waste. At that very point, across the Gauntlet, is a Hellhole like few others. At its level of isolation, the monsters within breed without concern. In places, they’re birthed faster than they can eat, so the monsters pile up, devouring one another and struggling for every possible inch of the realm. Nearby Uktena know damn well this Hellhole exists, but they also know the risks of trying to destroy it. The bestcase scenario would be a full annihilation of all Garou involved. The more likely outcome would look more like the corruption of the White Howlers on a smaller scale. 
 
@@ -608,9 +593,6 @@ Trods look almost like real world paths, clearings, lagoons, or whatever. But th
 
 Those in the know call these strange methods of passage “keys.” Nobody can pass through without either a key, an escort — or breaking down the door. The fae have no trouble passing through Trods. They instinctually know just how to make it through, and they can escort whomever they please. They can also withdraw the benefits of their escort at a moment’s notice. This isn’t something they advertise. More than once, fairies have escorted Garou into traps, then withdrawn their escorts, leaving them ready for a hunting party of other fae to harrow and hunt. Sometimes, this is done to settle a vendetta. Usually, it’s done for the thrill of the hunt. While the fair folk don’t need to use the proper key to travel through a Trod, they do know it, and can share it if they’re so inclined. Since Trods can connect far-off places inaccessible to even Moon Bridges, they don’t give this information away cheap. 
 
-**
-## _**REND TROD**_ 
-
 Level Three Mystic Rite 
 
 This rite allows the Garou to literally rip into the fabric of a Trod’s reality. She takes her claws to any solid object within the Trod, and she slowly tears through it. She continues to rip and tear through that object, and any number of others until she’s torn up a quarter mile of the Trod in total, at which point the key vanishes for a year and a day, and anyone can pass through. 
@@ -625,8 +607,6 @@ Rather than waste their time with the mercurial laws of the fey, some Garou know
 Trods often look similar to their real-world counterparts, but sometimes they keep to an older, often dated or even demolished appearance. In the real world, a circle of standing stones may have long since fallen, weathered, and sunken into the dirt. In the Trod, the circle stands painted and vibrant, with moss teasing at its toes and its crisp edges shine in the golden sun. 
 
 For historians, these sorts of Trods are invaluable. Stories are one thing, but living them is a whole different layer of knowledge. By seeing and touching long-dead things the way they were when they stood on the Earth, a historian can garner an insight with only her own biases. Unfortunately for the would-be relic hunter, anything removed from a Trod quickly breaks down into cobwebs, dust, teeth, and other assorted strangeness within minutes. Reality doesn’t welcome the stuff of the fae. Even if a Garou takes a camera into the Trod and photographs what she finds, the photograph will garble and warp outside the Trod’s bounds. The few Garou 
-
-_**PENUMBRA**_ 
 
 who have used rites, Gifts, and other spiritual tricks to preserve the remnants of a Trod find little luck. Everything breaks down. Awful coincidences happen nearby. Plants die. People have accidents. Homes catch fire. 
 
@@ -702,8 +682,6 @@ Spirits encountered in the Astral Penumbra are strange, even for Epiphlings. The
 
 Curiosi are common as well. Many drift in the sky above learning institutions in Slumber, awakened when enough thinkers provide them with power and purpose. Conceptual spirits embody nearly any concept imaginable in the Astral Umbra. Werewolves may seek them out in order to learn powerful Gifts and find new perspectives on 
 
-_**PENUMBRA**_ 
-
 **
 the war. Theurges are especially fond of these spirits, and Stargazer Theurges most of all. Many nights have borne witness to long, strange conversations between Garou mystic and Epiphling, and it is not so uncommon to see Curiosi flitting about such a meeting, endlessly interested in what transpires. 
 
@@ -748,8 +726,6 @@ A rare bastion of tranquility in the web-strewn Penumbral city, the park is home
 ## Moors Bottling Company Chemical Waste Plant 
 
 Few things are more horrifying than this chemical plant. Its toxic byproducts seep into nearby soil, rivers, and belch black into the sky. In the material world, it is a massive facility with state of the art machinery, fenced in and well-guarded. It lies just outside city limits, near the system of rivers that feeds into the sound. In the Penumbra, it has risen into a fortress of black, rusted 
-
-_**PENUMBRA**_ 
 
 metal and eerie green glows. Its fences are sheets of stretched pelts, where the heads of skinned creatures still shriek in agony. Spires of smokestacks jut from the ruined earth like the fangs of a half-buried monster. Screaming Banes circle overhead and crawl over the area like angry ants. The bellows of some monstrous _thing_ rumble from deep within the plant, a terrible Wyrmbeast whose very presence seems to leech life from the surrounding area. The sky is black with foul smoke; shapes form in the thick columns of smoke and look upon outsiders with malice. 
 
@@ -798,8 +774,6 @@ It’s not haunted, but spirits play the role of the haunting dead. They fulfill
 
 On the other side of things, Garou call it the Ghost Island because it’s a hotbed of supernatural activity. The island has all manner of Umbral manifestations. Areas of the tiny island 
 
-_**PENUMBRA**_ 
-
 **
 ## _**TRAVERSING HASHIMA**_ 
 
@@ -841,9 +815,6 @@ While most of Hashima’s residents lived in massive apartments, the management 
 visitor would have to know what to look for if she wanted to find evidence of these old houses. 
 
 This place is now the site of a Glen. In the Umbra, thousands of tight-knit tree spirits formed a solid wall around the clearing. Inside, the Wyld has taken over. Waterfalls flow in every direction, rushing through patches of jungle and swamp that roll over one another. The entire area on the outside appears no more than one hundred yards in diameter, but inside the space goes on for nearly fifty miles. No two of those miles look like they belong next to one another. A curious side effect of the island is that all the thousands of animal spirits within are hybrid creatures with the features of at least four different beasts. Cats prowl with pincers ready, worms shriek and slither to their holes, and scorpions howl at the moon. 
-
-**
-_**PENUMBRA**_ 
 
 **
 A place beyond space, the Near Umbra is simultaneously far from the Penumbra and as close as a shadow. The strange paths between the two often make sense in metaphor even though the evidence of a werewolf’s senses tells her otherwise. Werewolves can travel to the Aetherial Realm via the Penumbral skies, climb out of Webs into the CyberRealm, or open an otherwise unassuming doorway into the misty strangeness of the Near Umbra between the Realms. 
@@ -978,9 +949,6 @@ The Weaver’s Pattern Web crosses all throughout the Umbra. It was the Weaver�
 Would-be Web walkers face difficulties even knowing where they’re going. The Theurge Gift: Web Walker ( **W20** 
 
 _**NEAR UMBRA**_ 
-
-**
-## _**WALKING THE WEB**_ 
 
 The dangers are significant for using the Pattern Web without the Web Walker Gift. Those werewolves who try discover that getting lost is a distinct possibility, even when trying to remember the way they came — navigating requires an Intelligence + Engimas roll, difficulty 7. Avoiding dangers or finding a specific part of the Pattern Web may push the difficulty as high as 9. 
 
@@ -1451,9 +1419,6 @@ Even the Weaver’s playground struggles to keep up with human advancement. The 
 
 _**NEAR UMBRA**_ 
 
-**
-## _**LIQUID ASSETS**_ 
-
 As the Weaver is as much about commerce as technology, the CyberRealm has its own deeply-ingrained currency. The currency, called “juice,” takes the form of liquefied Gnosis serving as literal fuel for machines or metaphorical fuel for spirits and shapeshifters. 
 
 Juice is the lifeblood of the Realm and its inhabitants. The most powerful entities in the CyberRealm have the most juice while on the street levels the denizens fight and barter and steal for what they can get. Because their own bodies contain Gnosis, visiting shapeshifters quickly learn that anything or anyone they’ll meet has plans to acquire that juice one way or another. 
@@ -1470,9 +1435,6 @@ The CyberRealm is divided into three areas. The central area is Spider City, a t
 The CyberRealm is accessible through Moonlit Airts, but actually getting inside means getting past the realm’s Weaver-spirit guardians. Ananasi have a free pass, and can sometimes convince the guardians to let them bring guests. 
 
 Getting out is trickier. From the Micro Level, spending a Gnosis point at a juncture terminal allows for an Intelligence + Computer roll to get a shapeshifter into the Near Umbra (difficulty 8) or even the material world (difficulty 9). Rumors suggest paths out through the Pit, and some Weaver Constructs can smuggle shapeshifters out for a steep price. The Ratkin and some high-ranking Bone Gnawers 
-
-**
-## _**ID CARD**_ 
 
 Level 1, Gnosis 3 
 
@@ -1697,9 +1659,6 @@ The Coil appears to recognize the spark of the Wyld in shapeshifters and is less
 
 _**NEAR UMBRA**_ 
 
-**
-## _**THE COIL’S FAVOR**_ 
-
 If the pack has the (mis)fortune to encounter the Coil when they are on a quest within the Flux Realm and musters the audacity to request a boon from the spirit, handle it as a Flux Realm scene as normal, but the Wits + Enigmas roll after succeeding in the scene is at difficulty 9 instead of difficulty 8. However, each such successful Wits + Enigmas roll counts as two successes for the purpose of completing the pack’s goal rather than one. 
 
 **
@@ -1864,9 +1823,6 @@ The Thulan are however a careful people. Their constant, deadly clashes with the
 
 The Zarak-Ur were once a noble people who prized the glories of the hunt above all else. Spiritual agents of the Wyrm have subverted that pride, turning them into the scourge of Pangaea. They revere powerful Banes as totems, 
 
-**
-## _**STORY SEEDS**_ 
-
 • Through a Glen into the material world, a Thulan tribesman has come to seek a werewolf he dreamed would help his tribe. The Zarak-Ur have unearthed an ancient Bane who leads them to all-out war against their rivals. The loss of the Thulan would mean the Garou have few potential allies in Pangaea. 
 
 • A totem of a lost Changing Breed has woken from an age of slumber, in Pagaea’s Graveyard of the Lost. It’s cry has echoed through the membranes of the Umbra, and Theurges have dreamed about its advent. Unfortunately, the call has rattled the Weaver’s webs and stirred the interest of agents of the Wyrm. The characters must get to it first. 
@@ -1951,9 +1907,6 @@ No shortage of spirits find the Scar antithetical to their continued purpose. Co
 
 To meet Rat’s eventual goal of leaving the Scar a smoking ruin, the union Amalgamated Iron unites the lowest of the Garou Nation and Gaia’s plague-bearers. Though the Bone Gnawers and Ratkin have one of the least-troubled relationships of any Garou tribe and Changing Breed, the Scar has made that relationship a concrete necessity for either group to function. The continued cooperation has 
 
-**
-## _**STORY SEEDS**_ 
-
 • The characters’ sept becomes aware of a massive shipment of Wyrm fetishes leaving the Scar for Malfeas. The characters have to find out which train is carrying the awful cargo before it exits the Realm for the heart of the Wyrm’s domain. 
 
 • A Scar baron, fearing what will happen when his business in the Scar goes belly-up, has possessed a human host in the physical world. Now, a formerly benign non-profit organization is beginning to operate with the unscrupulous tactics of a dangerous corporate giant, using surprise and the good will they’d cultivated to cripple a number of multinational Glass Walker business fronts. They’re planning something huge, and can’t have werewolves looking over their shoulder. 
@@ -2014,9 +1967,6 @@ It’s a difficult journey to Summer Country, and difficult to remain. At best, 
 Summer Country is real, but it’s almost as much a mindset as an actual Realm. No path leads there, no guardians defend it, and no amount of travel will find its shores. To divine its location requires a strength of being few Garou posses, and a willingness to love thy enemy that few Garou could suffer. 
 
 Foremost in finding Summer Country is having wealth of respect for all things. The questing Garou must understand that everything has a place — even if she cannot 
-
-**
-## _**STORY SEEDS**_ 
 
 • A Theurge of some great Renown, missing for almost a decade, returns to his sept with urgent news of trouble in Summer Country. Unfortunately, in leaving the Realm the nature of that trouble is lost. However, the panic he feels has not diminished in the least. 
 
@@ -3404,8 +3354,6 @@ It wasn’t until the rise of the Internet that Flame Wars proliferated enough t
 
 (the difficulty is each target’s Willpower). On a success, the Charm has the following effect until the end of the scene: 
 
-**
-
 - **Image:** Flame Wars almost never manifest, but when they do they look as they do in the Umbra — a sphere of turbulent air a foot across. Those within ten yards of a Flame War can hear the whispered insinuations and too-dry sarcasm that gave it life. Those within ten feet plunge into a veritable hailstorm of raised voices that shout every imaginable form of insult and wield creative profanity like hammers on the inside of the skull. 
 
 ## Reroute 
@@ -3509,8 +3457,6 @@ These urban spirits form along busy, congested streets and highways. A single tr
 • **Charmed Journey:** The Gridlock Beetle rolls Gnosis at a Difficulty of (2 + the number of targets). Until the end of the scene, the target’s overland movement suffers no ordinary obstacles or delays. All the lights turn green. No one cuts her off in traffic and then drives under the speed limit. Even police will not stop her regardless of how far over the speed limit she is driving. This benefit extends to movement on foot or off-road, as well. The Jeep doesn’t get stuck in the mud. The frozen lake holds up under the traveler’s weight. Even in a crowd, bystanders never seem to get in her way as she pursues her target (or flees her pursuer). The target subtracts two from the difficulties of all relevant 
 
 Drive and Athletics rolls (minimum 3). 
-
-**
 
 **
 - **Road Rage:** The Gridlock Beetle rolls Rage at a Difficulty equal to the target’s Willpower. Until the end of the scene, countless small obstacles or minor delays hamper the target’s overland movement — a traffic jam, a flat tire, a stubbed toe, etc. The target adds two to the difficulties of all relevant Drive and Athletics rolls (maximum 9). Additionally, shapeshifters under the influence of this Charm use Rage less effectively. Reduce the total amount of Rage the target may spend in a single turn by one (to a minimum of zero) for as long as the Charm lasts. 
@@ -4212,9 +4158,6 @@ Becoming Kami is quickest for Her animals, but the seasons it requires may take 
 
 _**UMBRA: THE VELVET SHADOW**_ 
 
-**
-## _**INTERRUPTIONS**_ 
-
 Many forces benefit from preventing potential Kami from claiming their Gaia-given gift. The Weaver’s unwitting servants in Developmental Neogenics Amalgamated have a geological division dedicated to exhuming what they call Aberrant Cradles — budding Kami of the soil. DNA believes them to be a possible source of the different strains of lycanthropy. The Wyrm is so enraged by the existence of Gaia’s chosen that it blesses animal fomori with a knack for finding and devouring proto-Kami. Even the Wyld’s unpredictable agents can grow jealous of Kami they smell flowering. Gorgons have been known to end the threat to their sovereignty over the natural places. 
 
 What’s more, preventing a Kami from reaching its potential leaves a great deal of spiritual energy unspent. Human, animal and plant Kami who perish before their transformation are worth between 1 and 5 Gnosis when consumed, depending on how powerful Gaia intended them to be. 
@@ -4538,8 +4481,6 @@ He’s quick, he’s attentive, and he delivers messages word-for-word. If he fo
 **Social:** Charisma 3, Manipulation 1, Appearance 2 
 
 **Mental:** Perception 2, Intelligence 2, Wits 3 **Talents:** Alertness 3, Athletics 4, Empathy 1, Expression 3 
-
-**
 
 **Skills:** Animal Ken 1, Etiquette 1, Stealth 3, Survival 2 **Knowledges:** Enigmas 2, Investigation 1 
 

@@ -1,4 +1,4 @@
-**
+
 
 Digitally signed � by IO-Sphere� y 1O-SphereDN: � cn=IO-Sphere, � 2 IO-Sphere lO-Sphere eese:., o=Tenth Sphere, � c=US� Signature � saralie : oo Date: 2003.02.27 � Date:2008 02.27 Not Verified Not Verified 15:43:16 -05'00' 15:43:16 -05'00' 
 
@@ -20,8 +20,6 @@ This work is respectfully dedicated to Julia “Butterfly” Hill, who has lived
 
 Bill Bridges: To Jane. 
 
-**
-
 ## GAME STUDIO 
 
 © 1999 White Wolf Publishing, Inc. All rights reserved. Reproduction without the written permission of the publisher is expressly forbidden, except for the purposes of reviews, and for blank character sheets, which may be reproduced for personal use only. White Wolf, Vampire the Masquerade, Mage the Ascension and World of Darkness are registered trademarks of White Wolf Publishing, Inc. All rights reserved. Werewolf the Apocalypse, Wraith the Oblivion, Changeling the Dreaming, Hunter the Reckoning, Werewolf the Wild West, and The Silver Record are trademarks of White Wolf Publishing, Inc. All rights reserved. All characters, names, places and text herein are copyrighted by White Wolf Publishing, Inc. 
@@ -34,8 +32,6 @@ For a free White Wolf catalog call 1-800-454-WOLF. Check out White Wolf online a
 
 heep://www.white-wolf.com; alt.games.whitewolf and rec.games.frp.storyteller PRINTED IN THE USA. 
 
-2 
-
 NaS tem samce ms marwresenren pena 
 
 eee renreenarween 
@@ -46,21 +42,13 @@ eee renreenarween
 
 Book One: Excerpts from the Record Introduction: Unfurling the Scrolls iy Invocation oe Yew Moon: Creation 16 Crescent Moon: Growth 35 Half-Moon: Kindness 42 Gibbous Moon: Sacrifice 51 Full Moon: Valor | 57 Eclipse: Shame 62 Bright Moon: The New 70 Book Two: The Language of Glyphs The Pictogram Dictionary 78 Appendix One: The Other Breeds 14 Appendix Two: Adding to the Record 122 
 
-3 
-
 Pe CRwf .Che Silver Recor? ssewenanvmmn crameums€ Lora” 
-
-**
 
 Well, yes, as a matter of fact, it is skin. 
 
 Black Spiral hide, to be precise. Tanned with blood, piss and clear water, and purified by a host of secret rites until the Wyrm-taint has been washed away. It’s not easy, but I think it’s worth the effort. See, the way I look at it, we’re reclaiming our lost brothers and sisters for Gaia. It’s an honor, really, a respect given to the White Howlers they once were. Maybe, by purifying their skins and writing our greatest legends across them, we’re setting their souls free from the Black Spiral and bringing them back to the family. 
 
 Yeah, I did say “family” — even the Dancers are still family. We’re brothers and sisters, we Changers, despite our tribal differences. We fight with each other like all hell, but the blood in our veins is the same, Mother-blessed and sacred. So be careful how you spill it, brother, and don’t do so without a good reason. Dancers and Abominations deserve to die, true, but they should be killed as a mercy, not as an act of malice. Until we reclaim them for our Mother, 
-
-4 
-
-**
 
 they’re wandering souls, spinning around in an eternal Labyrinth unless some act of mercy sets ’em free. And no matter what other people tell you, we are merciful. It’s just that Nature’s idea of mercy is a little bloodier than Man’s. By human standards, the idea ofskinning someone and writing legends on the hide is pretty savage. I don’t think we’ve ever made a pretense of being anything but savage, but there’s a deeper level to my madness. As you’ve probably heard, there’s an innate connection between an object and its source. In the case of a skin, there will always be a bond between the leather and the creature from which it came — and between that creature’s skin and its soul — even when that soul has left its body. In the case of my Silver Record, that skin connects our lost siblings with the deeds of our past, the spirits ofour fellowship, and the Changing Blood which binds us all. So what looks like barbarism is an act of respect, when you take the long view. 
 
@@ -72,10 +60,6 @@ That’s what we’re all about, you know: Doing what you have to do. And that�
 
 You've probably heard of the Silver Record. Most of our Folk have, if only in passing. It’s got a reputation that in some ways outstrips the deeds contained within. Some consider it a bible, others a fable, and still others an Academy Award for killing people. But the true Silver Record is none of these things. Rather, it’s acombination history book, behavior guide, family album and gospel. It’s a road map for our People, and an account of where we’ve been. 
 
-5 
-
-**
-
 Long ago we, like most tribal folks, kept oral histories. The Galliards of each sept preserved simple chants, rhymes and tales, then recited them at the moots. Depending on the moot, the lorekeeper might retell the deeds of great heroes, tell a story of compassion, or raise an old war-chant to drive his people into a frenzy. Although they preserved old legends, these stories were pretty much custommade; each lorekeeper hada slightly different spin on what happened. Some Galliards preferred to remember the great deeds a given hero performed — how Gunderthorn Vargarssun strangled three fomori to death with his own intestines, for instance — while another would emphasize the sacrifices he made — the pain he endured while he fought, the tearful farewell he made before expiring — and still another would play up the importance of his deed — how Gunderthorn was all that stood between the Wyrm-things and the sacred Spring of Merraton. Each lorekeeper would phrase things a little differently, customizing them for his audience or tailoring them to the occasion. Even so, the core of the legend— that Gunderthorn died valiantly after killing a pack ofWyrm-spawn with his own guts — was passed on, and endured. 
 
 Far later, when people began to write their legends down, many Galliards did the same. It probably seemed like blasphemy to some old-fashioned types, but my guess is, it was a practical decision. After all, we’re bom to fight and die, and usually do both pretty frequently. Ifyour lorekeeper gets gutted during a fight, 500 years of oral history drains away with his lifeblood. As our people developed the simple but powerful glyphs we all use, each lorekeeper’s tales were written down in a simple memory-script. The stories were still open to interpretation, but the core of each one was saved for later tale-tellers’ use. 
@@ -86,10 +70,6 @@ But that was before the Gauntlet. Before that wall of mist and unknowing separat
 
 Before the Gauntlet, only Tricksters had the knack of lying — or the Tall Tale, or the Truth Bending, whatever spin you want to put on it. After the spirits went away, anybody could lie — especially humans. With no internal or 
 
-6 
-
-**
-
 external spiritual compass to guide them, humans turned to the Weaver for guidance, and created logic and reason to master the confusion of a now empty and meaningless material world. 
 
 Instead of a pictogrammic or ideogrammic writing, their increasingly abstract minds — unmoored and unrooted in spirit — devised phonetic alphabets, figures which no longer suggested the images seen in the world around them. Humans really began living in worlds of their own, mental spaces constructed from abstract imaginings rather than the world given to them by their senses. Technology soon followed. Of course, the Glass Walkers revel in this process. They claim whole new spirits are contacted and even created by technology. 
@@ -97,8 +77,6 @@ Instead of a pictogrammic or ideogrammic writing, their increasingly abstract mi
 I’m not here to bash the whole of human history — I am a homid myself, after all. Born of human parents. Their history is my history. But the way I see it, what happened, happened. There’s no going back. The trick is to reconnect today with that old consciousness we lost, that primal synergy of the senses where the spirits play. gs Before I ramble again on wild polemics, let’s get back to the telling of the tales, the heart of the matter at hand. Each tribe — each pack, for that matter — keeps its own histories. Some groups (especially the ones who prefer nice neat archives, like the Silver Fangs and Furies) keep really detailed, written records. Other groups (especially ones who favor their animal side, like lupus packs and the Red Talons in general) prefer oral records to written ones. Most write down their most important legends, though. Some things are just too valuable to trust to chance. And so the Silver Record was created, bit by bit. As tribes came together, their lorekeepers shared their most inspiring legends. Someone wrote ’em down, and the rest was literally history. 
 
 That history is pretty extensive... and heavy, too, I might add. The bunch of scrolls I’m carrying contain just a tiny fragment of the stories | have heard and seen. Some remain in safe-keeping, others are written down in secret hidingplaces, and still others have been entrusted to a handful of friends until I can get around to putting the legends into glyphs. Every so often, though, I come out of hiding to share a few of my favorite stories to someone who needs to hear ‘em. Now isn’t it just your lucky day? If you’re expecting some sort of history book — “on such-and-sucha date, this great Garou did this wonderful thing” — think again. That’s human thinking, and ifyou’ve made it this far you know how wrongheaded that can be. If you’re hoping for literal facts, you won't find them here, either. The Record is a document of experiences, a captured dream of past lives and embellished accounts. Some of ’em, I saw myself during out-of-body journeys in which I fought beside the First Pack or faced down dragons in the Russian snows; others are second- or even 
-
-7 
 
 Ae CEa fChe Silver Recor? sswunenemmn vsmmaem€- Lora” 
 
@@ -111,8 +89,6 @@ Despite its name, the Silver Record is not a static collection of written lore. 
 That said, however, some tales still bear the stamp of their authors. There are idioms that show clearly through the glyphs of old, and the newer generation of tale tellers prefers to put their own stamp on their product, so to speak. It’s not very traditional, mind you, but if it gives a Garou some self-respect and renown, I’m all for it. 
 
 These scrolls are alive in other ways, too. In the Record, as in some other very important messages, spirits are summoned into the glyphs themselves. When someone runs his hands along the pictograms, the spirit enters him and shows him images of the subject described. To the reader, these seem like vivid dreams or past-life memories. It’s kind of freaky, really — if interpreting glyphs is your profession, you acquire a whole set of “shadow memories” of things you’ve never actually seen. Those of you who have close connections to your past lives know the feeling — that déja vu sensation of living three or four lives at once, none of em especially “real” but all of them amazingly clear. Even when the spirits impart their messages and drain away back into the glyphs that hold’em, the impressions linger. I’ve lived lifetimes in my less-than-25 years, and I remember more about 
-
-8 
 
 Neeser mane. Unturling the Scrolls, Nem mame wenameerumarraan. 
 
@@ -130,8 +106,6 @@ You'll have to bear with me. I’m a Philodox, not a Galliard, and I don’t hav
 
 Why so young? I’m not sure, but I have a few ideas. Maybe it was because I hadn’t “found a place” yet. As I quickly discovered, a good lorekeeper has to devote most of his time to uncovering the stories, gathering ’em together, interpreting ’em, setting ’em down in glyphs, and relating ’em to others. It’s a fulltime job, and not one you can just pick up and run with ifyou're already set in your ways. Maybe I was chosen to be the Record-Keeper because all the tales would be fresh and new to me — because I hadn’t heard ’em a thousand times before, 
 
-9 
-
 A Ae CaeA AChe Silver Recor? ssmrwunen eum cnammsmmsE Lora” 
 
 coming out of someone else’s mouth. Maybe a fresh perspective is what was needed at the time. 
@@ -145,8 +119,6 @@ There are other reasons I can think of: Not to get weepy about it or anything, b
 Like my mom and dad, our family fights like hell but can never really divorce. In my parents’ case, it had a lot to do with they way they were raised — “oath before God,” and all that stuff. In our case, the bond runs deeper, all the way down to our spirits and bones. We are bound by the Change, brothers and sisters in Gaia’s grace. Although we stand between the three worlds of human, spirit and animal, we are all three in one, in a way that not even the highest animals, most powerful spirits, or most enlightened humans can be. Despite our tribes and traditions, we are all equal in Gaia’s sight. 
 
 That blood-bond extends much further than we realize. The other Changers — the cats, birds, lizards and all that — were our siblings, too. That’s what makes the War of Rage so shameful. It was worse than genocide. It was fratricide, and many of us are still too stupid or dense to admit that. But when you know the Old Songs, when you really understand them, you begin to notice the affinities between us all. And to appreciate the family that binds us and makes us one. if] AmI gonna get all moony on you? Uh, uh. I’m no Child of Gaia, and even was, the thought of sermonizing like some hippie makes me wanna puke. But 
-
-10 
 
 ## Neeserenw. Unturling the Scrolls,wesmane PURE 
 
@@ -172,8 +144,6 @@ The Silver Record does not celebrate bloodsport. It celebrates sacrifice. A lot 
 
 Doing the right thing has never been easy, but it gets harder all the time. The more we “civilize” ourselves, the more comfortable we become. When something really big stands knocking at the door (or pissing in the corner, as it were), we find it harder and harder to rouse our lazy asses and go take care of business. Next thing we know, the door is open and our enemy stands in front of us, fangs bared and going for our throat. The more sluggish we become, the harder it is to rouse 
 
-12 
-
 ## Nee nemco masa Unifurling the Scrolls.wenmune FuErwunareeen. 
 
 ourselves to fight. The more comfortable we make ourselves, the easier it is for the enemy to tear out our throats. 
@@ -185,8 +155,6 @@ I sometimes think I was chosen for this task because I’ma restless child ofthe
 Huh. Almost sounded like a real lorekeeper there, for a minute. I never really considered myself the eloquent type, personally. Then again, who am | to question the choices of Gaia or Death-Takes-Last? No one. I’m just the Keeper of the Record, and I’ve learned that certain questions don’t have answers. Sometimes, things just are. 
 
 Let’s run our fingers on the pages, and begin.... 
-
-13 
 
 ## APA CAKa Silver Recor? sssrommanemmr commneemsE Lore” Che Jnvocati 
 
@@ -202,8 +170,6 @@ We are the Changers Of the Warrior Blood.
 
 Seven Times do | Howl, Seven times do | Sing Of the Deeds of the People and the Ways of the Moon: 
 
-14 
-
 Near Stem samnse was nawwasen The Invocation Nes ees peewee, 
 
 New Moon, for Creation; Crescent. for Growth; Half-Moon, for Kindness; Gibbous, for Sacrifice; Full Moon, for Volor; Eclipse, for Shame; and Bright Moon Again, to Prophecy the New. 
@@ -217,8 +183,6 @@ IS
 ## CW 0on.@ Creati 
 
 I speak of beginnings, of the birth of all things, of the coming of tribes and the giving of Laws. These are the First Songs, the tales of Before. Let all Folk hear them. Let all Folk attend! We are all kinfolk, members of a family that extends from each stone and particle ofair to every living thing. While we Changing Wolves may be the closest blood relations, you must understand that “family” is far greater than we can imagine. Gaia may be our Mother, but all things, living and otherwise, are our kin. Before you can understand the Changing Gift and the Apocalypse, you have to understand the ties that bind us. 
-
-16 
 
 Nee sero mmsauwe. He. Moon: Creation «Nen mums remamcwumareaan. 
 
@@ -268,8 +232,6 @@ And toss them to the empty void where They burn, so brightly, like fires In dry 
 
 Heat becomes warmth, becomes fire, becomes life. Patient mother, | swim the void and see them grow. 
 
-17 
-
 SE Oe 
 
 WIAhe Silver Recor) asewmnanemm csameums€ Lore” 
@@ -304,8 +266,6 @@ Ahay-oh!
 
 Ahayy-oh! Phoenix laughed to see the end of night. 
 
-18 
-
 Neem nemeemmamwe. H1e10 Moon: Creation —Nenne YUn.erwunwwuen, 
 
 ## Songs of the Dawn 
@@ -315,8 +275,6 @@ Only fragments remain of the other Dawn songs. Here are some of them.
 ## Che Three 
 
 The flowers opened before the Dawn Petals spread in silent song One becomes the green; One turns the green to tree; One brings the tree down low, Decays it, and makes new life from old. The tree is eternal. The three are eternal. 
-
-19 
 
 A 
 
@@ -331,8 +289,6 @@ Cold was the world
 In eons untold 
 
 When time was slow to unfold. Quicker it became And faster moved all things Dancing now in dark delight Ignorant from lack of sight. A spark in formless night Over the hill arose a light Enflaming aether, igniting air Color afire in every stare Vision gifted to every being Voices upraised, singing The Sun strode across heaven Light descended to deepest glen At break of Dawn, The Dark withdrawn. 
-
-20 
 
 Ne Stee nemse memes. 11610 Moon: Creation,wenmane FUREoUreen, The Crickster Light 
 
@@ -364,8 +320,6 @@ A lesser bright but more subtle silver to the gold of sun Sneaking from ridge to
 
 The wolves raged under shifting moon. 
 
-2/ 
-
 MT Pe CEeI AChe Silver Recor? saewenanemmn crammnemasE Lora” 
 
 ## Che Naming 
@@ -380,8 +334,6 @@ The Wyrm has a Power that is nearly as great, for it is Unnaming. It breaks the 
 
 Many tales are told of the original Naming, when Gaia gathered all Her creation to her tent to accept the Names she would give every creature. Before this time, all beings were free to take whatever form they desired, and no one could tell anyone apart for sure, for many masks they wore. 
 
-22 
-
 Nn 
 
 Moon: Creation «Ner mums wemamreumerwasn. 
@@ -393,8 +345,6 @@ The Changing Breeds each got two Names. One is the Name of Man, and the other th
 If this is so, you say, then how is it with those men who are mighty in Power unlike the rest of their kind? What of them? The mages know their own Names, or perhaps it is that their Names know them. This is what gives them their Power. 
 
 The Leeches have been Unnamed, losing a part — but not all — of their original Name. And the fey? They are figments given form, fictions born from dream. They were not Named in Gaia’s tent, but in Her dreams. As such, they are not always what She intended, but continue to delight Her as a wondrous dream does for us. 
-
-23 
 
 ## A: mA Che Silver Recor? anrwunanemmn cnamaemmsE Love” The Ol Days 
 
@@ -419,8 +369,6 @@ For the Immortal Ones have shown us the path to their domain, To the heart of im
 Listen now, to the rustle up above; 
 
 Breathe the heavy scent of pine and forestfall; Close your eyes, forsake the things you “know,” As | speak of bygone times, and of the world we once were born to. Hey yaaa! Hiiii-oh! Hey yaaa! Hey yaaa, hiii-oh! 
-
-24 
 
 Neen samermemes He Moon: Creation Nemne FERErUnrerne 
 
@@ -480,8 +428,6 @@ Termites in the wood, some seek to corrupt
 
 What they cannot enjoy; from these, we take our supper. For thus is Nature’s way. 
 
-25 
-
 et aI AThe Silver Recor? sasounanemmn ocmammms Lora” Che Rending of the Worl? it’s There are a lot of stories telling us how the world got to be in the screwed up shape in. This is one of them, and it traces our predicament way back to ancient times, to that moment when the Wyrm went mad. The story doesn’t tell why he went mad, but we all know different versions of its fall from balance. In fact, there’s no official version of it anywhere in the Record. I think this is because nobody really knows for sure, and nobody wants to get close enough to the mad dragon to find out. Once, the world was a single land, a plain that stretched from the ends of the sun to the edge of the moon, and covered all places in between. Deep pools and rivers cut through this land, keeping it pure and green, and bottomless oceans surrounded this land on all sides. 
 
 In his rage, the Wyrm cracked the shell of the world into many pieces; some floated off into the sea and sank. Others became islands, while the larger pieces became the continents. The skies were filled with thunder as the Dragon split the world apart, and great mountains fell at his command. At the shores, the seas overflowed their banks and washed across the beaches, drowning all that lived upon them. Jagged shards of the world smashed upward through the crust, shattering forests and turning them to sand. The very moon and stars shifted in their orbits, and the Velvet Shadow was torn. With a scream like ten thousand souls in pain, the Wyrm shrieked and tore his claws through the world. In their wake, the lands of flesh and spirit were divided forever. 
@@ -493,8 +439,6 @@ So wrought with despair was Gaia that she took to her bed in sorrow, and would n
 In the wake ofthe Wyrm’s rampage, rifts which may have been sealed by Gaia’s healing hand lay rotting open to the air. Bleeding stones and cracked rivers could not mend their wounds, and cried for the Mother to heal them. This crying only made Gaia weep the more, and sapped her strength such that she could no longer rise. 
 
 Luna saw this and shook her head, her pity long since dried up. She set to work in Gaia’s place, going where she could and spreading her luminous radiance to all quarters. But while she could go where Helios refused, her light was dimmer than his, and could not reveal all the damage the Wyrm had wrought. She needed helpers in her task. She went first to the Bear Changers, but they were asleep, healing the grievous wounds they had suffered defending the land from the Wyrm. She then 
-
-26 
 
 Neeser erenwe. New Moon: Creation wnme FORwUrcen, 
 
@@ -511,8 +455,6 @@ And the Wyrm? Its rampage wore at its strength, and it slithered into a deep tre
 And as the dragon slept, the Weaver sent her Spider Incarna to sneak upon him and devise a cage to hold him, so that he might not escape his proper work of balance again. But the snake awoke before the Weaving was complete, and thrashed about, flinging webs everywhere, strands which wrapped about the Spider and Wyrm alike, catching both in the trap. Then did the Wyrm work its way through the sticky pattern and swallow the Spider like a thrashing mouse, and in so doing, swallowed a piece of the Weaver also. 
 
 Ever since, the Weaver has been mad, sharing the Wyrm’s rage and disbalance. But the Wyrm has shared alike in the Weaver’s power, and tries to make patterns of its own, but the warp and woof are ragged and ill-sewn, creating only corrupt things. 
-
-27 
 
 AES 
 
@@ -534,8 +476,6 @@ He grew greedy for more power, and used guile to trick it from her. He stole fro
 
 But the Wyrm saw this, and knew it was wrong. Seeking balance, it swallowed the Undead Man, to return it to the cycle of being. He could not digest him, however, for the thing was undying. Sitting in the dark womb of the Wyrm’s gut, the Undead Man grew hungry, but the only thing to eat was the blood flowing in vessels around it. So it bit into the swiftly moving fluid and sucked strongly of its nourishment. 
 
-28 
-
 Nem samsemmvemwe. /1e1 Moon: Creation,[anes][seme][remareremarwnen.] 
 
 The Wyrm writhed in pain and fear, and spat out the blcod-sucking meal. The Undead Man, covered in the Wyrm’s blood, was a horror to see. All beings who saw it averted their eyes and groaned in terror. Gaia herself could not look at the thing, so corrupt was its demeanor. 
@@ -548,21 +488,15 @@ And then Helios’s voice thundered down from the heavens: “Show not your face
 
 The Wyrm was dizzy and weak from blood loss ever afterwards, and grew worse and worse when its internal wound did not heal. Everyone knows that story and what came next. But the Bloody Man was forgotten, for he had fallen into a deep sleep in the earth. Only in later ages did he arise again to corrupt others, creating generations of awful beings like him. He is still alive today. No one has seen him, but no one has seen his husk or spirit either. 
 
-29 
-
 anronamrommare eam aC he Silver Recor? asawwnenomme commas Lore” 
 
 ## The Magi 
 
 In the days of feast-slaying, when the wolves Tore out the hearts of men, “4 Some humans, by the fire kissed, -_ Learned great arts and brought the stars to earth. Some made great things for their fellow fok — Others crawled into darkness and made love unto the worms. In the old days, it has been said, four siblings spoke In great voices: one mad, another stone, The third one midnight and the fourth one sane. Two walked in a sacred way; One danced amid the flames, and the last ate her own heart. The sacred ones birthed vision-children, whose Cauled heads bespoke a greater sight.’ Some spoke to spirits as we did; Some brought the thunder down alone; : Some built great lodges of brick and briar; . Some walked the paths of ghosts. aa In the fires, the mad one cried; : In the darkness, the heartless one conspired. All one blood, they stood alone, - And plucked the Weaver’s threads for warmth. Sometimes we made war upon them, Other times, we shared our hunts. The sacred ones made hearths for our human. hearts, And sometimes learned the gifts of skin-change. 
 
-30 
-
 Nee nemse mv enwe. 11010 Moon: Creation,Nem ms pemeereuen, 
 
 With their help, the humans spread. Soon this was the cause of wor. For the sacred ones rose up against the Necessity of our hunts. We shed one another's blood Until our elders counseled truce. For the sacred ones are the voice of Man, Though they court the Weaver’s home. When the Impergium fell, we buried our spite Until the nights That the sacred ones came thirsty to our glens.... 
-
-3} 
 
 PFS 
 
@@ -576,8 +510,6 @@ Each night, whole realms are born, to vanish at the pricklings of day. Each day,
 
 Some are of day-terrors born; when frightened musings Seek comfort in the night; they advance the darkness’ call And try to bind the sun away. Others, hatched by toils of the day, Take kinder shapes and bring the sun with them; 
 
-52 
-
 Nee nener meme. 1610 Moon: Creation, Nemwane SORE. 
 
 As their cousins banish the bad dreams of dayshine, So these banish vagaries of night. Once was there war between both night and day, And even Gaia’s chosen trembled. 
@@ -588,13 +520,9 @@ Making each a mirror of the other:
 
 “So will it be,” she said, “so is my gift.” And thus the wor was Stilled; it continues on Each day and night, but at a kinder pace; at times The armies switch their hearts and come to an accord. For such is Nature’s way. 
 
-33 
-
 A Pe CEWI A.The Silver Recor? sawrnenemmr ccamvums€ Loe” 
 
 | 
-
-. | 
 
 ## The Restless Ghosts 
 
@@ -610,21 +538,15 @@ And they barred its passage against our kind, Life and death remained apart, And
 
 | | 
 
-54 
-
 ## Crescent 
 
 Moon:e 
 
 These tales are about the Garou’s early days, when culture was not yet set into hard tradition as it is for us today. They’re reveal something about events which help define who we are still, whether it be a coming-of-age chant or a bunch of Ragabash learning new tricks. 
 
-3S 
-
 OK aT Silver Recor? samreenanomm cranes Lore” 
 
 Lot'a-ha-Khenn (Shaking Paws) BecomesaMan far This is one of the oldest songs I have learned, an ancient Croatan celebration. As as I can gather, Lot’a-ha-Khenn was a small gray wolf who had a hard time following his pack into battle. His name, Shaking Paws, brands him a coward. As we can“Fallen see, he overcame whateverissues he had, andwas theonly one to emerge from the “Khil-to”Star Land.” (Obviously a Hiveof some kind.) Although the details about and his twelve Dancers are lost to me, we can assume he was a real badass. Lot’a-ha-Khennbattle obviouslygot mauledin the fight and probably earned a few major scars. We don’t know anything about Shaking Paws’ packmates (their Mourning Howl has been lost to me), but in the obvious joy of the lore-keeper, we can see how Shaking Paws had raised himself from.a despised coward to an honored septmate by a single, if costly, act of courage. 
-
-36 
 
 Ne eer senso mse Crescent Moon: Growth Ymwane vemerewnssrereen, 
 
@@ -676,8 +598,6 @@ Taste the salt that they bear,
 
 For Lot’a-ha-Khenn has returned And now he is a man! 
 
-37 
-
 Te CemIA.The Silver Recor? ssanpenanemm commcumas- Zora’ The Golden Tiger and His Mistress the You'll never catch me lauding the War of Rage, but if you know something about of a Silentdeeds that Strider epic called inspired it, it’s “The easier Sixty-Five Virtues,” to understand why itrecalls happened.the earlyThis fragment, War and the part evil that helped begin it. Told by a war-judge of the Eaters of the Dead, this tale marks a pact between Silent Striders and Red Talons somewhere in the vicinity of India. In time, this alliance would spread and become one of the most powerful forces in the War of Rage. And all because of a Bastet who had to play king-for-a-day! I put this story here rather than in the collection of shameful tales because the War marks the first time (and last time) large numbers of Garou collaborated on any single thing. Anyone wondering why we're losing to the Wyrm should take that little fact and ponder it a bit! 
 
 Thee Savatr, whose three golden heads hath seared the dawn, art strong and three times Mighty. Excellent is thy gaze, and many are the fruits of thy four splendid Kinfolk, for here in the barren sun are we left alone! Dear friend, most luminous, turn tous as the Golden Tiger Jamadagni and his Mistress, the dark woman Sa’ar, bring down their claws upon us! For the stones in the hands of the six-score men of the tribe of Sa’ar wound us hatefully! And the blades of the Tiger rend our flesh into carrion-straw, that the birds do carry it away and make nests of our bones! 
@@ -690,8 +610,6 @@ And his host doth likewise join the tide, and forsake the blood of brothers for 
 
 And we like strong winds strike. As the day slides into darkness, the eyes of man fall dead and their ears ring with terror’s confusions. For man was not born to night as wolves and tigers were, and their fire is a lure to the teeth of after-day. Like a storm we blast the homes of man into timbers and scatter their seeds into fallow fields. Sweet harvest, that ever thus is ours! 
 
-38 
-
 Ne Sener meer Crescent Moon: Growth eanmnne Penaerewnarenen, 
 
 To the ground we send the tigers, though they wet the soil with our spill and chew our throats to froth. For Savatr has come; and with him his three heads Varnua, Keth-saya and Prsni. Their breath is like hymns to thunder, and their teeth shine like polished rain. Sharp-pointed and vigorous, we harry the tribe of Jamadagni, and slay their allies also. For the Golden Tiger hath friends among the night-bloom. In solitude, these shadows come among us, butchering like sleeping birds the Kin of our two packs. And so to such falls Prsni, whose blood takes root and gives forth fruit which, in the way of plants, points to its planter like an accusing hand. And so falls Daksina, most beloved of Savatr, whose bones take root and become a twilly-tree. Beneath that tree, our Friend sits each night, weeping salty lamentations and promising kind-for-kind. So we feel the pain of shadows, and thus hunt them we to their deaths. 
@@ -699,8 +617,6 @@ To the ground we send the tigers, though they wet the soil with our spill and ch
 The shadow-cats fall like rotten fruit from trees already blooded. Their moonrakes are like serpent’s teeth, and shimmer in the half-world light. Speaking in sweet rhymes, they come to our Kin in mockery, saying Where art thine elders, that we could so easily come upon thee? And Where art thine protectors, that we would know thy secrets even if you speak not them? Like black flames come they into our packs, slaying those whom they might reach and corrupting those whom they might beguile. 
 
 And so the Golden Tiger’s war becometh bloody sunset. Confounding the shadow-cats with Middle-Walking, Savatr and Keth-saya, and Inka-Ten of our own Tribe, go among them as they sit planning their deceptions, and bring them all to blood and ruin. Truly do the children water their Mother’s bosom! Oh Resplendent Friend, we have brought the Golden Tiger down! Oh Resplendent Friend, we have slain his helpmates and his children! Oh Resplendent Friend, we have returned the lands of Sa’ar to forest and turned pale soil dark with her kinsmen’s blood! Rise like a falcon, Bright Savatr, whose coat recalls the sunrise! Rise that we might feed the crows with the flesh of all our rivals! Deathless friends, let the bright skulls ofour slain be the find-fires ofour future nights. Let the brains of foemen be our repast, that we might know the lies that led them. Let their dust be carried off by flies and rolled by the scarabs in their sightless tasks. seedOurof new pacttomorrows. is sealed. Go thou in peace! Let the goodwill of our promises be the 
-
-39 
 
 A Pe CaWIAhe Silver Recor? sssrmmanemm csmmaems6 Lore” Evil comes to the Mocking Crees Tricksters rarely work well together. When a group of habitual contraries try to form a pack, they usually dissolve into chaos. One legendary exception, the Mocking Tree Sept, proved that Ragabash could work together well... so long as someone provided enough joke-fodder to satisfy them all. A 
 
@@ -724,8 +640,6 @@ And Veeho the Silent stood in the shadows and nodded, for he had shown them who 
 
 Now it came to be that a great shadow fell across the land. A panther-queen, the bloodthirsty Strange Owl Crying, brought the cat-folk together in a most unusual way. For many days, they chased all other beasts from the forests, hunting those they could follow and slowly eating them alive. These cat-folk knew the 
 
-40 
-
 ## Ne eeesemse ee Crescent Moon: Growth ersmanne FURECwUEnree. 
 
 forests and mountains well, and they were very clever. Six wolf-packs — including the three packs that had cast out their Ragabash — went to fight against Strange Owl's pride, and all of them died badly. Strange Owl Crying filled her den-cave with skulls, and decorated the trees with pelts and dying foes. 
@@ -742,13 +656,9 @@ When she reached the center of the forest, the panther-queen saw Jack Stinkbean 
 
 As the elder had said, Jack Stinkbean’s breath was very bad. To make things worse, he had been eating stink grass and drinking fire-water as the cat raged through the forest. Now his breath turned the woods to ashes and toppled the trees around the panther-queen. Her fur caughtfire as Jack Stinkbean jumped into the pool. Fee-ne-ne’s arms and legs jumped in, too. As Strange Owl Crying bumed, Veeho laughed from the trees. Hearing this, the other cats slunk away into the night and never came back. From that day on, the forest of the Ragabash has been called Cat-BurningBrightly. Although that happened very long ago, no one has ever tried to conquer those woods again. 
 
-41 
-
 ## dalf-M oon: 
 
 Believe me, it'snoteasy finding ales about kindness among our kind. Oh, they exist allright, but nobody wants to tell them. They ’ve all got tales ofblood and guts they want compassionateto tell first, andsaerifice. seemdisappointed. o 7 - whenve t you want to hear about a simple healing or of But these are justas much a part ofGaia’s work — moreso, in fact — than tales testosterone and rage. You can really leam something from these, and their heroes make you rethink how we view heroes. neGS, 
-
-42 
 
 ## Neh nemee meses. Hai} Moon: Kindness.awnmane En rareuen. Mud Wolfs Luminous Speech OM 
 
@@ -759,8 +669,6 @@ Remember that everything is connected to all other things, such that there are n
 Ah, but it is so hard for the mind to know this, for the heart to grasp it. But it has been done! There is one I know ofwho attained such a truth, who became one with Gaia yet returned to this world of meat and sorrow to show us our true faces. I will tell you of him. I will speak ofMud Wolf and his Radiant Vajra Voice. He was of the Changing Breed, a wolf and a man both, of the tribe of Stargazers, those who are most wise to the truth hidden behind veils and enigmas. For many years upon years did he, like others, wage war against physical and spiritual foes, always severing one enemy’s head only to see it return with another face. He wondered to himself, ‘How can this be? Our enemies are numberless, or else are but One, which hides behind many masks.’ He withdrew from quests and battles to contemplate this, taking pilgrimage into the Spirit Worlds to meditate on Moon Paths and at crossroads. One day as he was contemplating the nature of the Wolf Changer’s problem, his mind escaped his body, for so light had it become and so detached from his senses, that it lost its material binding. When this happened, a Bane snuck upon the body and slipped under its fur, claiming the body for its own. The Stargazer was shocked and scared, but then realized how little such a thing mattered. No harm came to his spirit from it. His body was just a metamorphic thing, a figure of clay made to bend in many poses, but not the essential heart of his being. He laughed then to see the pitiful Bane trying to walk in his body, as it stumbled about and attempted to shift forms. 
 
 Andhis laughter peeled away all the strings which bound him. It tore through the webs that covered his eyes, the silk curtain which concealed from him the True Gaia Realm. From this most holy and enlightened perspective, he realized many things which we cannot even conceive of in our ignorant states. But in that timeless time, he grew and achieved the supreme Truth of all Oneness, and realization of the Weaver's deception, and that of her harried victim, the Wyrm. He chose not to remain in that bliss, for his heart was still one with the Garou. He could not abandon them to delusion, so he returned from that 
-
-43 
 
 Te IAALhe Silver Recor? aasewmnanemmn comme 
 
@@ -782,15 +690,11 @@ And so they came to him, and he did not need to seek them out. And when they bow
 
 Finally, following visions from Gaia, three wise Stargazers came to him, for they had realized his identity and the good work which he did. They bowed and 
 
-44 
-
 Nes ee nemermmseamwe. i! Moon: Kindness =Nenmame FEREwuarwuen. 
 
 begged him to speak his words to them, so that they too might see the True Gaia Realm, if even for an instant, before their spirits departed. He smiled, but said nothing. His eyes closed in contemplation, and the three wise wolves waited for another sign from him, an answer to their pleas. For many days they waited, and the Mud Wolf did not move. Not a bat of his eyelash did they witness, or the slightest pulse of breath in his chest. 
 
 Finally, one of them reached forth his walking staff and touched the Mud Wolfon his shoulder. The great Stargazer’s misshapen body crumbled at the prod, falling like old, dried clay and clumps of earth. The Stargazer had departed, knowing his work was done. Only his empty form remained, and even that could not last, for there was nothing to hold it together, so completely had Mud Wolf departed the realm of delusion and form. Not a trace of corruption was found in the body, cleansed by its closeness to the truth. tale The three Stargazers laughed andwandered off, but they would always tell the to all they saw of the Mud Wolf and his supreme compassion, to take on the ills ofthe world and free creatures from the bonds ofdelusion, even at the expense of his own comfort. and Some say that Mud Wolf returns now and then, wearing again a body of dirt clay. If you see him, don’t run. Wait and follow, and hope that he speaks, for what he has to say, you greatly want to hear. 
-
-45 
 
 LS af Che Silver Recor? sssrrmmanemmr csmmnvwas6 Lore” Che Dawn Flower 
 
@@ -820,11 +724,7 @@ Wrought with anger and grief, the elders tried to summon spirits to aid and heal
 
 Remembering the boastful tales of Devon Dark Brow and his mocking laughter of Ophelia the Gardener, the elders sought to punish him for the crime, and set a task before him that, should he refuse, would cost him greatly in renown. 
 
-47 
-
 PET Ee 
-
-**
 
 His pride great before them, he took the quest to seek the lost plant spirits, and gathered his pack. 
 
@@ -837,8 +737,6 @@ Ophelia knew the proper decorum to[display][before][these][spirits,][and][only] 
 Finally, they reached the pool, but found that it was not clear and cool as promised, but brackish and oily. “Something is terribly wrong here,” Ophelia said. “A taint has come to this place.” 
 
 “Then let’s begone now, before it overcomes us,” Devon said. 
-
-48 
 
 Ne ee nemseusenwe. Hii Moon: Kindness,wenane Feneerewnareuen. 
 
@@ -855,8 +753,6 @@ When the Wyrm oak sensed what went on within its trunk, it roared in rage and re
 Devon recovered quickly and commanded his pack’s assault. They swarmed about the tree’s trunks and slashed at its roots, throwing their Crinos-weight against the bole, trying to uproot the thing. Other plant spirits aided them, and yanked at its branches, tugging to and fro to unbalance it. Their might yielded little, for the oak was old and rooted tight. 
 
 Then, to their surprise, its gray and crusty bark turned brown. Its dead branches grew leaves, and its struggles ceased. The lightning hole slowly opened, and flowers spilled out. An aroma powerful and sweet spread through the air, and 
-
-49 
 
 MDA Oe CEaI A.The Silver Recor? sasswmnaneum cxameems€ Lore’ 
 
@@ -880,8 +776,6 @@ After a time, when new packs returned from their rites of passage, they would pa
 
 Elders would come, and wise Garou from other lands, to view the garden and the Dawn Flower which grew there. And Devon would tell them the story of Ophelia and his own pride, and they would take it back with them to their moots, and tell the tale on cold nights when winter chilled their spirits and spring was most missed in the world. 
 
-50 
-
 ## e lIO00US G ef e 
 
 0on.e 
@@ -896,25 +790,17 @@ In the old days, vampires raised cities filled with degenerate humans that worsh
 
 Breath of my fathers! Wash away the stench of death That hangs across this land! For the walking dead have conspired With their living slaves to construct a maggot-city And to fill it with all the terrors of the night! Oh, the Wyrm was in full-flower here! With his coils and his lies he poisoned the earth. Once, tall towers of black-etched stone rose like anger into the darkness, And the soil was ripe with rotting carcasses That not even a fly would touch! Inside the walls, fountains flowed with the stolen blood of babes, And plants flowered with green ichor and purple blossoms. Such was the malaise upon the sof that Falcon himself Descended from the clouds to cry for a cleansing! And so we have gathered, from four tribes, we come: Dol-ah-Shen, the Strider with savage eyes! Isthsmene and Medusa, most briliant Furies! Grantor the Get, with bloody paws! Iskeka the Fang, with snapping jaws! 
 
-**
-
-52 
-
 Neer semee e Gibbous Moon: Sacrifice Nemwee semumerewnarenen 
 
 |, Tehuti-ut-Tera, call forth the ales of our people And cast strong gifts at the heart of the blight. With our hosts and kin, we have swept the city bare! Now it roars with cleansing flames. We fought through the streets, those black-paved expanses Of dust and bloodstains, to answer the call Of Heru, the lord; of Falcon, our friend, to Pull down the towers and wash away filth Scattered here by the vampire lords. Like wizened kings, these leeches ruled The burning sands and trading-ports of This city, crouched like a hunting-cat On the bay of Reed-Flowers’ Bend, (Where long ago, old Sala held back 50 creatures Of the Unmaker’s brood!) 
 
 Defiled the battle-ground of our own bygone friend. From cities and ports of disreputable kind, Came worshipping throngs, to comfort the beasts! Full-willing, they opened their veins to the lords, And fed them on carnage and innocence wrecked. Like flies on the limbs of the Eater-of-Souls These corrupted mortals gave over their wills to The wretched excess of the vampire-kings Till the whole land was poisoned by unholy things. Oh, Falcon! See what we have done! Oh, Heru, see your will come to pass! 
 
-53 
-
 Ee aI AChe Silver Recor? sseewunan cum csamaems€ Loa” 
 
 With the gifts you have laid at our feet, we have Dragged down the palace of pestilence. With the friends you have sent us, we have Punished the spawn of the Wyrm. It was bitter and hard, this challenge of fire, Far too many heroes have been laid to the pyre. Dol-ah-Shen, my brave lord, has been rent by the might Of two-score howling creatures of night. Half-buried in corpses, he stood until blood flowed from fifty-score wounds; Until his arms were wrenched out of their sockets and burned. Still, his jaws snapped out at the fray, Snatching gobbets of flesh from the screaming death-hordes! Oh, ancestors, welcome him! Oh, my fathers, bear him away with your sighs! Grantor fought well, but was bathed in acid spilled From the black-palace walls of one foul reside. 
 
 As his flesh bubbled away from his bones, he Swept like a demon across the onrushing hordes! Not once did | hear him cry out, so filled was His gullet with befouled gore! When he fell The capering beasts screamed and fled, their hands burning From the touch of his still-seething flesh! Oh, Mother, welcome him! Fenris, bear him to your side! Isthsmene leapt upon the backs of two great monstrosities, Twelve-handed giants shaped by fell sorceries. Her claws reaped deep furrows in the flesh of these things, But as they died, they crushed her beneath their great feet! Oh, spirits, welcome her! Oh, Mother, return her to your womb! 
-
-54 
 
 Nene se mene Gibbous Moon: Sacrifice Nemane FUREwunrwnen, 
 
@@ -948,15 +834,11 @@ Can grow again is No comfort. No comfort.
 
 The sky is empty. The rain has fallen. And still nothing lives. Nothing grows again. And | fall, bit by bit Like rain into the dust. 
 
-56 
-
 ## Fu| 
 
 Oon.é 
 
 I sing of the blood we spill from our own veins, of the quaking limbs and thundering hearts that we still when we meet the enemy claw-to-claw. I invoke the spirits of War and Courage, the totems ofprotection and ferocity and most of all ofremembrance. For valor demands sacrifice too, and no battle worth winning is gained without first fighting down the demons of terror and loss. 
-
-57 
 
 ae a A.Che Silver Recor? ssmmwmnan cum cxamaumms oa” The Fall of the False Prince Leadership is vital. A strong arm is only good when the mind that wields it is keen andand sensible. One of the biggest problems we’ve had across the ages is poor leadership — by that, I don’t mean to insult the Silver Fangs alone. Many a pack has been led into disaster by an Alpha who wasn’t of the ’Fangs, and many a good Fang has taken his (or her) pack through the darkness and into dawn. his Lord Alexsei Yeugenvich stands as a testament to wise leadership. When many of kinsmen were literally at each other’s throats, he gathered up a Silver Pack and hunted down the nests of magi, Leeches, demons, deceivers and rival wolves who plagued the Russian night. Lord Alexsei provides a model offairmess long after his demise. This tale has an interesting history,.whichI won’t bore you with here. Suffice it to say that part of the original tale was lost, but with the aid of spirits, it has been restored somewhat. The presence of more than one author still tells, however. 
 
@@ -967,8 +849,6 @@ Now the wind rose high on an icy steppe, freezing warm fur into briars. Still th
 As the sunset turned the clouds to embers, Lord Alexsei gathered counsel. Should they wait till break of day, or would the native cunning of the prince in 
 
 | { | | ' { 
-
-58 
 
 ## Neen samee ms narwese 71! Moon: Dalor Nemae SULCUS 
 
@@ -985,8 +865,6 @@ his own lands grant them disadvantage? “Strike now!” urged Sees-at-Night. Il
 “And see to your companions,” he told his brother Varya (also called “the Mad”), “for with your eyes to the spirit-world, we shall not be alone. Those allies shall bear us through this trial and see us safely home, even if we fall tonight.” And together they hailed him, for his wisdom was great. As the cold raged down like a curse, the Silver Pack entered the barren lands of the false prince. Through the winding wooded paths to the Castle they padded, as wolves in form, hunters in intent. Close to the walls they came with no sign of living being. The night was too cold to host even birdsong, although whether wings would alight on these dread branches all the pack had doubt. 
 
 Sergiev lead the way, but all were halted by Varvara’s whimpered whine. To the stones of the rising outcrop she hung close, and by her noise called the others to her, revealing cave under rock, leading into darkness deep below the Castle. In grunting wolf-tongue they argued again, on course of[entry:][ through] 
-
-59 
 
 Lore” 
 
@@ -1008,8 +886,6 @@ On a throne he sat and orchestrated his servants, bored and expectant for entert
 
 A great wind from the passage blew them away, scattering them across the room and away from their prey. Illyana stepped in, battle-form, her visage grim. The rest of the pack followed her lead, and spread across the room, stalking the pretender on the throne. 
 
-60 
-
 ## SS: 
 
 ## Moon: Dalor Nemmane Eee. 
@@ -1028,13 +904,9 @@ The pack gathered about their fallen leader, and howled in anguish at their loss
 
 And ever from that day, his brothers their respect paid, honoring always Alexsei’s wisdom, to plot for victory even over pride of kin. 
 
-6] 
-
 6 CUDSE:e 
 
 There is no honor without betrayal, no valor without treachery. I sing now of thosewho-will-not-be-named, of Garou whose deeds have been so infested with shame that we have preserved their tales — but not their names — to serve as lessons of what we must not be. Listen and remember! 
-
-62 
 
 Nene sense 
 
@@ -1062,8 +934,6 @@ Night is to me what love was to your kind:
 
 O purposeful concealer and party to my thirst! Let the wombs of all innocents be split like 
 
-**
-
 The hare whose race has failed 
 
 And whose bones crack with its final spasm-kicks, 
@@ -1071,8 +941,6 @@ And whose bones crack with its final spasm-kicks,
 Let their blood be my repast. 
 
 | was driven to the night with whips 
-
-63 
 
 Ae CaaI FChe Silver Recor? ssmanemmn seman Lora” 
 
@@ -1094,8 +962,6 @@ So take comfort in your foll. Were | you, | would Enjoy the sleep.
 
 | cannot, and so | burn. 
 
-64 
-
 Neer semse ms esrwesen Eclipse: Shame Nemune PEREenarouen. 
 
 ## A Call to Rage 
@@ -1108,15 +974,11 @@ And maybe, ifwe take a look at the prejudice and misconceptions — or even trut
 
 There are many tales of the War, but very few that come from the beginning. I heard this one through the ears of a past-life, around a bonfire that reached into the sky. As the Silver Fang who spoke it raised the cry, he held up skulls from slaughtered enemies. As he read the names of the other breeds, he raked his claws across the glyphs that stood for the different Changers, wet his claws in his own bloody chest, then recited the words again. It was pretty damned impressive, I'll give him that. I’mnot going to tell you what I remember after the moot. But it gives me nightmares, even now. 
 
-65 
-
 AE 
 
 PS CamI AThe Silver Recor? srownmncmmm sammnems Lora” 
 
 When the bodies of the dead fall to the hollowed ground Raven comes on rattling wings to steal their eyes And mock at us as he swallows their spirits, Picking bones as prizes to his fear. When the cold winds whip us from the shelter of the trees, Bear drives us from her cave, devouring our offspring, With her greedy paws, she makes a place for her young ones While devouring our own to feed her hunger. When the Coiled One whispers his enigmatic plans, Cat is there with open ears and slashing talons To keep such news from us, and she watches us With eyes like crescent moons. We must answer this with anger! We must answer it with blood! When we stumble into hidden places, Dragon-King makes meat of us, and splays Our questing legs like straw upon his dung-heap, Our heads upon the ground like stones. When misfortune roars fike an angry Bane, 
-
-66 
 
 Ne eee sneer nnrwesen Eclipse: Shame 
 
@@ -1150,8 +1012,6 @@ Reclaim our birthright in a storm of blood!
 
 The Mother Moon is high and full, Let our War of Rage begin! 
 
-67 
-
 ARE: aWI S,The Silver Record sswwunan cum csamnums€ Loa’ 
 
 ## The Raven's Warning 
@@ -1163,12 +1023,6 @@ Fat yourself on the kill, good brother, but beware. For the gratitude of wolves 
 Our cousins are too much of each, | fear, And too hungry to care for giving thanks. So when you fly to give them warning of the foul things below, Take care not to let them catch you 
 
 Feasting on the eyes of their own fallen ones. For if they could but see what we do in the shadows of night, They would gut us, kin or no, for our presumption, As once they did before. 
-
-**
-
-**
-
-. 
 
 Nee sense mreeresen Eclipse: Shame Nanmanne Funcwunareaen. 
 
@@ -1184,8 +1038,6 @@ A lost corner, no one visits.
 
 No one cares to clean the bones away. Beneath the ruins, | am smothered. Beneath the ruins, my bones are buried. Air and trees and life and fire. These are gifts | gave you freely. Now glass glitters where the ivy grew. And your gratitude is the sound of flies. 
 
-69 
-
 # Bright Moon: - The Yew 
 
 Ne he mermmeee Bright Moon: The New Neenmune FUREEewarenen King Albrecht’s Crusade Against the Seventh Generation it’s This is a new tale, entered barely a moon ago. You see, the Record isn’t static — the always growing. With each new moment of valor or honor, with each mighty deed, willRecord increases. Maybe even you will one day do something so great that the spirits come running to the keeper of the Record and demand a new entry in the saga ofour tribes. I hope so. We need as many examples today as we can get. of Everyone knows — or should know by now— the tale ofLord Albrecht’s winning the Silver Crown and the throne of the Silver Fang North Country Protectorate. It’s also part of the Record; I just didn’t repeat it here. Instead, this tale is about his deeds after putting on the crown. Most leaders these days seem content to sit at the caern and send out the kids to do all the fighting. Not Albrecht. He’s in the fray with the rest ofthem. Not only that, but he’s trying to achieve something by raising awareness of a deeper danger than any of us have yet suspected. hey, Well, I’ll let the tale tell all. It’s written in ratherahigh style for modern times, but It’s that’s what the Silver Fang Galliards of North Country are all about these days. linkan expression oftheir newfound purpose, so figure it’s okay. Itdoes provide acertain all about,betweenaftertheall. deeds of today and those of yesteryear — which is what the Record is 
@@ -1193,8 +1045,6 @@ Ne he mermmeee Bright Moon: The New Neenmune FUREEewarenen King Albrecht’s Cru
 I just hope it does more than entertain. I hope it makes you get up and do something about the ills of the world. I was there. the Wyrm’sI was thereinvisible to witnessminions. King Albrecht’s slaying ofthe demon Draggerunter and 
 
 I rallied at his call to battle an enemy none believed existed, and I swore before my thrice-bloodied klaive to follow him in his crusade no matter the odds against us or the guile of our enemies. I did the same for his grandfather, Morningkill. I do so for him. It is the Silver Fang way. When our king calls, we follow, no matter the madness that drives him. But our new king is not mad. He sees into the invisible aethers cloaking the Enemy, and rightly identifies Banes haunting and gibbering just beyond the Veil of Shadow. And when he bids us attack, attack we do, with claw and fang and unsheathed klaive of sharpened silver. is I sing now ofthe courage ofAlbrecht, and the wisdom of his allies. His pack mighty in all the virtues. Who are they? | sing their names: Wise Evan Heals-the-Past, of ancient blood and young ways, child of Wendigo and Half-Moon; 
-
-71 
 
 ## PT Pe CEwf The Silvera 
 
@@ -1220,12 +1070,6 @@ Of her long battle against the Wyrm’s most insidious minions all were told, an
 
 | 4 | | ; a d 4 q ’ j q 
 
-72 
-
-5 
-
-**
-
 What was this evil? How did it differ from the greedy or the hungry servitors that escaped the Umbra to threaten the earth? Why was this threat greater than any before? It ate at the very core of Gaia in a way unlike any other Wyrm thing, for the Seventh Generation devoured our children and yet left them whole, with gnawed pits in their hearts which spread corruption unseen as years pass. Years upon years of abuse did they heap upon the young, not with their own hands, but through the hands of parents — wounded children themselves a generation before. An inheritance of hate they sowed, and ensured with each brood that the new was tainted by the old. So deep are the scars carved in childhood that those who grow to adulthood without succor and love cannot escape erecting dread chimares oftheir dreams, ever haunting them and causing them to taint all they touch. 
 
 Such was the wisdom of our new king that his crusade was not to be fought with might alone. Only healing could assuage the future taint, so rites of brotherhood and warding were declared. No victim of the Wyrm would be abandoned in the wake of this war — healing would be had for all. But how to work such a hospice?And here the unity of Gaia’s purpose in her 13 tribes showed through, for not all of us were made for war or wisdom; some were made to nurture and heal, and succor the wounds caused by the Wyrm. And here we were shamed, for all realized that for too long were songs of war sung when wounds needed healing. Compassion was Gaia’s way also, and her Children had never forgotten this. 
@@ -1233,8 +1077,6 @@ Such was the wisdom of our new king that his crusade was not to be fought with m
 Not only the Silver Fangs share in this crusade, but all Garou of all tribes. The packs of cubs new from their first rites joined in, clamoring for glory and the king’s eye that day. 
 
 And so the quests began, to send the packs out to seek knowledge of our enemy, to track down its incognito soldiers and identify them to all. Once done, battles would be planned, assaults to move quickly and cleanly against the unsuspecting foe. Oh howmany moonsit tookbefore blood was shed! Hard to find the evil was, and only Umbral eyes could finally see it through its shell of concealment, hidden in the souls of those who serve it. But the battles did come, on many fronts, and many were the Banes to die screaming under Garou claw. Many more were the humans who died, too stupid to know whom they served. Battle scars we bled, and still did some doubt our crusade and the existence of our enemy. They denied the conspiracy that linked our prey, and claimed it was but coincidence, that the Wyrm was many but certainly not clever. But packs traveled far and witnessed much now that their eyes were opened by Loba, and proof after proof did arrive that a web of well-planned workings 
-
-73 
 
 mrouarrmmars cam Che Silver Recor? aamrwmnanommn cxammnems Lora” 
 
@@ -1249,8 +1091,6 @@ We silently stalked from our secret paths and waylaid the Banes that swam in tho
 Peering into the material world, we espied our prey, the fatted lamb full of bloated and stinking blood. He sat in his mansion content with his work, for that very day he had thrown humans off the trail of his evil, convincing them that memories of abuse awakened in child were mere fantasies. A mind-doctor he was, hailed by humans as a font of wisdom on the workings of human minds. Yet he only used this lore to corrupt such minds. 
 
 Sipping his vile bever, he could not suspect that a king of the Silver Fangs stared at him from the Umbra, and yet some chill wind on his spine alerted him | to danger. He peered about, using his magics to see into our hiding place, | whereupon he cried in shock and fear. Agrowl escaped King Albrecht’s lips as he shifted into Crinos and stepped through the Shadow into the material worldto | greet the demon called Gunter Draggerunter. ; The bloated mortal stumbled back infear, recognizing the Garoubeforehim | forin a mighty hero, but he did not foregohisown defense, for he snapped hiscane twain, freeing the monster which slithered within its confines. ; Swirling in rings of smoke the’ Bane wrapped about King Albrecht and squeezed him tight, its poison seeping into this skin. Never had we seen sucha? thing, for the Bane worked quickly and:resisted Albrecht’s might. Antonine 4 Teardrop knew it and called its name: Ichorous Urge, a spirit of the Defiler 4 Wyrm’s own poison venom. The pack stepped forward from the Shadow as one, and engaged the creature’s coils. 4 
-
-74 
 
 Ne enesenee meneBright Moon: The New enne FeRwunarernen. 
 
@@ -1274,8 +1114,6 @@ Who now can deny that the Seventh Generation minions are spawned from the deepes
 
 Antonine spoke to all and bid them seal their lips outside of consecrated moot, for our enemy would now have eyes and ears and other senses besides searching for us and any sign of our next assault. We will adopt their secrecy to war against them, and strike where least expected, at secrets our foe thinks are well defended. 
 
-7§ 
-
 Me 
 
 eA A.The Silver Recor? samrwmnan eum cxamnems€ oa’ 
@@ -1288,10 +1126,6 @@ So it is said! Let all who do not cower heed! Open eyes and nostrils and seek ou
 
 Root out the poison but forget not to heal the wound, lest it fester again and birth worse tumors. This our lesson be, that evil within is the greatest enemy. 
 
-**
-
-76 
-
 Neher nenee mane Bright Moon: The New Nenwane PERErwenarenan, 
 
 ## Remember 
@@ -1300,14 +1134,6 @@ Well, there’s more, but the moon grows old and tired, and so do I. You'll hear
 
 But even should something happen to me or the Record, the spirits remember what we've done, even when all mortal Records have gone to dust. We are, in our honor and our shame, immortal. Never forget that, my brothers and sisters. Everything you do will be remembered. 
 
-77 
-
-**
-
-**
-
-**
-
 The glyph language is the perfect vehicle for werewolf expression. TheGarou carve their pictograms with their own claws, as befits creatures of Rage. The | glyphs themselves are very flexible in meaning, and lend themselves to a multitude of interpretations, depending on their context — the same glyph might mean “Gaia” in one marking, or “alive” in another. Although this system seems. unnecessarily simple, it lends itself well to both homid and lupus patterns of _ thought. No other writing can as readily convey the essence of what it is to be a werewolf — and more, what it is to be Garou. 
 
 | 3 | | | | j $ 3 
@@ -1315,10 +1141,6 @@ The glyph language is the perfect vehicle for werewolf expression. TheGarou carv
 Glyphs have power. Each claw-cut pictogram of the Garou has been invested with a portion of the language, and carries something of the spirit of its meaning. 3 Indeed, many spirits have come to recognize the glyphs that represent them, | sometimes even going as far as to respond as if summoned when presented with : their namesake. Many fetishes are accordingly decorated with glyphs that pay | homage to the spirit inside as a form of chiminage. Galliards and Theurges alike | learn the pictogram language as quickly as possible; both auspices recognize the power in names, and their duty to use this advantage wisely. 
 
 One note of warning: The following explanation of what exactly glyphs are, and how one interprets them, isn’t necessarily the sort of explanation new cubs get during their fostering. Most werewolves aren’t even close to grammaticians, and circumvent this seeming problem by doing much of their explanations of the glyphs in the Garou language. Although some cubs find it hard to translate 
-
-78 
-
-**
 
 glyphspeak into a human tongue, it becomes much easier to understand the nuances when they approach it on a more intuitive level. 
 
@@ -1336,10 +1158,6 @@ Whatever the truth, there’s no longer any way of proving it. No surviving Ance
 
 No matter the medium, the traditional way to inscribe a Garou glyph is with the Crinos claw. Not only is the claw an instrument that is always at hand, but a message carved into a tree or stone marks the author as clearly Garou. There can be no counterfeit this way; even the distinctly curved claws of the Bastet or the smaller claws of vampires, Ratkin or other creatures cannot easily duplicate the “hand” of a Garou-carved glyph. Ronin who have lost the wolf (and thus the ability to change shape) cannot carve glyphs in the proper fashion; neither can Kin. There are a few ways to forge it, but for the most part, only a werewolf can make the proper mark. And only a werewolf knows the proper mark to make. 
 
-79 
-
-**
-
 Garou pictograms predate anything even close to modern writing surfaces; after all, it’s commonly held that werewolves were passing written messages to one another even before humans figured out how to bake clay into tablets. The original writing surface was tree bark, making it easy to string together chips to form a story in physical form, whether worn as a necklace or handed from storyteller to storyteller. Although certainly a limited method of storing information, it worked well with the werewolves’ oral traditions. Each pictogram served as a mnemonic, allowing the storyteller to recount what glorious deeds had been done and in which order. 
 
 Pictograms also serve neatly as territory markers. Many septs still to this day mark the boundaries of their bawn by carving glyphs into stone. Even some urban septs mark this practice, carving the appropriate pictograms into shadowed alleyways or cornerstones. 
@@ -1354,8 +1172,6 @@ This rather open-endedness can befuddle new-changed homid cubs, at least the lit
 
 However, this approach suits the Garou rather better than one might think. Werewolves rely on their full complement of senses, and aren’t as visually 
 
-80 
-
 | | 
 
 ## Ne Sener smer nvense The Language of Glyphs Neesmanne FUReErrunarocen, 
@@ -1366,8 +1182,6 @@ Context is everything, though. Even the glyph that represents everything the wer
 
 One subsection of glyph marks that isn’t easily defined is the small onestroke markings that convey an even greater variety of meaning, depending on the glyph in question. Their meaning is almost completely different from one glyph to the next, and even their shape varies. For instance, the small “children” marks on the Children of Gaia glyph, the thin mark over the “journey” element in the Silent Striders glyph, and the mad, thorny strokes in the Black Spiral Dancers glyph — all of these are variants of the same thing. These strokes are something like pronouns and something like punctuation marks; they are without meaning of their own, but accent and clarify the meaning of whatever elements they appear with. For want of a better word, these strokes are emphatics — they elaborate upon whatever symbols they appear in without adding entirely new concepts to the mix. 
 
-8] 
-
 MSP Oe 
 
 a A.The Silver Recor? namownaneumn cvameums€ ow” 
@@ -1375,8 +1189,6 @@ a A.The Silver Recor? namownaneumn cvameums€ ow”
 | 
 
 As something ofan example ofhow concepts ofseparate elements fit together to form a common glyph, the following section looks at the pictograms of the tribes and their origins. In many cases the glyph chosen to represent a tribe came into being before the tribal name itself was chosen; needless to say, the glyphs shouldn’t be taken as literal translations of the tribes’ epithets. As with so many other things in the Garou world, symbolism is often more important than cold, hard definition. 
-
-82 
 
 Se 
 
@@ -1398,23 +1210,15 @@ Perhaps the most straightforward of glyphs, this marker represents the patrons o
 
 The Fianna glyph is emblematic of the tribe’s reputation as bards and loremasters. Their glyph indicates a howl or song rising to Luna, and that sums up the Fianna rather neatly. 
 
-83 
-
 Ee 
 
 Ka Silver Recor? nasewmmancmmr ccmmaumas€ ora’ 
 
 ## Get of Fenris 
 
-**
-
-**
-
 The Get of Fenris’ glyph symbolizes the “wolf born of wolf’; in their case, direct descent from Great Fenris. A few younglings have commented on the glyph’s similarity to the swastika, and wonder if, after centuries of the night-fear, certain humans didn’t subconsciously associate the symbol with domination and strength. Most elders strike the offending philosophers with brutal speed and force for such a suggestion; sometimes they bother to add that the youngsters might try looking up just what the swastika meant before they start jumping to conclusions. Glass Walkers 
 
 The Glass Walkers’ mark has undergone plenty of evolution over the centuries. Originally, when the tribe still called themselves Warders, it was asimple glyph with only one horizontal cross-bar, representing a simple human house. As time passed and rate,humanthe buildingsWarders became moreeventually added elabo-a second cross-bar to represent the multi-story buildings that had become common. When the tribe began calling themselves the Iron Riders during the Industrial Revolution, a third bar was added (partly to symbolize railroad tracks as well as taller buildings). Finally, in the early 20th century, the 
-
-84 
 
 Neer sence vee The Language of Glyphs Neenwane FUR. 
 
@@ -1424,19 +1228,11 @@ Glass Walkers took their current name, and amended their glyph to represent the 
 
 When the Talons becamea tribe, they chose to represent themselves with a simple glyph, easily drawn even in Hispo. Their glyph is emblematic of the tribe’s primal side and connection with their Rage. The tribal name of “Red Talons” came later, and one myth holds that it was coined by a horrified Fianna who observed a Talon attack, very red in tooth and claw. The Talons didn’t object to his characterization. 
 
-**
-
 ## Shadow Lords 
 
 The Lords’ glyph represents not so much an object as an action — it’s carved by making a clutching motion with both claws. As such, it’s representative of the Lords’ tendency to conduct their affairs with an iron fist. However, long years ofassociation have also brought that same element into the glyph language as the symbol for “shadow.” The emphatics above this motion likely originally meant “those who seize and hold,” but nowadays most werewolves read them as “those who own/master the shadows.” 
 
-8S 
-
 ne aT Silver Record nasewmmancmm commamms ow” 
-
-**
-
-89 
 
 ES CaeI The Silver Recor? nasewenanwmmr cxammaumas Loa” 
 
@@ -1447,8 +1243,6 @@ Feel free to be creative when combining glyphs as you need to. Most of the commo
 | | 4 : 
 
 | 
-
-90 
 
 Neen snse mess The Language of Glyphs Nemmune SUEareuen 
 
@@ -1472,8 +1266,6 @@ Galliard, gibbous moon
 
 Ahroun, full moon 
 
-91 
-
 ame aSThe 
 
 The Silver Recor?aeomaemmccamaume€Low’ 
@@ -1484,53 +1276,25 @@ aS: Caern Pw alliance
 
 Gnosis 
 
-**
-
 ## The Ways 
-
-**
-
-**
-
-**
-
-**
-
-**
 
 Nee semse vee The Language of Glyphs Nex: mmo remamewumarwaan. 
 
 ' S C7SE Alpha Silver Pack Ronin Jmpergium War of Rage 
 
-**
-
 ne Daan an Che Umb C. <a >[a] e@ UmMora Xe Umbra Spirits, enigmas Rite 
-
-**
-
-93 
 
 Pe CEIAThe Silver Recor? napwenancmmn crmmmeem 
 
 oa’ 
 
-**
-
 Fetish 
 
 Spirit (Jaggling, Gaffling) 
 
-**
-
-**
-
 Mountain 
 
 Earth 
-
-**
-
-**
 
 Summer 
 
@@ -1544,17 +1308,11 @@ East
 
 West 
 
-100 
-
 ee 
 
 Language of Glyphs Nesmune enanrwunsrween. 
 
 ## Cotems 
-
-**
-
-**
 
 (Dance 
 
@@ -1562,17 +1320,9 @@ Jump
 
 (Danger 
 
-**
-
-H0 
-
-**
-
 Put together, join, build 
 
 Convalescence, regeneration 
-
-**
 
 Therapy 
 
@@ -1604,8 +1354,6 @@ Coward/weakling
 
 Rival 
 
-H2 
-
 Neenmcommame The Language of Glyphs enet Perr 
 
 Observant, watch 
@@ -1618,15 +1366,9 @@ Jn memory, remembered, dead
 
 HZ 
 
-**
-
-**
-
 As much as the other Changing Breeds might be loath to admit it, the Garou have the most detailed and complete system ofshapechanger-specific writing, bar none. Certainly this has something to do with the cultures of the werebeasts involved; not one Changing Breed has the sort of group mentality that the werewolves possess. Whether they envy it or dismiss it, there’s no denying that the Garou’s pictoral code is the slickest one available. 
 
 Some shapeshifters are content to emulate the werewolves’ awn glyphs. Nowisha in particular are notable for borrowing the Garou’s pictograms in full, although the smaller size of their claws makes it difficult for them to create perfect forgeries. Likewise, the Gurah] claim to have shared the Garou’s writing system with them from the beginning of time, although the werebears use it much less frequently. If for no other reason, there’s no mistaking a pictogram carved with bearlike claws, and the Gurahl are hesitant to call attention to what limited presence they have left. The Kitsune study Garou pictograms with great fervor, but count the werewolves’ marks as only one of several forms of writing that are worthy of attention. These three Breeds are the most likely to be able understand Garou glyphs; any others must try to gather the pictograms’ meaning the hard way. 
-
-i4 
 
 Nerd ems eo eer Appendix One: The Other Breeds. mmmevemamecramareaan. 
 
@@ -1643,10 +1385,6 @@ PS
 iat Che Silver &cord sawrrmmanemmn vesamavmmLona” 
 
 particularly dire warnings in stone or concrete. As thin as the lines are, Bastet glyphs are hard to notice easily; Storytellers may well call for Perception tests of high difficulty for players even to note such markings at all. 
-
-**
-
-6 
 
 Neecdemesemenemes Appendix One: The Other Breeds. ne Per 
 
@@ -1666,29 +1404,9 @@ There are exceptions, of course. The Swara ate denoted by their territory of Afr
 
 Finally, the Ajaba’s glyph is not the one the Ajaba use for themselves; indeed, the Ajaba’s entirely different claw design makes them ill-suited to carving Bastet symbols. Instead, the Simba were the ones to mandate that the Ajaba be represented by the territorial mark for Africa, crossed with the mark ofoathbreaker. Ta the Ajaba, this is just one more insult added to the litany of injuries they’ve already suffered. 
 
-**
-
 Khan 
 
-**
-
-**
-
-**
-
-**
-
 HW8 
-
-**
-
-**
-
-**
-
-**
-
-**
 
 a: aKehe Silver Recor? saremancumresmmsens Loe” 
 
@@ -1698,15 +1416,11 @@ Asia
 
 Egypt 
 
-220 
-
 Neca samse men Apperdi One: The Other Breeds. mmmew 
 
 There’s only one designiprinciple behind theGirax's system of trail markings: pure and simple utility. The wereravens’ glyphsaen’t even really pictograms alt all; they’re just simple symbol easily gouded put with one avian foot, whos meaning is learned rather than understood. The marks aren’t even meant to b permanent in most cases; after all, what's the use of leaving a permanent sign t a gathering that’s only going to last. for afyafterncon? The Corax are most likely rage their cradl markers in the Umbra; the physical world is too cluttered and tog:populated for:them to be really viable. The mar tend to be from six to nine,iehees in height (carved by a Crinos talon, obviously, and not that of a normal raven); scratched into flat surfaces that can be easily see from the air. Luckily, podglarid-bound creatures are generally unlikely to pick up on those marks. SE , . ‘ . p I> - — ea Safe path Danger! Wryrm-spirits 5 | e @ @ f @ Weaver-spirits Fo00/ slaughter Parliament forming; This way! 
 
 Party! 
-
-**
 
 ## Immortality 
 
@@ -1716,8 +1430,6 @@ But how to decide what stories are worthy enough of such an honor? What defines 
 
 First of all, you must resist the temptation to treat the Silver Record as a glorified reward of the Renown system. That’s not its purpose at all, The purpose of the Record is to record the stories that must not be forgotten, the tales that teach young cubs how best to carry on with the great struggle. The Renown modifiers a werewolf receives for great accomplishments or terrible treachery are the lion’s share of his reward or punishment; it can be seen as a great honor to have one’s deeds entered into the Silver Record, but it isn’t even a privilege, much less aright. In short, the tales themselves are the focal point of the Record, not the participants. 
 
-122 
-
 Nercbummsamoe ums Appendix Two: Adding to the Recor? meverre. 
 
 With this in mind, it becomes easier to eliminate certain sorts of stories. I the twentieth century, it’s nigh impossible to enter a new story of battle an vanquishing foes into the Record. Essentially, the response is “been there, don thar.” By the very lofty standards of the Garou; werewolves are born warriors, an even their weakest can be remarkably ferocious in combat. As such, it’s basicall impossible to have your deeds included in the Record by virtue of a high bod count alone. Killing twenty fomori isn’t good enough. Killing a hundred fomor probably isn’t good enough. Eliminating an entire Hive single-handedly...maybe Also, remember that the Record celebrates the deeds of a pack mor frequently than it glorifies the deeds of a single hero. Werewolf cubs are weane on tales of pack unity and working togetherto overcome a foe, and loners an Ronin are treated either as tragic figuresGt 8s cowards. There’s no room for self. agerandizement in the Silver Record; #33" Most importantly, a tale from the Régord must be somehow instructive. Ii your pack has accomplished an incredible fexethat another pack had done a hundred years ago, and there’s really nothing to itidicare that your accomplishment teaches greater lesson than theirs did, therithere’s no reason to repeat their story with different names. Every single tale in the Record teaches something, whether a moral lesson or a keg s¥#akness in a petsistent foe. There are a lot of lessons in the Silver Recordi sathere’s much letstoam these days to contribute 
@@ -1726,15 +1438,11 @@ Certainly, having a tale éngered into the Reco#d#gii’t going to be nearly as 
 
 By tradition, the Garounever kept the Silver Record in only one place at one time. Great Galliards, the Keepers of the Record, maintained the history in secret sacred places, raret than caerns — the Lodges of the Silver Record. There they maintained it in its fullness, passing their duty on from one generation to the next, teaching its lessons to those who came seeking wisdom. Now, in the End Times, there are few of the sacred lodges remaining; depending on the Storyteller’s whim, there might be as many as ten in all the world, or as few as one. Toactually add something to the Record has always requireda rite, a powerful rite granted only to the most worthy. This rite, the Song of Ages, is one of the 
 
-**
-
 badges of office of the Keepers of the Record. It’s almost impossible to find a ritemaster who knows this rite at any sept; only a few remain. 
 
 For this and other reasons, the rite is traditionally performed only at concolations, where representatives from many tribes can hear the tale and speak for or against its veracity. However, the final decision of whether the tale merits inclusion or not belongs to the Keeper in attendance. Sometimes the Keeper himself hears the tale for the first time at the moot, as another Galliard bears the story to her nation. If he Keeper has heard the story beforehand and deemed it worthy, he may sing the tale to the assembled Garou even as he performs the rite, that they may hear it for the first time as it enters into the Record forever. The Gong of Ages a _ Level Five i This rite, available only to Keepersof the Silver Record (who themselves must be Galliards ofAthro rank or greater)or their students, spiritually empowers a tale, binding it to the greater bodyof the Silver Record. The ritemaster sings or chants the tale as he claws the story in pictogram form into a sanctified surface, preferably with as many onlookers and[listeners][as][possible.][When][the][tale][is] ended, the ritemaster bows to the four directions, then leads the assembled Garou in a mighty howl of acknowledgement. = System: The ritemaster rolls Charisma + Rituals, difficulty 7. If successful, the tale itself gains a kind ofspirit-essence, andisborne by the spirits to wherever a copy of the Silver Record might reside. The spirits don’t tell the story to whatever listeners might be there, unless theyare Keepers of the Record; in that case, the spirits draw out the story in glowing pictograms that only the Keeper can see, while whispering the tale inher ear. The pictograms are only temporary, so the listening Keeper carves the glyphs of the tale while repeating the words of the story. If no such qualified listener is present, then the spirits remain dormant until an anointed Keeper arrives to claim the knowledge. It’s very likely that forgotten Lodges of the Silver Record still exist in hidden areas, with spirit attendants patiently awaiting the arrival of a new Keeper. 
 
 Tales thus inscribed in the Record retain their spirit essence, although not Penumbrally, as long as the stories are told. Rumor has it that the Keepers know the route to a pocket Realm where the Record exists in purest, truest spirit form, and that they voyage there to refresh their memory or simply for pure “reading” pleasure from time to time. ' 
-
-124 
 
 Nee nemse tes Appendix Two: Adding to the Recor? mme eemamceremarerasn 
 
@@ -1742,11 +1450,7 @@ Nee nemse tes Appendix Two: Adding to the Recor? mme eemamceremarerasn
 
 Finally, remember that having one’s deeds entered into the Silver Record is essentially the ultimate honor that a Garou can earn — that, or the ultimate shame, depending on the nature of the tale. A werewolf can ask for no greater recognition, because no greater recognition exists. The Record is immortality, pure and simple; as long as the Garou survive, so will the names of their heroes and traitors. Be aware, Storytellers, that if your players take part in a tale that is ultimately entered into the Record, there’s no guarantee that any subsequent story can equal such a tale, much less top it. Having a pack immortalized in the Record might be the best and most glorious way to enda chronicle before starting anew with a fresh pack in a fresh locale; whether the tale ends in victory or in tragedy, it will be something worth remembering for the rest of the Garou’s days. 
 
-125 
-
 | 
 
 fese ape ge roles. oF GOPY Pyese Ure Bheetcles OF rool : fesserea 7 gpe-\ the.&') tiesbis so oF.cant KoaWhsclomeae f Chose ape the stoples of those who have cone otors, ane CHO} StoP1es1 2 yet a be told, 0) |boythose phoA GREYne Aad Mi ean i Great ate Srey oven today, Che tales of the Prst Civics, | olddis wars, andx the &nd’ Cimesae Ie | all are containedi, ah \ wuorthin,seit) pate ‘Chose>) gre thet legends5 that, you, too,i, way: become,| : bsg (Chisgout te is, ther Silveya8 es OS3) ocor9,RoE 
-
-**
 

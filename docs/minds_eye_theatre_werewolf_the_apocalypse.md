@@ -86,8 +86,6 @@ by Jimmy Reckitt
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-2 
-
 Alona McCreary (Order #15311115) 
 
 ## Benedictions, Dedications, and Appreciations 
@@ -123,16 +121,19 @@ Check out White Wolf online at http://www.white-wolf.com/
 
 Check out By Night Studios online at http://www.bynightstudios.com/ 
 
-3 
-
 Credits 
 
 Alona McCreary (Order #15311115) 
 
 Alona McCreary (Order #15311115) 
 
-**
-5 
+Table of ConTenTs 
+
+Alona McCreary (Order #15311115) 
+
+Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
+
+Alona McCreary (Order #15311115) 
 
 Table of ConTenTs 
 
@@ -140,31 +141,13 @@ Alona McCreary (Order #15311115)
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-6 
-
 Alona McCreary (Order #15311115) 
-
-7 
 
 Table of ConTenTs 
 
 Alona McCreary (Order #15311115) 
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
-
-8 
-
-Alona McCreary (Order #15311115) 
-
-9 
-
-Table of ConTenTs 
-
-Alona McCreary (Order #15311115) 
-
-Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
-
-10 
 
 Alona McCreary (Order #15311115) 
 
@@ -204,8 +187,6 @@ She wasn’t facing him as she fumbled with her shirt. Before she slipped it ove
 “But I didn’t give you my…” 
 
 “Trust me. I’ll call you.” 
-
-*       *       * 
 
 Josiah decided that a hundred women had left his bed in a hurry the morning after, and a hundred more would follow Áine. He lacked the same reassurance in his own words as he felt from hers that morning. Still, by the time he locked his front door, he’d repeated it until it became a comforting lie he could tell others. 
 
@@ -273,8 +254,6 @@ Inside this book, you’ll find everything you need to play a game of live-actio
 
 IntroductIon 
 
-15 
-
 Alona McCreary (Order #15311115) 
 
 setting, the dangerous world in which your character exists, and guide you through methods of storytelling the game. 
@@ -302,8 +281,6 @@ Your character isn’t the only thing that gets customized in **Mind’s Eye The
 A character is the persona you create for **Mind’s Eye Theatre** , through which you will experience the terror, danger, mystery, sadness, and tragedy of werewolves. You physically embody this character, deciding exactly what she says and does, where she goes, and what choices she makes. She begins as an idea from your imagination, but you bring her to life when you play. It is a little like creating a special mask and shaping it constantly through roleplaying. 
 
 We all wear masks—you’re a little different at work than how you are at home, different with your friends, different in your daydreams, etc. In everyday life we must all tie these 
-
-16 
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
@@ -336,8 +313,6 @@ While society goes about its day-to-day activities, distracted by modern bread a
 Everything in the **World of Darkness** is bleaker and more dangerous than it is in our own world. Packs of street thugs prowl urban jungles, while the forces of law and order are often subverted to serve the aims of the powerful and their formidable supernatural masters. Conspiracies are everywhere, and shadowy hands manipulate events behind 
 
 IntroductIon 
-
-17 
 
 Alona McCreary (Order #15311115) 
 
@@ -372,8 +347,6 @@ Werewolves in the **World of Darkness** have their own culture, religions, laws,
 Creating your character is a chance to truly unleash your imagination. This process is simultaneously very simple and fiendishly difficult. Later in this book, we’ll guide you through the steps of quickly creating a character sheet that has all the mechanical elements you will need to play the game—that’s the easy part. The effort comes when it is time to transform this collection of words and numbers into a complete persona, one that will interact believably with the other characters. Like Frankenstein’s Monster, it’s easy to assemble all the parts, but breathing life into your creation is the challenging part. You can draw inspiration for your character from nearly anything, including movies, books, 
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
-
-18 
 
 Alona McCreary (Order #15311115) 
 
@@ -415,8 +388,6 @@ Always keep your safety and that of others in mind when playing. No matter how c
 
 IntroductIon 
 
-19 
-
 Alona McCreary (Order #15311115) 
 
 addresses the matter. When finished, the Storyteller releases the time stop, and roleplaying may continue normally. (For more information, see **Chapter Ten: Storytelling: Time Stop** , page 485.) 
@@ -457,8 +428,6 @@ The book in your hands is a love letter to more than two decades of **Werewolf: 
 
 The fundamental thematic conceit of the setting has always been about the inevitability of the Apocalypse and the tireless struggle of the Garou to delay it, even if only for another day. This inherent sense of doom impacted everything the characters did. Before sitting down to design and write **Mind’s Eye Theatre: Werewolf The Apocalypse** , 
 
-20 
-
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
 Alona McCreary (Order #15311115) 
@@ -484,8 +453,6 @@ The book in your hands isn’t a clone or slight polish of the previous iteratio
 Creating a character for **Werewolf: The Apocalypse** is easy, and takes just a few minutes. The character sheet at the back of the book contains a quick and easy guide to all the rules involved in character creation, but you should also check with your Storyteller to see if there are any additional rules specific to the setting of your local game. Once you create a character, you can join a game and start playing. Enjoy the game! 
 
 IntroductIon 
-
-21 
 
 Alona McCreary (Order #15311115) 
 
@@ -555,8 +522,6 @@ Here’s a glossary of words and terms that may be new to you if you have never 
 
 IntroductIon 
 
-23 
-
 Alona McCreary (Order #15311115) 
 
 - **Renown traits:** A unit measuring the number of times a werewolf has been recognized for her service to Gaia; Renown traits can be expressed as Honor, Glory or Wisdom traits. 
@@ -616,8 +581,6 @@ Alona McCreary (Order #15311115)
 - **Fera:** Shapeshifters that can take the form of creatures other than wolves. Various breeds of Fera include wereravens, were-coyotes, were-bears, and more. 
 
 - **fetish:** an object that has been imbued with a spirit’s power, giving it magic-like supernatural abilities; fetishes can be useful objects or weapons. 
-
-24 
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
@@ -689,8 +652,6 @@ Alona McCreary (Order #15311115)
 
 IntroductIon 
 
-25 
-
 Alona McCreary (Order #15311115) 
 
 - **Sanctum of Gaia:** A faction of the Garou Nation that upholds tradition and believes that the only allies that werewolves need are the spirits and their own kin. 
@@ -734,8 +695,6 @@ Alona McCreary (Order #15311115)
 - **Triat, the:** The trinity of major spiritual entities consisting of the Weaver, the Wyld, and the Wyrm. 
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
-
-26 
 
 Alona McCreary (Order #15311115) 
 
@@ -840,8 +799,6 @@ The _Apocalypse_ is the belief werewolves hold regarding the end times—their l
 
 Every Garou attaches her own personal beliefs to the concept of the Apocalypse, viewing it through the lens of her own experiences. Many werewolves believe the destruction of most caerns marked the initial wave of the Apocalypse, and that they are now living in the final days. Whether their views are fatalistic or hopeful, they still answer to the challenge of the end times. 
 
-31 
-
 The World of darkness 
 
 Alona McCreary (Order #15311115) 
@@ -881,8 +838,6 @@ Those born under the half-moon are the arbitrators and judges of the Garou Natio
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-32 
-
 Alona McCreary (Order #15311115) 
 
 hot tempers of werewolves. They are often jacks-of-all trades and can speak with spirits almost as well as Theurges, yet fight nearly as well as an Ahroun. The Philodox are the traditional leaders of the Garou. 
@@ -913,8 +868,6 @@ These werewolves are the deformed and sterile offspring of two Garou. They are p
 Lupus Garou are born to wolves, and they often have a deep primal connection to Gaia. However, they are also frequently out of place in the urban world, having little understanding of human society. Some never even learn to speak a human language. Most hate technology and often blame humans for the problems plaguing the world. 
 
 The World of darkness 
-
-33 
 
 Alona McCreary (Order #15311115) 
 
@@ -955,8 +908,6 @@ This tenet guides Garou society as a whole, more than any other precept of the L
 
 The World of darkness 
 
-35 
-
 Alona McCreary (Order #15311115) 
 
 To a lesser extent, some werewolves consider those who have “heard the One Song” and welcome it, thus gaining an affinity to the Weaver, another threat to be destroyed. During the Age of Apocalypse, war has made for strange bedfellows, and the staggering amount of caerns destroyed has led Garou to seek alliances once thought reprehensible. Now some Garou consider it a priority to seek allies wherever they can, and even creatures like vampires, which were once killed on sight, are tolerated when bigger threats loom. 
@@ -984,8 +935,6 @@ This is another tenet of the Litany that finds its base in the ritual behavior r
 This tenet requires Garou to accept an honorable surrender. No mercy is shown to those who seek to use this precept to trick or trap the unwary. Whether such a surrender takes the form of a bearing of throat, laying down weapons, or 
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
-
-36 
 
 Alona McCreary (Order #15311115) 
 
@@ -1015,8 +964,6 @@ Garou higher in station observe this tenet by ensuring the orders they give are 
 
 The World of darkness 
 
-37 
-
 Alona McCreary (Order #15311115) 
 
 ## The First Share of the Kill for Greatest in Station 
@@ -1044,8 +991,6 @@ Few responsibilities are more dear to Garou than the protection of the Veil. The
 The Council of Tribes has frequently discussed this tenet in recent days, especially with destruction of so many Garou and caerns. Now more than ever, the Garou cannot afford attention to be drawn to their few remaining safe places and people. Elders have placed strong emphasis on being far more aware of each individual’s actions that may risk to the Veil. For this reason, those who damage the Veil without ensuring that their actions are concealed are severely punished. No more attention can be called to the Garou if they are to succeed at their tasks. 
 
 Garou who count on the Delirium to protect the Veil walk a dangerous line. While rare, there are some humans who are naturally immune to its effects, allowing them to remember in whole any supernatural activities they may witness. Especially in this day and age of cameras and smart phones, recording devices are everywhere. Combatting the Wyrm where it dwells and breeds may encourage a brave Cliath to leap a counter of a convenience store to slaughter a fomor clerk, but doing so without thinking may lead the Garou to murder any possible witnesses or commit other attention-gaining actions to cover up her activities. These two tenets of the Litany are often at odds with each other, requiring wisdom and experience discern exactly how to handle such incidents. Instead of leaping the counter, one might be better served by marking the target and staking out the store until the clerk leaves for the night alone, allowing the Cliath to accomplish her mission to combat the Wyrm, while still defending the Veil. 
-
-38 
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
@@ -1077,8 +1022,6 @@ The Tribal Councilors, when speaking about the Litany and the favored interpreta
 
 The World of darkness 
 
-39 
-
 Alona McCreary (Order #15311115) 
 
 of crisis. It is not a shield; it is not a blanket defense against any challengers arising to seek positions of leadership. It is, however, a caution and a firm reminder that such challenges are to be left for times of at least tenuous peace. Even the opposing factions among council agreed that this precept needed some additional interpretation in the modern era. 
@@ -1108,8 +1051,6 @@ _She discovered the camp by accident, blindly following the trail until she almo
 _Verity released a low howl of introduction, neither wanting to go where she was not welcome, nor be throated by an angry Elder. A smoky voice called out to her from the shadows. “I expected you two hours ago, little Fostern.”_ 
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
-
-40 
 
 Alona McCreary (Order #15311115) 
 
@@ -1161,8 +1102,6 @@ _Verity Argyris Black Fury, Historian_
 
 The World of darkness 
 
-41 
-
 Alona McCreary (Order #15311115) 
 
 ## Age of Myth: Stories of the Creation of the Cosmos 
@@ -1199,8 +1138,6 @@ In the beginning, Coyote created all things. Bored with his place in the stars, 
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-42 
-
 Alona McCreary (Order #15311115) 
 
 of the creatures to Earth, and she turned her face away from him. This is the tale of why Coyote sings to Luna every night, in hopes of gaining her blessing once again. 
@@ -1225,8 +1162,6 @@ _A legend frames the values of the society that created it and reveals the chara
 The Impergium lasted for thousands of years. Humanity came to fear the woods at night, as the Garou hunted them for sport and feasted on their flesh. Hunter and hunted were forever marked. The primal dread of the beast—known as Delirium—was burned into humanity’s consciousness, scarring them with a racial memory that is now triggered by a mere glimpse of a werewolf in Crinos form. Their overzealousness to perform their sacred duties to protect humanity and Gaia left the Garou vulnerable to the influence of the Wyrm. 
 
 The World of darkness 
-
-43 
 
 Alona McCreary (Order #15311115) 
 
@@ -1259,8 +1194,6 @@ The period of isolation ended, and the roles of the auspices within Garou societ
 The Silver Fangs and the Shadow Lords warred against the tribes that would one day be known as the Uktena, the Croatan, and the Wendigo. Receiving divine inspiration from Gaia herself, these tribes crossed the Bering Strait into what they would name the Pure Lands, where they 
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
-
-44 
 
 Alona McCreary (Order #15311115) 
 
@@ -1297,8 +1230,6 @@ Eventually the Garou lost their taste for war, but their pride kept them from ac
 
 The World of darkness 
 
-45 
-
 Alona McCreary (Order #15311115) 
 
 ignoring further requests for troops and aid. The Bone Gnawers and Glass Walkers followed suit, but they had mostly stayed out of the conflict, their interests leaning more towards humans and the new advancements in technology that had long been stymied by the Garou. 
@@ -1328,8 +1259,6 @@ The Stargazers retreated from the world, joining and founding great monasteries,
 In the Pure Lands, around 400 Before the Common Era (BCE), the Guatemalan Mayan city-states rose and came 
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
-
-46 Alona McCreary (Order #15311115) 
 
 to power over Mesoamerica. The Uktena advised caution as they discovered these humans worshipped blood gods that demanded sacrifices from their people. The Pure Ones and the hidden vampires waged a secret war for the soul of the land in shadows and the hidden places where none could see. 
 
@@ -1362,8 +1291,6 @@ _Popular legend has it that the Emperor Nero fiddled as Rome burned. If that is 
 The Red Talons watched the rise of cities and human infrastructure, such as roads and bridges, with ever-growing suspicion and fury. They argued for a return of the Impergium, but the other tribes ignored them. The humans did what they have always done: cut down trees, cleared land for farming, and tried to impose the Weaver’s will upon the Wyld. 
 
 The World of darkness 
-
-47 
 
 Alona McCreary (Order #15311115) 
 
@@ -1399,8 +1326,6 @@ On the run from the star-spawn horrors discovered in the Deep Umbra, the Ratkin 
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-48 
-
 Alona McCreary (Order #15311115) 
 
 in 1345. They were horrified to discover the new cities and advances that mankind had created. They quickly settled into 13 colonies, and the following year, they released the Black Plague to cull the human population to reasonable numbers. 
@@ -1429,8 +1354,6 @@ In time, humanity took a sharp turn towards science and logic. The Inquisition h
 
 The World of darkness 
 
-49 
-
 Alona McCreary (Order #15311115) 
 
 **
@@ -1458,8 +1381,6 @@ I beheld the future.
 I saw the decimation of our kin. Hunted beyond hunting, death beyond death, to the last one. There were no more children or grandchildren. No more fathers or mothers. This was the first Sign Phoenix gave to me, telling of what the Children of the Weaver—the Humans—would do to us. 
 
 And I looked. 
-
-50 
 
 Mind’s EyE And again, I beheld the future. ThEaTrE: WErEWolf ThE apocalypsE 
 
@@ -1499,8 +1420,6 @@ Phoenix left me then.
 
 Now, I cannot dream. I only remember the Signs, each one in perfect detail. These are the last days. May Gaia have mercy on us. The World of darkness 
 
-51 
-
 Alona McCreary (Order #15311115) 
 
 ## Age of Sorrow: Incursion of the Pure Lands 
@@ -1533,8 +1452,6 @@ Age of the Storm: Industrial Revolution to the Wild West
 _The Incursion cost the Garou a large chunk of our collective soul for our failure to live up to Gaia’s ideals. We bought some of that back in the battle against the Storm Eater, paying in blood and tears. I believe that’s when our tribal alliance became a real nation. — Verity Argyris, Black Fury, Historian_ 
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
-
-52 
 
 Alona McCreary (Order #15311115) 
 
@@ -1571,8 +1488,6 @@ _The Garou always imagined that the Wyrm was the greatest threat to Gaia. The We
 
 The World of darkness 
 
-53 
-
 Alona McCreary (Order #15311115) 
 
 ## **1901 CE to 1999 CE** 
@@ -1604,8 +1519,6 @@ The end of the fighting only brought humanity into a new conflict: the Cold War.
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-54 
-
 Alona McCreary (Order #15311115) 
 
 prepared for a final confrontation that, if fought with a nuclear arsenal, could truly end the world. During the Cold War, many tribes, such as the Shadow Lords and the Silver Fangs, adapted to the paranoid atmosphere, working as spies and information-brokers, protecting their kinfolk from the purges initiated by Stalin in the occupied Balkan states. Later, they went on to use this power to prevent nuclear war. 
@@ -1632,8 +1545,6 @@ Russian Silver Fangs suffered horrible losses on the battlefield, but the victor
 
 The World of darkness 
 
-55 
-
 Alona McCreary (Order #15311115) 
 
 Under the sign of Anthelios, the Black Furies experienced a strange turn in what was eventually dubbed the _Metamorphic Plague_ . Initially, werewolves viewed this plague as a blessing, as more and more Garou and kinfolk found themselves pregnant. It was only when the Black Furies realized that the vast majority of these pregnancies bore male children that concern began to rise. The plague caused a massive upswing in the male non-Metis born to the tribe. In subsequent years, the Metamorphic Plague was, in part, credited with inspiring the Black Furies to change the beliefs they held towards men within their tribe. 
@@ -1655,15 +1566,11 @@ Once again, the bindings that imprisoned the Storm Eater began to falter as Anth
 **
 Age of Apocalypse: The Rise of a New Generation of Heroes 
 
-**
-
 ## **2000 CE to the Present** 
 
 The new generation of humanity, the millennials, was born and raised in the loving arms and care of the Weaver. These children of the Internet have never known a world without continual and instant access to the entirety of human knowledge. The average person in First World countries wields smart mobile devices with more computing power than NASA had when they first placed a human on the moon. They connect to virtual friends, share passions and ideas without ever meeting face-to-face, and slowly begin to shape how people interact with the world. 
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
-
-56 
 
 Alona McCreary (Order #15311115) 
 
@@ -1694,8 +1601,6 @@ High King Albrecht, empowered by the Silver Crown, released envoy spirits that a
 A new generation of heroes answered the call of the High King to defend the world, but even then, the number of surviving caerns dwindled to a precious thirteen. A rip in the Gauntlet near the Sept of the Crescent Moon created a cascading effect, weakening the Material Realm’s anchor to reality. The Storm Eater was ready to claim Gaia for the Wyrm, but the Garou remained defiant in the face of oblivion, even when outnumbered with all hope seemingly lost. 
 
 The World of darkness 
-
-57 
 
 Alona McCreary (Order #15311115) 
 
@@ -1732,8 +1637,6 @@ The High King threw the Silver Crown back through the breech to the sept and lau
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-58 
-
 Alona McCreary (Order #15311115) 
 
 **
@@ -1767,8 +1670,6 @@ Many believe that former High King Albrecht is now dead, slain in his final batt
 
 **
 The World of darkness 
-
-59 
 
 Alona McCreary (Order #15311115) 
 
@@ -1805,8 +1706,6 @@ The Mokolé arranged for a meeting between the Gurahl and the Children of Gaia. 
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-60 
-
 Alona McCreary (Order #15311115) 
 
 ancient plant from the days of Pangaea, which might enable the creation of a new type of caern. When its fossilized remnants were found, they worked with the Uktena to return it to life. Together, they planted its fragments in the hearts of the remaining great caerns, and to the joy of all, they discovered the _shard seeds_ . 
@@ -1831,8 +1730,6 @@ _The Age of Apocalypse seems to have spawned another widespread change in the Ga
 _Verity Argyris Black Fury, Historian_ 
 
 The World of darkness 
-
-61 
 
 Alona McCreary (Order #15311115) 
 
@@ -1866,8 +1763,6 @@ Ecoterrorists have often allied themselves with the Garou Nation’s cause, seek
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-62 
-
 Alona McCreary (Order #15311115) 
 
 late. As their tactics have become more violent and their vision more jaded, it is clear that these humans present their own unique problem. The Wyrm has been known to influence these individuals, and its presence has only grown in recent years. Peaceful protests turn to riots, and innocent lives are lost in the fires of hate and fear. 
@@ -1877,11 +1772,6 @@ Yet there is hope. The Ahadi have been sending aid from Africa and protecting ca
 strikes. A few whisper that this is the beginning of a new Impergium, intended to reduce the world’s population to sustainable numbers, reinforcing the idea that the real enemy is humanity. Others believe that this culling is a mere stalling tactic to curb the world’s excesses until humans learn to restrain themselves. 
 
 If this world is impossible to save, it won’t be because the courage of the Garou Nation faltered. The Age of Apocalypse is a time to forge new heroes and legends to seed the next age. They stand ready to shed their blood for their mother and for all that’s been lost. Will you join them? Will you rage? 
-
-**
-**
-
-63 
 
 Alona McCreary (Order #15311115) 
 
@@ -1938,8 +1828,6 @@ The yard in front of the ranch house was pure chaos. Two Crinos Garou were surro
 
 Alona McCreary (Order #15311115) 
 
-*       *       * 
-
 The Den Parent glared down at her Cubs, her one good eye burning with barely controlled rage. The Fenrir remained silent as her charges told their story, Rickard’s eyes meeting hers as he explained the situation. 
 
 “I believe my explicit instructions were to not murder anyone, yes?” Her voice was ice-cold, directed at the Alpha. The Shadow Lord didn’t flinch from the tone as he squared his shoulders. “I hardly think it counts as murder when done in defense of our kinfolk, Vigdis-rhya. We took as many of them alive as we were able, but our first responsibility is to our kin.” 
@@ -1985,8 +1873,6 @@ Every werewolf tribe and Fera breed has a list of available merits and gifts tha
 
 A werewolf’s tribe represents her family and spiritual identity, and shapes how she sees the world. The following section offers a brief overview of each tribe, detailing its culture, strengths, and weaknesses. 
 
-69 
-
 Chapter three: tribes and Fera 
 
 Alona McCreary (Order #15311115) 
@@ -2014,8 +1900,6 @@ When the smoke and the confusion cleared, the Black Furies faced a choice—they
 The Black Furies are no softer, no less wrathful, but their viewpoints have evolved, due to their new leadership. The Age of Apocalypse has shown them that the equality they seek so viciously is a complex issue, involving more than just women and children. They realized that their exclusivity would damn them, and they started to heavily recruit other Garou and kinfolk from other tribes, bringing disenfranchised women under their wing. Those who identify as having the hearts women also received the blessing of Artemis and have been welcomed to the tribe. There are even reports that the Black Furies are keeping 
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
-
-70 
 
 Alona McCreary (Order #15311115) 
 
@@ -2057,8 +1941,6 @@ While the Ragabash seek to bring equilibrium to Gaia through asking how others c
 
 The Philodox of the Black Fury tribe have no need for questions and their subjective answers. They instead choose 
 
-71 
-
 Chapter three: tribes and Fera 
 
 Alona McCreary (Order #15311115) 
@@ -2089,8 +1971,6 @@ The Black Furies were faced with the difficult choice of dying out or forging a 
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-72 Alona McCreary (Order #15311115) 
-
 ## **Sisterhood of Fortune** 
 
 Wyld places are few in modern times, and the world is increasingly interconnected as a result of new technology. The Freebooters, seeing their demise, folded their efforts in with the Sisterhood, and their joint efforts have suited both groups. The Freebooters tapped into the Sisterhood’s network of information, using the Sisterhood’s connection with the Weaver to locate places that have not been tainted by the Wyrm or track trends that indicate a sept needs to be rescued. The Sisterhood uses the Freebooters as knowledgeable scouts in areas where they need more information and as a procurement team to retrieve items they have located. Their combined efforts have resulted in a new camp that provides more useful information for the battle against the Wyrm, as well as returning sacred items and recovering locations to the strengthen the efforts of the Black Furies, becoming a more effective team than either camp was alone. 
@@ -2110,8 +1990,6 @@ Black Fury merits can be found **Chapter Six: Merits and Flaws** beginning on pa
 ## Appearance 
 
 As a Lupus, Black Furies are small, sleek, black or dark gray wolves with white, silver, or gray streaks of fur. They exude a sense that they are wild animals, both predatory and capricious, as though their small size hides a greater danger to those who would underestimate them. 
-
-73 
 
 Chapter three: tribes and Fera 
 
@@ -2151,8 +2029,6 @@ A majority of Bone Gnawers are born as Homids, and they are used to dealing with
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-74 
-
 Alona McCreary (Order #15311115) 
 
 Homids more often live among the common populace. They maintain facades of normality and often think of themselves as fellow laborers. Most Bone Gnawers are fiercely protective of their urban territory, and of the populace living in those areas. They are protectors, guardians, and mentors, encouraging the workers and downtrodden to band together and present a unified face to the world. 
@@ -2190,8 +2066,6 @@ Street musicians, benefit band members, park players and free radio disc-jockeys
 ## **Ahroun** 
 
 Bone Gnawer warriors fight dirty, using every trick in the book—any strategy is worthwhile, so long as it succeeds. They are willing to use ambushes, explosive traps, poisons, treachery and stealth to accomplish their goals. Gruff old war veterans, gang members, physical trainers and construction workers, these Ahroun enjoy using their strength for the benefit of the community—human or Garou. Known to hold grudges, a Bone Gnawer Ahroun rarely sticks around for a fair fight, and it’s almost impossible to shame one into an honorable duel. They have honor, yes, but no need for the wasted breath of pride. 
-
-75 
 
 Chapter three: tribes and Fera 
 
@@ -2235,8 +2109,6 @@ Bone Gnawer merits can be found **Chapter Six: Merits and Flaws** beginning on p
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-76 
-
 Alona McCreary (Order #15311115) 
 
 ## Children of Gaia 
@@ -2271,8 +2143,6 @@ Children of Gaia revere the concept of love, and as such eschew planned unions i
 
 Although other tribes sometimes attempt to deride the Children of Gaia as a tribe of Metis, Homids comprise the largest breed within the tribe by a significant margin. Deeply attuned to and interested in changes to human culture, the Homids of the Children of Gaia actively work to further the concept of acceptance throughout the world, often participating in spontaneous community protection in response to current events. 
 
-77 
-
 Chapter three: tribes and Fera 
 
 Alona McCreary (Order #15311115) 
@@ -2285,9 +2155,6 @@ Although the Shadow Lords led the formation of the political group that would be
 Some say that the Shadow Lords arranged this effort from behind the scenes, so that werewolves who typically suspect the Shadow Lords’ motivations, such as the Uktena, would consider membership in the Concordat of Stars without the taint of personal bias. The Children of Gaia, however, believe that the concepts behind the Concordat of Stars originated in their own tribe, and that its central tenets, which foster the cause of unity and peace, are worth supporting regardless of the other tribes’ possible machinations. 
 
 Having succeeded in seeing the Concordat of Stars take shape within the Garou Nation, the Children of Gaia are now turning their attention outward. They seek to share the Concordat’s ideas with the Fera and even with other supernaturals inclined to support the concept of allying with the Weaver. 
-
-**
-## **Lupus** 
 
 Despite the fact that the Children of Gaia are growing as a tribe, their Lupus breed is actively dwindling. The tribe has taken steps to preserve its remaining Lupus, with many now residing on government-protected preserves or hiding on their Homid cousins’ rural lands. Recently, the tribe has reached out to other tribes whose Lupus populations are on the rise, seeking to give natural unions the opportunity to arise among wolf kinfolk of separate tribes. The idea has not yet been widely embraced by the other tribes, however, leaving the Children of Gaia still seeking ways of nurturing their Lupus. 
 
@@ -2306,8 +2173,6 @@ The Children of Gaia revere their tribal totem, Unicorn, as the epitome of peace
 Actively desiring challenges to their ideas, the tribe’s Ragabash are encouraged and invited to not only ask hard questions and serve as devil’s advocates, but they are also tasked with using the art of trickery to get Garou to consider viewpoints drastically different from their own. These Ragabash are also likely to use their inclination towards pranks to bring a humorous bent to social justice efforts, getting such events more attention and participation than they normally would. It’s rumored that a Child of Gaia Ragabash organized the first counter- 
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
-
-78 
 
 Alona McCreary (Order #15311115) 
 
@@ -2345,8 +2210,6 @@ In the past few years, a subgroup has risen up within this camp, fostering the i
 
 Chapter three: tribes and Fera 
 
-79 
-
 Alona McCreary (Order #15311115) 
 
 method for combatting the conflicts that have arisen with the Age of the Apocalypse. This subgroup strongly and vocally supports the idea of healing the Weaver’s madness, and their viewpoint has gained momentum among the camp as a whole. Its members played a key role in spreading the ideas that would become core tenants of the Concordat of Stars. 
@@ -2376,8 +2239,6 @@ Children of Gaia merits can be found in **Chapter Six: Merits and Flaws** beginn
 The smallest of the camps among the Children of Gaia, the Anointed Ones cling to the concept that all violence begets more violence. Members of this pacifist camp solemnly vow to seek the complete control over their own rage and never raise a hand to another creature—a particularly difficult path to follow, given the instinctive and often destructive nature of a Garou’s rage. Instead, they focus on finding and using those gifts that will foster the cause of peace through healing and collaboration. Many of the tribe’s most powerful healers and sages are members of this camp. Although often derided as weak, the Anointed Ones ignore such insults and continue to offer healing and knowledge to any who need their aid. 
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
-
-80 
 
 Alona McCreary (Order #15311115) 
 
@@ -2410,8 +2271,6 @@ They hold Silver Tara by a slim thread of ornery stubbornness. The armies of the
 The Fianna have discovered a glimmer of hope in the Sanctum of Gaia and that faction’s emphasis on the old ways. The Fianna have become one of the strongest supporters of the new faction, throwing their boundless passion to rebuilding the Garou Nation through its focus on tradition. 
 
 The Fianna continue to build and create as a form of worshipping the Wyld, placing traditional ideals and craftsmanship over the modern inventions and technology of the Weaver. Their adage of “knowledge, truth, and nature” places Gaia and the Wyld first, and holds nature as one of the most important features of life. The Weaver is a faithless ally, and Fianna Galliards collect and tell tales of history to remind other werewolves of that fact. The Fianna believe in tradition, history, and respecting the past. Those are the virtues that guide them. 
-
-81 
 
 Chapter three: tribes and Fera 
 
@@ -2457,8 +2316,6 @@ Druids and spiritwalkers, Fianna Theurges observe the ancient ways of blood and 
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-82 
-
 Alona McCreary (Order #15311115) 
 
 the spirits is tumultuous, particularly due to the tribe’s bloodthirsty past and the slaughter of the Fera. The spirits test Fianna more than others, and the Theurges’ duty is to pacify and continually make amends. These Garou often find employment as occult shop owners, animal handlers, or within the fields of religion and theology. 
@@ -2493,8 +2350,6 @@ This modern-oriented group of Fianna is dedicated to the use of modern technolog
 
 The Garou of the Tuatha de Fionn go through a long period of tutelage in the ways and lore of the fae, studying the old legends and myths. These werewolves have further dedicated themselves to breaking the geas placed upon their tribe by the Samhain Princess. Because of the division between the Princess and the Fianna Ard Righ, few Fianna have actually met a fae—and if they have, fewer still will speak the tale. Yet the enchanted blood within these werewolves still sings deep within their spirits, and the Ard Righ’s tale of lost love and broken hearts speaks to the romantic soul of the tribe. Other Fianna treat members of this camp with equal measures of hope and fear, as they are the most likely to shatter the curse laid upon their tribe, or make it immeasurably worse. 
 
-83 
-
 Chapter three: tribes and Fera 
 
 Alona McCreary (Order #15311115) 
@@ -2524,8 +2379,6 @@ Fianna merits can be found in **Chapter Six: Merits and Flaws** beginning on pag
 The curse of the fae noble has preyed upon the strength of emotion that runs within the blood of all Fianna. As their joy can be boundless, their sorrow can quickly overwhelm even the most stalwart. All Fianna suffer from the flaw: Harano Prone. For more information, see **Chapter Six: Merits and Flaws** , page 324. 
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
-
-84 
 
 Alona McCreary (Order #15311115) 
 
@@ -2562,8 +2415,6 @@ Before the dawning of Ragnarok, the Get of Fenris unrelentingly tracked lineages
 ## **Homids** 
 
 The Age of Apocalypse brings new trials, from the challenges of technology to the uncertain future in the information age. There can be no argument that the Weaver’s net has drawn tight over Gaia’s land, and the Fenrir, too, are caught in her grasp. It is the task of the 
-
-85 
 
 Chapter three: tribes and Fera 
 
@@ -2611,8 +2462,6 @@ The Get of Fenris have a true warrior’s culture. Deeds determine each Garou’
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-86 
-
 Alona McCreary (Order #15311115) 
 
 Tribal moots are full-moon affairs. At these gatherings, Fenrir tell tales of glorious deeds within an atmosphere of posturing, taunts, and roughhousing. They revere trophies of war, and the greatest gift one Fenir can offer another is a trophy of significance—a memento of a Garou’s most renowned deed. 
@@ -2654,9 +2503,6 @@ Get of Fenris merits can be found in **Chapter Six: Merits and Flaws** beginning
 
 Long ago, there were many kinds of shifters on Gaia’s earth—werewolves, yes, but also wereravens, werebears, and many other non-wolf breeds. During a dark period of history known as the War of Rage, Garou turned on the Fera. The Get of Fenris were leaders in this charge, attempting to force the Fera into submission or extinction. The sagas say blood flowed like rivers, and some Fera breeds were entirely eradicated. Although the Fenrir were not the only Garou committing atrocities, they were some of the most outspoken, and some Fera, particularly descendants of those in the War of Rage, still hold grudges against the tribe. 
 
-**
-87 
-
 Chapter three: tribes and Fera 
 
 Alona McCreary (Order #15311115) 
@@ -2686,8 +2532,6 @@ The destruction of most of the world’s caerns depleted the resources of the Ga
 The Bone Gnawers mediated with their brother urban tribe, but didn’t quite make the sale. Roger Daly’s surprise return instead turned the tide of opinion. As the Glass Walker who had managed to forge a lasting treaty with vampires in Vancouver, he was considered clever enough to turn the tables on both leeches and the strange human 
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
-
-88 
 
 Alona McCreary (Order #15311115) 
 
@@ -2724,8 +2568,6 @@ Glass Walker Ragabash run a broad gamut. From online trolls and hackers to high-
 ## **Theurges** 
 
 Spiritualists, new-age fundamentalists, and servants of the Machine, the Theurges of the Glass Walker tribe are less religious and more philosophical. They study the pulse of the city, finding spirituality in the interconnections of thousands of human lives. Their rituals are mechanical, mathematical, complex, and technological, dealing with the modern spirits of cities, computers, and chemical compounds. They are not afraid to integrate new ideas and new philosophies into the rituals of old. They are also the leaders in fusing spirits with circuits and cutting-edge technology, creating cyberfetishes that allow for an even more complex integration between the Weaver and the Wyld. Individuals from this auspice often become engineers, architects, and leaders in faithbased communities. 
-
-89 
 
 Chapter three: tribes and Fera 
 
@@ -2765,8 +2607,6 @@ Restoring lost limbs with prosthetic cybernetics that equal or exceed the abilit
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-90 
-
 Alona McCreary (Order #15311115) 
 
 **
@@ -2797,8 +2637,6 @@ Glass Walker gifts can be found in **Chapter Five: Gifts** beginning on page 224
 
 Glass Walker merits can be found in **Chapter Six: Merits and Flaws** beginning on page 306. 
 
-91 
-
 Chapter three: tribes and Fera 
 
 Alona McCreary (Order #15311115) 
@@ -2828,8 +2666,6 @@ Unable to fully neglect their sacred charge, the Red Talons have carried out the
 The two new political factions have not yet split the Garou Nation, despite what some alarmists have claimed, but the Red Talons instinctively can sense that two new packs are being formed, and they want no part of the Weaversympathizers. Any strong wolf knows that this is a time to push for position within the new pack and see that their will is heeded. The Sanctum of Gaia can scarcely afford to see the Red Talons go their own way, and the faction needs them now more than ever. 
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
-
-92 
 
 Alona McCreary (Order #15311115) 
 
@@ -2871,8 +2707,6 @@ Lacking any confounding secular or scientific viewpoint, the Theurges of the Red
 
 In a tribe that broadly advocates the open and unrestrained hunting of humanity, the Philodox are the dam that holds back the flood waters. When the tribe’s animal instincts urge action, they help to illustrate the broader picture of their struggle, counseling patience and restraint when needed. Outside of the tribe, they’re seen as something 
 
-93 
-
 Chapter three: tribes and Fera 
 
 Alona McCreary (Order #15311115) 
@@ -2905,14 +2739,9 @@ Having endured the Age of Apocalypse, Whelp’s Compromise, a camp that once adv
 
 While the bulk of the tribe sees to its future, the Predator Kings see to its business—furthering the Impergium as a series of guerilla conflicts. Having incorporated the Dying Cubs, the camp’s numbers have swelled, as more and more Red Talons are anxious to lash out at humanity. Members of this camp are boisterous in their agenda, openly decrying man as a prey animal out of its alignment and insisting the Garou must oppose them wherever possible. Meanwhile, they scout human conflicts to use as cover for their operations. Recently, they have begun to coordinate with the Winter Packs: clandestine groups that strike outlying human targets with deadly efficiency and vanish into the wilderness. 
 
-94 
-
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
 Alona McCreary (Order #15311115) 
-
-**
-## **Winter Packs** 
 
 What once began as a discreet project has become the secret hope for many Red Talons. At the Council of Winter, attendees realized the need for a dedicated effort at restarting the Impergium—with or without the assistance of the other tribes. Since then, Winter Packs have begun to form among the tribe. Initially, these began as cubs reared from birth to fight against humanity, but the notion has quickly spread among the Red Talons. In growing numbers, Winter Packs have formed, whose members meet in secret to carry out quiet purges of humanity. While the groups themselves are a poorly kept secret, individual Red Talons remain guarded about their membership when dealing with non-Lupus. However, as word of the Winter Packs has spread through the Garou Nation, little has been done about them. Their strikes are typically well-planned, leaving little damage to the Veil. Many who would oppose them view the rebuilding of Garou society a more pressing issue, while others secretly applaud. According to rumor, a number of Lupus from other tribes have begun talks to start working jointly with the group, worrying many that support may be growing outside the tribe for a second Impergium. 
 
@@ -2932,8 +2761,6 @@ Red Talon gifts can be found in **Chapter Five: Gifts** beginning on page 227.
 Red Talon merits can be found beginning in **Chapter Six: Merits and Flaws** on page 307. 
 
 Because of their close ties to the Wyld and the wilderness, Red Talons cannot regain Gnosis normally unless they are within a great caern, shard caern, or within line of sight of a stretch of wilderness. In cities, this makes recovering Gnosis all but impossible, as a manicured area such as a park or golf course will not suffice—the area must be untended, such as a forest preserve. This restriction applies only when attempting to regain Gnosis normally, not when Gnosis is regained through a gift or other power. Additionally, Red Talons may not take the Weaver Affinity merit. 
-
-95 
 
 Chapter three: tribes and Fera 
 
@@ -2975,8 +2802,6 @@ Homids comprise the bulk of the tribe, weaving themselves into human cultures an
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-96 
-
 Alona McCreary (Order #15311115) 
 
 ## **Lupus** 
@@ -3017,8 +2842,6 @@ Warriors and weapons, the Ahroun of the Shadow Lords utilize fear and intimidati
 
 The Shadow Lords speak openly of solidarity among their tribe, but the truth is that they are far less unified than they wish to appear. Personal agendas and ambition often overrule their sense of higher purpose, and many a Shadow Lord has been brought down by her own kin—right on the verge of ascendancy to greater power. 
 
-97 
-
 Chapter three: tribes and Fera 
 
 Alona McCreary (Order #15311115) 
@@ -3040,16 +2863,11 @@ power to destroy other Garou, and use only the thinnest of premises to justify t
 The masterminds behind the break from the Silver Fangs, the Lords of the Summit camp composes the most ruthless politicians and dealmakers within the Shadow Lord tribe. Where once content to rule from behind the throne, they have emerged from the shadows to take what they consider to be their rightful place. Composed of the aforementioned politicians, corporate officers, and lobbyists, members of this camp are smooth talkers with a penchant for manipulation at the highest levels. While the Lords of the Summit can be ruthless in their goals, many of them fully believe they are doing what is best for the Garou Nation and Gaia herself. Too long have the Silver Fangs been content to stand in one place. It is time to accomplish the tasks that Gaia has set for them. When a goal must be accomplished, it matters little how, only that it gets done. 
 
 **
-**
-
-**
 During the War of Rage, the Shadow Lord tribe did the unspeakable—they eradicated an entire breed of Fera. When the last of the Camazotz—werebats—died, the Shadow Lords heard firsthand the desolate cry of extinction. Thereafter, a tremendous bane known as the Storm Eater emerged, hunting down Shadow Lords as though compelled by a ferocious vendetta. 
 
 Commanding both the power of the Weaver and the Wyrm, it was a storm of destruction. Most werewolves thought that the Storm Eater was destroyed in December 1890, via the sacrifice of the Rite of the Still Skies. Hidden in the deepest pockets of the Umbra and in the dark, secret caves of the long-lost Camazotz, the Shadow Lords uncovered portents that hinted at the Storm Eater’s return. Sadly, the Children of Thunder lacked the context to properly understand these signs, and their eventual realization came too late. The greatest warriors fight using all of available weapons and knowledge; the tribe came to believe that if the Garou had worked closer with the Fera earlier, the spark that ignited the Age of Apocalypse could have been snuffed out before it began. 
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
-
-98 
 
 Alona McCreary (Order #15311115) 
 
@@ -3068,9 +2886,6 @@ Shadow Lord gifts can be found in **Chapter Five: Gifts** beginning on page 229.
 Shadow Lord merits can be found in **Chapter Six: Merits and Flaws** beginning on page 307. 
 
 While a Shadow Lord realizes that some things that cross the bounds of honor must be done to keep the Garou strong and Gaia safe, they still realize they will have to pay the price for these choices. When a Shadow Lord is assigned a negative moniker, the Renown loss penalties are doubled, as Grandfather Thunder punishes her for the ultimate transgression—getting caught. 
-
-**
-99 
 
 Chapter three: tribes and Fera 
 
@@ -3110,8 +2925,6 @@ Often, Silent Striders find themselves the recipients of undesired attention fro
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-100 
-
 Alona McCreary (Order #15311115) 
 
 Their knack for survival and adaptation has allowed the Silent Striders to thrive despite the recent shifts in the spiritual and political landscape of the Garou Nation. The sudden chaos in the Umbra has left many tribes reeling and without spiritual support. When the umbral storms hit, the Silent Striders were the first to take notice and act, swiftly moving through the nation to warn others, attempting to mitigate the damage. While septs attempted to rebuild from the chaos, the Silent Striders mapped the new terrain of the Umbra, noting safe passageways in the absence of Moon Bridges. Likewise, a political storm grips the Garou Nation as the Concordat of Stars and the Sanctum of Gaia both struggle to advance their conflicting agendas. Here, the Silent Striders have elected to remain a neutral party between the groups, maintaining lines of communication. Their versatility in the spiritual and political worlds has been crucial in Garou society, as septs often find themselves divided as much by treacherous environments as well as differing world views. The trust carefully maintained by the Silent Striders has helped them in this regard, making them the perfect neutral party in the Garou Nation. 
@@ -3140,9 +2953,6 @@ Much like the Homid-born of their tribe, Lupus Silent Striders come from many di
 As the vampire Sutekh fell to the hands of the Silent Striders, he issued one last curse against them: “By the names I have spoken, O Lupines, I curse you. I place my mark upon you, that you shall be forever severed from thy dead fathers and mothers. I damn you with my touch, that never again shall you rest in the lands of thy people. May the names of your ancestors be forgotten, and may their ghosts fade from hunger in the Duat. As I was cast out, so then shall you be exiled, voiceless and lost forevermore.” 
 
 The words of this curse are forever imprinted in the minds and soul of each Silent Strider. She carries this burden on her person, knowing that until the curse has ended, she will never find peace within the homelands of her ancestors. 
-
-**
-101 
 
 Chapter three: tribes and Fera 
 
@@ -3180,8 +2990,6 @@ Without the ability to connect with ancestral spirits, Silent Strider Galliards 
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-102 
-
 Alona McCreary (Order #15311115) 
 
 ## **Ahroun** 
@@ -3210,9 +3018,6 @@ Most Silent Striders adopt an Egyptian name or a Greek translation of an Egyptia
 Some Egyptian names are never selected as remembrance names. These include the names of the tribe’s historic rivals or bitter enemies; names such as Sutekh, Set, Ausare, Osiris, and Isis are all forbidden as remembrance names. Some names, such as Sebek and Bastet, are avoided out of respect for the shapeshifters these Egyptian gods resembled. 
 
 In addition to remembrance names, Silent Striders frequently have more conventional _deed names_ , either personally chosen or thrust upon them by general acclaim. It is common for tribe members to prefer one name for everyday use and reserve the other for ceremonial activities. Which name is used for which activity varies from Garou to Garou. 
-
-**
-103 
 
 Chapter three: tribes and Fera 
 
@@ -3246,28 +3051,17 @@ The Eaters of the Dead once held a revered place in society as ritualists who, t
 **
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-104 
-
 Alona McCreary (Order #15311115) 
-
-**
-## **Outposts** 
 
 Some Silent Striders have an easier time putting down roots than others, building strong local relationships or finding other reasons not to wander. By far the most common and prestigious motive for a Silent Strider to settle down is to maintain an outpost. 
 
 Silent Striders often travel by fluctuating routes and circuits. It is impossible for each tribe member to maintain a safe house near every important stopover. If a Silent Strider manages to suppress her wanderlust long enough to build a safe haven, reflected by purchasing dots of the Territory background, she is expected to maintain this valuable resource and share it with the tribe. Other Silent Striders will come to the outpost for a few nights to find lodging, food, and other resources for their journeys. A Silent Strider with the Territory background who eschews such visitors, or who does not provide the expected resources, will often develop a negative reputation within the tribe. 
-
-**
-## Gifts 
 
 Silent Striders gifts can be found in **Chapter Five: Gifts** beginning on page 233. 
 
 ## Merits 
 
 Silent Striders merits can be found in **Chapter Six: Merits and Flaws** beginning on page 308. 
-
-**
-105 
 
 Chapter three: tribes and Fera 
 
@@ -3309,8 +3103,6 @@ Homids among the Silver Fangs are well-educated, often proving to be superior sc
 
 Lupus Silver Fangs are typically larger than most wolves, displaying a regal demeanor and physical strength that 
 
-107 
-
 Chapter three: tribes and Fera 
 
 Alona McCreary (Order #15311115) 
@@ -3351,8 +3143,6 @@ The Silver fangs are a hierarchical, methodical tribe, with laws and traditions 
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-108 
-
 Alona McCreary (Order #15311115) 
 
 with the Silver Fang urge towards perfectionism and higher station, causing them to be a tribe that is both united and divided: fighting together for Gaia, but struggling to prove their individual strengths at every turn. 
@@ -3389,13 +3179,7 @@ Silver Fang gifts can be found in **Chapter Five: Gifts** beginning on page 236.
 
 Silver Fang merits can be found in **Chapter Six: Merits and Flaws** beginning on page 308. 
 
-**
-## **Madness** 
-
 Popular misconception says that members of the Silver Fangs tribe are “mad”—though rarely is such said within hearing of the Silver Fangs themselves. The burden of their intense focus to master a specific field, fighting style, or weapon; and their relentless quest for personal perfection affects their attitudes and socialization. These issues make them more prone to the Harano, or spirit-sorrow, and can make them hair-triggered in battle or in their personal life. Nevertheless, Silver Fangs see overcoming these small instabilities as a natural part of life. They are simply another test to prove a Silver Fang is worthy of the mantle of leadership among the Garou. 
-
-**
-109 
 
 Chapter three: tribes and Fera 
 
@@ -3429,8 +3213,6 @@ Over the next 10 years, with the assistance of the _Hengeyokai_ , the Eastern sh
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-110 
-
 Alona McCreary (Order #15311115) 
 
 The loss of such an integral caern would have sent any tribe spiraling into despair, but the Stargazers managed to handle the loss with grace. Years of training and adherence to the Middle Way gave them the fortitude to press forward and focus on other matters. As tribal membership continued to dip dangerously low, elders decided it was time to act. Small packs dispatched across Europe and Asia to seek out pockets of kin in hopes of rejuvenating the tribe. They discovered large packs of Lupus kin in Mongolia, running wild on the steppes. These wolves had originally followed the path of Genghis Khan’s armies, trailing behind them to pick off horses and men that had been left to die. The Stargazers found Lupus and Homid kin alike scattered throughout Europe and Asia in small numbers and brought them into the fold. 
@@ -3458,8 +3240,6 @@ Thanks in part to the tribe’s efforts during its time among the Beast Courts, 
 ## **Metis** 
 
 In a tribe that practices moderation and restraint, Metis Stargazers are rare. Unlike many other tribes, Metis born to Stargazers are treated as any young children would be—as great treasures. The shame for her birth is placed solely on the shoulders of her parents, never on a Metis herself. Some among the tribe feel that Metis are the perfect embodiment 
-
-111 
 
 Chapter three: tribes and Fera 
 
@@ -3495,8 +3275,6 @@ Ahroun of the Stargazers are also called “Heart Moons.” While these warriors
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-112 
-
 Alona McCreary (Order #15311115) 
 
 be flexible when combat arises. Some elder Stargazers find many of the young Fists to be undisciplined and dangerous, though the majority of the tribe applauds their tenacity and skill at arms, encouraging them to act according to their feelings when necessary. A Fist is often more than just a physical force of nature; she is an intelligent combatant who spends time studying the teachings of Sun Tzu, Patton, Napoleon, and Gandhi as well as various forms of weaponry. These Stargazers often find themselves working as personal trainers, tacticians, and in various security positions. 
@@ -3520,8 +3298,6 @@ After the fall of Shigalu, the warriors of the Zephyr were the first to return t
 ## **The Jade Covenant** 
 
 The Jade Covenant is a fairly new camp of Stargazers that rose as the tribe settled in among the Beast Courts. Comprised largely of traditionalists and older Stargazers, this group believes that strict adherence to the Middle Way is the only way to revive the Emerald Mother and return balance to the world. While others of the tribe have come to believe that conflict is sometimes necessary to promote harmony, the members of the Jade Covenant continue to preach that serenity and peace are of the utmost importance. 
-
-113 
 
 Chapter three: tribes and Fera 
 
@@ -3552,8 +3328,6 @@ Members of the Stargazer tribe hold themselves close to the path of the Middle W
 
 **
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
-
-114 
 
 Alona McCreary (Order #15311115) 
 
@@ -3586,8 +3360,6 @@ Generations later, the Elders of the Uktena came to the inescapable conclusion t
 The Uktena’s historic defense of the Camazotz during the War of Rage motivated other Fera to cautiously open lines of communication with the tribe. Over the centuries, the Uktena worked in tandem with the Corax, Nuwisha, and the Bastet, discovering that they share blood and kinfolk with them. At the start of the Age of Apocalypse, when the great caerns began to fall one by one, the Uktena called out to the Fera for aid. This new, fragile alliance spread across the world, and it was the Uktena who shamed the other Garou into accepting the Fera as members in the new shard caerns. 
 
 The Uktena have faced the Age of Apocalypse with new vigor, as their numbers surge thanks to their longstanding acceptance of esoteric knowledge-seekers from any culture. Their reach is now truly global. They will never be at the cutting edge of the Weaver’s gifts like the Glass Walkers or the Bone Gnawers, nor will they ever allow technology 
-
-115 
 
 Chapter three: tribes and Fera 
 
@@ -3624,8 +3396,6 @@ Many Native American Uktena were removed from their homelands, scattered and seq
 
 **
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
-
-116 
 
 Alona McCreary (Order #15311115) 
 
@@ -3665,8 +3435,6 @@ Known for their ruthless determination to protect the world from supernatural th
 
 Although generally united as a tribe, the camps of the Uktena have wildly divergent methods, leading to a friendly, almost patronizing rivalry with one another. Failure is seen as a teaching opportunity. Of course, each camp believes it holds the key to the secrets of the universe and shall be the instructor to the others in time. 
 
-117 
-
 Chapter three: tribes and Fera 
 
 Alona McCreary (Order #15311115) 
@@ -3703,8 +3471,6 @@ Uktena merits can be found in **Chapter Six: Merits and Flaws** beginning on pag
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-118 
-
 Alona McCreary (Order #15311115) 
 
 ## Wendigo 
@@ -3734,8 +3500,6 @@ the safety of the tribe and among each other they can afford to shed the tears s
 The Age of Apocalypse has shaken the bedrock of certainty upon which the Wendigo once stood. The Uktena have joined with the Shadow Lords and Glass Walkers in the Concordat of Stars, shattering the unity of the Purelander tribes. This division has brought into question whether the Wendigo’s Elder Brother plays a deeper game, seeking to learn from within, or if the Uktena tribe truly believes the Weaver is not an enemy. 
 
 A new charismatic leader and shrewd negotiator, Joseph Wintersrage, pushed the Wendigo into joining the Sanctum of Gaia, despite their antagonistic history with the Silver Fangs. This partnership elevated the Wendigo’s overall prestige amongst the werewolves, as their dedication to the Wyld and fierceness in battle impresses their new allies. The new respectful treatment from the 
-
-119 
 
 Chapter three: tribes and Fera 
 
@@ -3775,8 +3539,6 @@ Pain teaches lessons that are rarely forgotten, and ice does not forgive. The Ra
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-120 
-
 Alona McCreary (Order #15311115) 
 
 ## **Theurges** 
@@ -3808,8 +3570,6 @@ The Wendigo present a united front to outsiders, but those within the tribe know
 Members of the Warpath hold to the belief that there can be no victory over the Wyrm until the Wendigo and Uktena once more hold sole dominion over the Americas. They champion the idea that in order to succeed against the Wyrm, first they must reclaim the Pure Lands. The Warpath knows only tooth and claw will serve true vengeance to those who stole their lands. Warpath Wendigo push for the tribe to take aggressive action and take shards from those unworthy to hold them, so they may regrow their ancient caern sites. Some have even begun to make overtures to the Rokea and other aggressive breeds of Fera to find allies who share their nature. 
 
 This camp once held the largest membership among the Wendigo, but when the tribe’s caerns fell, the biggest death toll came from members of the Warpath. They are also losing members to the growing popularity of the Ghost Dance camp. Though their membership may be dwindling, they are still a loud minority among the tribal leadership. 
-
-121 
 
 Chapter three: tribes and Fera 
 
@@ -3845,8 +3605,6 @@ Wendigo merits can be found in **Chapter Six: Merits** and Flaws beginning on pa
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-122 
-
 Alona McCreary (Order #15311115) 
 
 ## The Fera 
@@ -3872,8 +3630,6 @@ affinities for werewolves. Likewise, Rank and Renown use the same rules found in
 ## Rarity 
 
 You must purchase a Rarity merit in order to create a Fera or Fera kinfolk character for the Garou Nation setting. For more information, see **Chapter Six: Merits and Flaws, Rarity Merits** , page 302. Storytellers using other settings may elect to alter these default rarities. Ask your Storyteller for more information about the character rarities used in your local chronicle. 
-
-123 
 
 Chapter three: tribes and Fera 
 
@@ -3909,8 +3665,6 @@ The Simba of the Bastet who believed that the rains ceased because of the bicker
 
 In 1984, Black Tooth enacted a coup on the Ajaba. As the hyenas gathered at Ngorongoro Crater to devise a plan to fight against him, Black Tooth and his pride swept through, leaving death and destruction in his wake. Ajaba, kin, and Cubs alike were slaughtered beneath the onslaught. They fought fiercely, but the Bastet had learned the Yava of their people and used this weakness to slay them. 
 
-125 
-
 Chapter three: tribes and Fera 
 
 Alona McCreary (Order #15311115) 
@@ -3938,8 +3692,6 @@ The Ajaba will survive. They will rebuild their numbers in their secret dens, an
 Once, the Ajaba boasted huge numbers that spread throughout Africa. The breed held to many of the same behaviors as their hyena counterparts—males fought for the privilege of breeding with the most powerful females of the clan, and relations with kin were carefully monitored; young males left their clan to join another in order to promote genetic diversity; female Ajaba ruled the clans and packs alike. Since the reign of Black Tooth and the decimation of their numbers, they have been forced to stray from these traditions. In order to preserve their culture, they must rebuild their numbers as quickly as possible. No longer are the Ajaba only descended from the people of Africa, but rather can be found scattered throughout the world in large clans. Once, the Ajaba carefully ensured they bred with only their own kin. Since Black Tooth’s rise, this has changed, as the Ajaba have realized that they must continue their 
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
-
-126 
 
 Alona McCreary (Order #15311115) 
 
@@ -3975,8 +3727,6 @@ The Midnight Ajaba have been charged with maintaining balance within the breed. 
 
 The Apex is a new aspect that has emerged in recent years. While some Ajaba are resistant to their role within the breed, others see them as an evolutionary blessing from Gaia, and a means of survival and of protecting the clans from further loss of their history. The Apex of the Ajaba take on the mantle of the Galliards, acting as historians and storytellers. They have been charged with protecting the tales of their people, using these legends to drive fear 
 
-127 
-
 Chapter three: tribes and Fera 
 
 Alona McCreary (Order #15311115) 
@@ -4010,8 +3760,6 @@ In recent years, the remaining Ajaba have worked to repair relationships with th
 
 **
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
-
-128 
 
 Alona McCreary (Order #15311115) 
 
@@ -4059,8 +3807,6 @@ An Ajaba in Crinos can attempt a bite attack without needing to grapple her oppo
 
 While in Crinos form, her Brawl and Melee skill wild card bonus increases to +6, instead of the standard +4 bonus. 
 
-129 
-
 Chapter three: tribes and Fera 
 
 Alona McCreary (Order #15311115) 
@@ -4101,8 +3847,6 @@ Ajaba in Hyaenid form are visually indistinguishable from normal hyenas, but bas
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-130 
-
 Alona McCreary (Order #15311115) 
 
 ## Ananasi 
@@ -4126,8 +3870,6 @@ The werespiders built the walls of Jericho and subsidized the Industrial Revolut
 The Ananasi suffered little in the turmoil as the Age of Apocalypse began. Already experts at tactical retreat, when trouble came to their lairs, they burrowed further into the dark, letting the worst of the destruction pass overhead. Many of them rested, using their talents to take new forms and personalities, avoiding detection and using the power of amnesia to protect their minds from being looked into by others. After the siege on the caerns ended and the flow of blood slowed, the sleeping ones opened their eyes and answered the call of their ancient queen. They woke to find a world where unraveled chaos ruled instead of order and the Great Web snagged in a hundred places. Ananasa’s children had many responsibilities, and the Damhàn have always excelled at handling the tasks put before them. 
 
 In the Age of Apocalypse, the Ananasi are the least-trusted of the Changing Breeds. Distrusted for their dedication to the Weaver’s ideals, the Garou see the werespiders as cowards and sneaks, having left the werewolves to bleed out while the Ananasi hid away and protected their own. Other Fera have long memories, and remember the Ananasi are capable of cruel and barbarous acts of manipulation in the pursuit of their goals. The Ananasi know they were never kin to the other Changing Breeds, and any view any claim of treachery as nothing more than emotional blackmail from enraged lesser creatures to whom they never owed loyalty in the first place. Instead of mewling rage, the werespiders hum in rhythm, restoring sanity to the Weaver, so Gaia might rise again. The Ananasi are peaceful in their rationality and merciless with their enemies and allies alike. 
-
-131 
 
 Chapter three: tribes and Fera 
 
@@ -4175,8 +3917,6 @@ The Ananasi do not have camps in the traditional sense; they have no political o
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-132 
-
 Alona McCreary (Order #15311115) 
 
 **
@@ -4219,8 +3959,6 @@ Meticulous and careful, the Tenere are obsessed with order. They maintain strict
 
 Chapter three: tribes and Fera 
 
-133 
-
 Alona McCreary (Order #15311115) 
 
 - › **Secean:** Myrmidon aspect (Ahroun): The Secean create order by always seeking information. They consider no secret forbidden, and are willing to go to extreme means, including starting wars and killing others, to find more information. Always prepared and expert tacticians, the Secean can quickly assess a situation, determine the flaws and strengths involved, and make the right decision. 
@@ -4244,8 +3982,6 @@ The Wyrm once was a force of needed destruction, a means for renewal, but it was
 Even as humans, Ananasi appear to have alien features. Their faces are perfectly symmetrical, and imperfections in their skin are mirrored on both sides of their bodies. Never fully human, there are always details that give them away if someone examines them, such as a pedipalps behind their teeth or extra organs located in different places from their human counterparts. In their Crawlerling form, they appear as hundreds of smaller spiders indigenous to their region, such as black widows in the American southeast to the sixeyed sand spider of Africa. 
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
-
-134 
 
 Alona McCreary (Order #15311115) 
 
@@ -4303,8 +4039,6 @@ She cannot be mistaken for anything but supernatural, even when seen from a dist
 
 The Ananasi are unique in that they break down into a hundred different spiders when they assume their Crawlering form. The swarm stays within a five-step radius of itself, moving as a unit. Killing one spider won’t affect the Ananasi, granting her greater flexibility in escaping a foe. This form is also the only one an Ananasi can use to cross the Gauntlet into the Umbra. Individual spiders within the Ananasi’s Crawlerling form are visually indistinguishable from normal spiders, but based on an individual’s native region, their coloration may vary. Since this form lacks opposable digits, Ananasi in Crawlerling cannot use weapons or most technological devices. 
 
-135 
-
 Chapter three: tribes and Fera 
 
 Alona McCreary (Order #15311115) 
@@ -4315,9 +4049,6 @@ Alona McCreary (Order #15311115)
 While they do not have Rage, Ananasi instead use their blood to fuel their abilities. An Ananasi has a maximum Blood Pool of 15. They can regain this blood by feeding on living mammals, either by making a successful bite attack or by purchasing the Herd background from Mind’s Eye Theatre: Vampire The Masquerade at regular cost. (For more information about the Herd background, see Mind’s Eye Theatre: Vampire The Masquerade, Chapter Three: Character Creation, page 102.) 
 
 An Ananasi can spend points of Blood at a rate of 3 per round. Ananasi can spend 1 point of Blood to gain an extra action. They can also spend 1 point of Blood to deal an additional point of damage of the appropriate type for their attack, and this point of Blood can be spent immediately following on a successful opposed challenge. Ananasi can spend 1 point of blood to heal aggravated damage. Ananasi may use Blood points as a substitute for Gnosis when fueling gifts, and must pay the gift’s usual costs. If an Ananasi uses a gift beyond her Rank, she must spend an additional point of Blood. 
-
-**
-## **Form Benefit** 
 
 An Ananasi in her Crawlering form is able to squeeze herself through small cracks. Ananasi in this form cannot initiate opposed challenges against characters, and all damage done to the Crawlerlings is always reduced to 1 for each incoming attack. 
 
@@ -4334,8 +4065,6 @@ Ananasi merits can be found in **Chapter Six: Merits and Flaws** beginning on pa
 The Ananasi are not a Gaian creation, and therefore are unable to gain Rage in any way. They also subsist on blood (human or otherwise) in order to fuel various gifts and abilities, and must feed on blood once per day in order to survive. Ananasi who do not feed lose 1 health level temporarily per day they do not consume blood. This damage cannot be healed until they feed. 
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
-
-136 
 
 Alona McCreary (Order #15311115) 
 
@@ -4370,8 +4099,6 @@ The Bastet do not share their werewolf cousins’ prejudices towards Metis. The 
 ## **Homids** 
 
 Charismatic leaders, Homid Bastet retain a measure of feline grace and charm, which serves them well in their interactions with the human world as well as with other Bastet. They see opportunity in the technology and data storage solutions of the modern world, providing them with another way to access the secrets that others wish 
-
-137 
 
 Chapter three: tribes and Fera 
 
@@ -4408,8 +4135,6 @@ to hide. As such, many Bastet Homids are gifted hackers, spies, and diplomats. T
 ## **Feline** 
 
 Feline Bastet have had the hardest time adjusting to evolutions in shapeshifter culture. Fiercely independent, they struggle to reconcile their nature with rapid changes. The saving grace for them is Seline’s spiritual intervention. Felines are deeply attuned to the spirital world, and as such 
-
-139 
 
 Chapter three: tribes and Fera 
 
@@ -4467,8 +4192,6 @@ While in Sokto form, her Dodge skill wild card bonus increases to +5, instead of
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-140 
-
 Alona McCreary (Order #15311115) 
 
 ## **Crinos** 
@@ -4521,8 +4244,6 @@ Bastet gifts can be found in **Chapter Five: Gifts** beginning on page 247.
 
 Bastet merits can be found in **Chapter Six: Merits and Flaws** beginning on page 311. 
 
-141 
-
 Chapter three: tribes and Fera 
 
 Alona McCreary (Order #15311115) 
@@ -4558,8 +4279,6 @@ Through all of this, the Corax act as they always have; they gather, they verify
 The children of Raven are Gaia’s spies, born to root out and disinter deeply buried truths, then reveal them to anyone who is wise enough to ask the right questions. Their souls are held together by forgotten lore, whispered rumors, and the most minute details of others’ histories, lives, and legends. The Corax perch high on the wires above the world and the dream spaces of the Umbra; nothing is safe from their eyes. 
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
-
-142 
 
 Alona McCreary (Order #15311115) 
 
@@ -4607,12 +4326,7 @@ The Internet has been a great boon to the Corax, allowing them to access more kn
 
 Chapter three: tribes and Fera 
 
-143 
-
 Alona McCreary (Order #15311115) 
-
-**
-## **Raven’s Laws** 
 
 - There are no secrets; everything should be revealed. 
 
@@ -4669,8 +4383,6 @@ While in Harpyia form, her Dodge skill wild card bonus increases to +3, instead 
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-144 
-
 Alona McCreary (Order #15311115) 
 
 ## **Rara Avus** 
@@ -4717,8 +4429,6 @@ A Corax in her _Corvus Magnu_ s form is massive raven, with the approximate mass
 
 Corax have a hard time keeping secrets or leaving mysteries unsolved. When asked a direct question or confronted with the possibility of learning a secret, the Corax may choose to expend 1 point of Willpower to avoid answering the question with the truth (and possibly answering with even more than was asked) or to temporarily delay pursuing a lead; if you do not expend this Willpower, your compulsion requires you to speak your knowledge truthfully. In addition, Corax are susceptible to gold instead of silver. 
 
-145 
-
 Chapter three: tribes and Fera 
 
 Alona McCreary (Order #15311115) 
@@ -4733,8 +4443,6 @@ Corax merits can be found in **Chapter Six: Merits and Flaws** beginning on page
 
 **
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
-
-146 
 
 Alona McCreary (Order #15311115) 
 
@@ -4763,8 +4471,6 @@ For centuries, the Gurahl lived, withdrawn in isolation, the lessons of the War 
 As the events of the Age of Apocalypse began, the Gurahl again hesitated to work alongside the werewolves, their 
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
-
-148 
 
 Alona McCreary (Order #15311115) 
 
@@ -4801,8 +4507,6 @@ Gurahl do not choose a new auspice bonus as they transition into new Ranks. Inst
 New Gurahl characters are created under their current auspice, as defined by their present Rank. including gift affinities and auspice skill bonuses. 
 
 When creating a new Gurahl character, you cannot apply the auspice bonuses, as defined by her current number of dots in the Rank backround, and then purchase additional dots of Rank. If you wish to raise the number of dots you 
-
-149 
 
 Chapter three: tribes and Fera 
 
@@ -4847,8 +4551,6 @@ Gurahl meet formally once a year for the Autumn Council, an event observed throu
 Drawing their lineage from black bears, the Forest Walkers are cunning, curious, and independent-minded. Among the Gurahl, they were the first to receive the Mokolé, and they advocated strongly in favor of assisting the Garou and other Fera. Having met with success in the creation of the shard seeds, this group intends to take their work even further. The tribe is discussing the possibility of bringing an extinct species back to life, a proposition met with much controversy in the other tribes. 
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
-
-150 
 
 Alona McCreary (Order #15311115) 
 
@@ -4910,8 +4612,6 @@ The core tenets of the Gurahl are defined in the Code of Ursa. All Gurahl are ta
 **
 Chapter three: tribes and Fera 
 
-151 
-
 Alona McCreary (Order #15311115) 
 
 At a distance, an Arthren may be mistaken for a large human, but when viewed in close proximity, she appears distinctly unnatural. 
@@ -4966,8 +4666,6 @@ In addition, she can attempt to recognize others by scent and track them (see **
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-152 
-
 Alona McCreary (Order #15311115) 
 
 ## Weakness 
@@ -4991,8 +4689,6 @@ Gurahl merits can be found in **Chapter Six: Merits and Flaws** beginning on pag
 - **Rage 9:** Each time you take aggravated damage, you may choose to convert 1 additional point of aggravated damage to normal damage. 
 
 These effects are cumulative. As a Gurahl takes damage, apply any applicable benefits in order, starting with the lowest Rage benefit first. 
-
-153 
 
 Chapter three: tribes and Fera 
 
@@ -5032,8 +4728,6 @@ Kitsune born from human parents find themselves quickly torn between two worlds.
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-154 
-
 Alona McCreary (Order #15311115) 
 
 to be different, allowing them to be cunning spies within the human world and master diplomats between the various supernatural factions. 
@@ -5069,8 +4763,6 @@ Brave and cunning, the Kitsune Ahroun are known as the _Eji_ . While Kitsune lac
 ## Organization 
 
 The Kitsune have a feudal system of organization, based on lineage, oaths of service, and debts of honor. They hold a reverence for those who have survived and the wisdom 
-
-155 
 
 Chapter three: tribes and Fera 
 
@@ -5123,8 +4815,6 @@ One of the newest camps to appear in the Age of Apocalypse, Rusty’s Rumspringa
 A Stargazer Galliard once described the Kitsune as though they were about to step out of a magnificent painting— otherworldly, beautiful, and impossibly serene. The NineTails project an elegant demeanor and natural grace, regardless of their current form. 
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
-
-156 
 
 Alona McCreary (Order #15311115) 
 
@@ -5182,8 +4872,6 @@ While in Juko form, a Kitsune receives 3 total additional health levels, one in 
 
 A Kitsune in her _Kyubi_ form is said to be wearing her Roko skin. Kitsune in Kyubi form are visually indistinguishable from normal foxes, but based on an individual’s native region, her coloration may vary; Kitsune encompass every breed of vulpine found throughout the world. Since this form lacks opposable digits, Kitsune in Kyubi form cannot use weapons or most technological devices. 
 
-157 
-
 Chapter three: tribes and Fera 
 
 Alona McCreary (Order #15311115) 
@@ -5209,8 +4897,6 @@ Kitsune gifts can be found in **Chapter Five: Gifts** beginning on page 253.
 Kitsune merits can be found in **Chapter Six: Merits and Flaws** beginning on page 313. 
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
-
-158 
 
 Alona McCreary (Order #15311115) 
 
@@ -5243,8 +4929,6 @@ like their earthbound counterparts, these Nuwisha worked in solitude, often find
 The beginning of the Age of Apocalypse was difficult for all of the shapeshifters, though the Nuwisha were perhaps hit the hardest. Many of the oldest and brightest members of the Umbral Dansers found themselves caught in violent umbral storms. Some perished as they attempted to influence or divert the storms from catching unknowing septs in their paths. Still others found themselves blown into the dark parts of the Umbra—they have not yet been recovered. On Earth, the remaining Nuwisha saw the Wyrm’s advance, and they leapt to the defense of nearby septs, often working in secret as they attempted to protect these places of power. 
 
 As the umbral storms began to fade, the Nuwisha gathered for their yearly festival to discuss how to best help. The fight against the Wyrm grew more desperate, and it was apparent that the Garou needed all the help they could get. 
-
-159 
 
 Chapter three: tribes and Fera 
 
@@ -5286,8 +4970,6 @@ Legend holds that millennia ago, Luna and Coyote were once the best of friends. 
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-160 
-
 Alona McCreary (Order #15311115) 
 
 **
@@ -5322,13 +5004,7 @@ The Nuwisha lead largely solitary lives, content to roam the globe and Umbra wit
 
 The most striking feature of any Nuwisha, and the one that they all share, is their resemblance to Coyote through laughter and smile. Many Nuwisha seem to carry a cheerful expression wherever they go; although this smile often turns sinister when they are angry or upset. In their Latrani form, they are identical to any other coyote, with thick coats and bushy tails. Although a Nuwisha’s howl differs slightly from that of her Garou brethren, she is able to easily communicate with coyotes and wolves alike. 
 
-**
-## **The Festival** 
-
 Once a year, all Nuwisha are called to gather for a festival. This event is a time for sharing news and planning the next great trick on the Wyrm. Explorers share knowledge of dangerous areas found in the Umbra, and Nuwisha who are in need of assistance come forth to make their plea. When the business is completed, revelry reigns supreme, as the breed comes together as one large family to celebrate their lives. Festival rules prohibit Nuwisha from harming one another; this is a time for all feuds to be set to the side. 
-
-**
-161 
 
 Chapter three: tribes and Fera 
 
@@ -5390,8 +5066,6 @@ While in Sendeh form, she receives 3 total additional health levels, one in each
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-162 
-
 Alona McCreary (Order #15311115) 
 
 **
@@ -5402,9 +5076,6 @@ The last century has seen the rise of a new predator in the Northeastern United 
 While most believe these creatures occur naturally, the Garou have discovered that their origins are far more sinister. It is true that the first coywolves came about through the natural pairing of a coyote and wolf; however, modern creatures have been deliberately bred and developed in Wyrm-controlled labs in the Northeast. 
 
 These genetic experiments have been used to infiltrate urban areas and even attack unsuspecting humans, although the true purpose behind their creation is yet unknown. Nuwisha and Garou alike hunt these creatures down and destroy them when they are able. 
-
-**
-## **Latrani** 
 
 A Nuwisha in her coyote form is said to be wearing her _Latrani_ skin. Nuwisha in Latrani form are visually indistinguishable from normal coyotes, but based on an individual’s native region, her coloration may vary. While this form mirrors the lean, cunning coyote, it lacks the strength and flexibility of the humanoid forms. Nuwisha in their Latrani form come in a wide range of colors, though their fur tends to be light gray, red, or tawny. As with coyotes, those Nuwisha from higher elevations tend to have more black and gray shades, while their desertdwelling counterparts are often light gray or white. Since this form lacks opposable digits, Nuwisha in Latrani form cannot use weapons or most technological devices. 
 
@@ -5427,8 +5098,6 @@ Nuwisha gifts can be found in **Chapter Five: Gifts** beginning on page 255.
 ## Merits 
 
 Nuwisha merits can be found in **Chapter Six: Merits and Flaws** beginning on page 313. 
-
-163 
 
 Chapter three: tribes and Fera 
 
@@ -5461,8 +5130,6 @@ The Ratkin share the undercities of humanity with the Bone Gnawers and a strange
 
 **
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
-
-164 
 
 Alona McCreary (Order #15311115) 
 
@@ -5503,8 +5170,6 @@ The Theurges among the Ratkin are known as _Shadow Seekers_ for their love of se
 ## **Knife Skulkers – Philodox** 
 
 Among the Ratkin, the Philodox are known as the _Knife Skulkers_ . They serve as mediators and advocates between the Ratkin and outsiders, occasionally selling their services when it benefits their Nests. The Knife Skulkers keep the sacred laws of the Ratkin: the Litany of Survival. They are responsible for the entirety of the legal system within the Nests; acting without the need for the human constraints of courts, lawyers, or councils, they have the authority 
-
-165 
 
 Chapter three: tribes and Fera 
 
@@ -5558,8 +5223,6 @@ The Ratkin returned to the Material Realm with a new litany to ensure they would
 **
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-166 
-
 Alona McCreary (Order #15311115) 
 
 the Litany of Survival to be merely a set of guidelines. They rummage through corporate garbage dumps and decipher government codes to discover “what’s really happening out there” and use their enemies’ own poisons against them. The Twitchers argue that only by abandoning the concepts of self and ego, by forgoing plans and schemes, and simply being as the Wyld intended, that the Weaver might be finally be destroyed. 
@@ -5610,8 +5273,6 @@ A Ratkin in Crinos form can attempt a bite attack without needing to grapple her
 
 While in Crinos form, a Ratkin’s Athletics and Dodge skill wild card bonus increases to +6, instead of the standard +4 bonus. 
 
-167 
-
 Chapter three: tribes and Fera 
 
 Alona McCreary (Order #15311115) 
@@ -5652,8 +5313,6 @@ In addition, she can attempt to recognize others by scent and track them (see **
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-168 
-
 Alona McCreary (Order #15311115) 
 
 ## Rokea 
@@ -5683,8 +5342,6 @@ unusual changes in the waters. Representatives from all regions of the Sea gathe
 The Age of Apocalypse ended the hope that isolation could protect the Sea from the scourge of humanity. Climate change, ecological disasters, and pollution poisoned the Sea to toxic levels. This situation weakened the great grottos, and when the umbral storms came, they were virtually defenseless. None are known to have survived the devastation. Many of those who lived below the waters, like the magnificent Merfolk, passed into extinction. Tainted horrors awoke from millennia of slumber, ready to claim the Sea as their own. 
 
 Still, the defiant Rokea refused to break the taboo of contact with the UnSea and the humans, until word spread from slew to slew of a calamity striking new Rokea pups. Litter after litter died stillborn. Some Darkwaters speculated that the lack of the grottos allowed tainted waters to kill their 
-
-169 
 
 Chapter three: tribes and Fera 
 
@@ -5730,8 +5387,6 @@ Keepers of the laws and stories, the Galliards of the Rokea are known as _Dimwat
 
 Savage, with a hunger for blood and violence that is never sated, the Rokea Ahroun are known as _Brightwaters_ . Their 
 
-170 
-
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
 Alona McCreary (Order #15311115) 
@@ -5765,8 +5420,6 @@ This camp admires the ancient predators they have discovered and has begun makin
 The Rokea maintain an inhumanly stoic demeanor. They project menace and a savage hunger that can turn on those around them at a moment’s notice. Rokea are always moving, even in human form. Rokea Homids tend to have a strange look about them, with sunken ears, bulged, unblinking eyes, and large mouths and lips. 
 
 Chapter three: tribes and Fera 
-
-171 
 
 Alona McCreary (Order #15311115) 
 
@@ -5818,8 +5471,6 @@ In this form, a Rokea must be in the water to survive, or she will die from hypo
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-172 
-
 Alona McCreary (Order #15311115) 
 
 ## **Form Benefit** 
@@ -5852,8 +5503,6 @@ Such a form has natural limitations outside of the Sea, including the need to re
 
 A Rokea in Swimming Jaws form can attempt a bite attack without needing to grapple her opponent first. In addition, while underwater she can attempt to recognize others in the water by scent and track them (see **Chapter Eight: Dramatic Systems, Tracking** , page 402). Squamus-breed characters in this form can more easily decrease their current Rage if they choose (see **Chapter Eight: Dramatic Systems, Rage, Losing Rage** , page 377). In addition, a Rokea gains access to the subtle art of communicating underwater by electric impulses, known as the _Sending_ , which allows her to speak to other Rokea up to a mile away underwater. 
 
-173 
-
 Chapter three: tribes and Fera 
 
 Alona McCreary (Order #15311115) 
@@ -5872,8 +5521,6 @@ Each player assumes the role of a character, a persona within the context of the
 troupe’s story evolves, you can watch your character grow and develop, have successes and failures, and perhaps resolve the story in a glorious death. Ultimately, the character you create becomes as real and as timeless as one of the great protagonists (or antagonists) in a literary work. To guarantee that all players use the same capabilities for their characters, the rules of **Mind’s Eye Theatre** (MET) provide a single, simple set of guidelines for character creation. 
 
 This chapter describes how to create a werewolf character. You begin with a general concept, and then translate that spark of creation onto a character sheet, using the various mechanics of the game. The process is simple, but it is often worthwhile to create characters with the Storyteller’s collaboration, so that she can answer questions and guide the creation process to match her unique setting. 
-
-175 
 
 Chapter Four: CharaCter Creation 
 
@@ -5933,8 +5580,6 @@ Alona McCreary (Order #15311115)
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-176 
-
 Alona McCreary (Order #15311115) 
 
 ## Step Seven: Assign Initial Skills, page 186 
@@ -5993,8 +5638,6 @@ Alona McCreary (Order #15311115)
 
 - Prepare your costume, print out your sheet for easy reference, and go to game! 
 
-177 
-
 Chapter Four: CharaCter Creation 
 
 Alona McCreary (Order #15311115) 
@@ -6032,8 +5675,6 @@ Carl Jung proposed the concept of _Archetypes_ , universally understood symbols 
 Each Archetype summarizes a type of character or personality, offering a basic impression of the character. Is your character a Con Artist, or is she more of a Loner? By choosing an Archetype, you tell the Storyteller (and other players) what they should expect to see in this character’s roleplay. It doesn’t mean that your Con Artist can’t occasionally tell the truth; the Archetype only implies the character’s most important, and most prevalent, qualities. Once per hour, when you are performing an action (or resisting an action) that exemplifies your Archetype, you receive a free Willpower retest. This retest doesn’t cost you a point of Willpower, but it takes the place of your normal Willpower retest. You cannot use both Archetype and Willpower to retest on the same test. 
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
-
-178 
 
 Alona McCreary (Order #15311115) 
 
@@ -6121,8 +5762,6 @@ Alona McCreary (Order #15311115)
 
 Chapter Four: CharaCter Creation 
 
-179 
-
 Alona McCreary (Order #15311115) 
 
 ## Step Two: Record Initial XP 
@@ -6160,8 +5799,6 @@ Further, many Theurges speculate that the natural balance is attempting to resto
 
 **
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
-
-180 
 
 Alona McCreary (Order #15311115) 
 
@@ -6208,8 +5845,6 @@ Tricksters, scouts, spies, rogues, and quixotic visionaries, _Ragabash_ are born
 - Stealth 
 
 - Subterfuge 
-
-181 
 
 Chapter Four: CharaCter Creation 
 
@@ -6289,8 +5924,6 @@ The gibbous, nearly-full moon marks the auspice of the _Galliard_ . Galliards ar
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-182 
-
 Alona McCreary (Order #15311115) 
 
 - **Fianna** —A passionate tribe of builders and makers believed to be touched by the fae. Their tribal totem is Stag, noble and strong. (See **Chapter Three: Tribes and Fera, Fianna** , page 81.) 
@@ -6341,8 +5974,6 @@ _Attributes_ quantify a character’s innate strengths and weaknesses. Depending
 
 A character should also be weak in some attributes. Creating a character who is an imperfect individual makes her more realistic, and gives the character weaknesses that she can overcome during the course of the chronicle. Moments of growth are good for a protagonist, and raising an attribute 
 
-183 
-
 Chapter Four: CharaCter Creation 
 
 Alona McCreary (Order #15311115) 
@@ -6388,8 +6019,6 @@ _Three-Paw the Uktena is investigating the contamination of a local river. Depen
 ## Attribute Bonuses 
 
 All werewolves have a default maximum of 10 dots in each of the three categories: Physical, Social, and Mental. Humans 
-
-184 
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
@@ -6437,9 +6066,6 @@ When making a challenge that relates to your character’s Mental focus and is n
 ## **Optional Rule** 
 
 Storytellers may allow new or inexperienced players to change their focuses within the first three game sessions, if they feel that the player honestly made a mistake or misunderstood the system. 
-
-**
-185 
 
 Chapter Four: CharaCter Creation 
 
@@ -6490,8 +6116,6 @@ You might wish for your character to be trained in both Science: Biology and Sci
 Repairing or modifying equipment is considered part of the skill associated with the item. For example, a character with the Firearms skill can repair a jammed gun. A character with the Computer skill can repair or upgrade a computer. A character with Drive can repair any vehicle she can utilize with that skill. 
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
-
-186 
 
 Alona McCreary (Order #15311115) 
 
@@ -6545,8 +6169,6 @@ Characters with _Brawl_ can use appropriate combat maneuvers when engaging in un
 
 You have the knowledge required to operate and program _computers_ , including mobile devices. In addition, you have 
 
-187 
-
 Chapter Four: CharaCter Creation 
 
 Alona McCreary (Order #15311115) 
@@ -6592,8 +6214,6 @@ A character trained in _Empathy_ tends to be educated in fields such as psycholo
 By speaking briefly with a subject, your character learns whether or not the subject has any derangements. If your character examines her target for a few minutes, she can determine which derangement(s) the target has. If your character is aware of a target’s derangement, she can spend 
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
-
-188 
 
 Alona McCreary (Order #15311115) 
 
@@ -6649,8 +6269,6 @@ To know more about the supernatural world, a character must collect and study _L
 
 For every dot of Lore that a character possesses, the player chooses one category in which to specialize. Whenever a 
 
-189 
-
 Chapter Four: CharaCter Creation 
 
 Alona McCreary (Order #15311115) 
@@ -6699,8 +6317,6 @@ A character with the Performance skill can temporarily increase her Fame backgro
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-190 
-
 Alona McCreary (Order #15311115) 
 
 actions, see **Chapter Eight: Dramatic Systems, Downtime Actions** , page 387). 
@@ -6740,8 +6356,6 @@ As long as your path leads through a densely populated urban area, it is not pos
 ## Subterfuge 
 
 Lies, bluffs, and subtle games of manipulation are the purview of those who have studied the art of _Subterfuge_ . An individual trained in this skill is capable of hiding her intentions and redirecting the attention of others in order to deceive them. You may be at your best with feats of “magical” misdirection, or you may be a con artist, making money playing three-card-Monte on the streets. You may use phraseology to confuse your listener, or you might be the sort to utilize small feats of hypnotism to confuse and distract. Like the old hucksters used to say, there’s a sucker born every minute. 
-
-191 
 
 Chapter Four: CharaCter Creation 
 
@@ -6807,8 +6421,6 @@ _Tristan has 3 dots in his own personal Territory background, but also wishes to
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-192 
-
 Alona McCreary (Order #15311115) 
 
 _purchases 2 dots of that background. Tyson shares a pack and totem with Tristan, and  he contributes 1 dot to the shared Territory background. The pack members consult and choose which benefits these 3 total dots provide from the shared Territory background. Every pack member notes them on their character sheets for future reference._ 
@@ -6844,8 +6456,6 @@ You maintain a second _Alternate Identity_ , complete with papers, birth certifi
 In order to determine if a character is using an Alternate Identity, you may choose to spend a number of downtime actions investigating a character you suspect of having an Alternate Identity, researching your target’s bona fides. After you have spent your chosen number of actions, make a challenge using your Mental attribute + Investigation skill versus the target’s Mental attribute + Subterfuge skill. If you succeed in this challenge, and you have spent a number of downtime actions equal to or greater than your target’s dots of Alternate Identity, you discover the true identity of the target character. 
 
 If you fail the test, if you have not spent a number of downtime actions that equal or exceed your target’s dots of Alternate Identity, or if your target is not using an Alternate Identity, the identity appears legitimate. Storytellers should conduct the test in secret so as to avoid indicating whether or not someone is using an Alternate Identity. Additionally, a Storyteller should not tell a player in advance how many downtime actions are needed to thoroughly investigate someone, or if such an investigation is even warranted. 
-
-193 
 
 Chapter Four: CharaCter Creation 
 
@@ -6889,8 +6499,6 @@ You can use this background once for each dot of Contacts the character possesse
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-194 
-
 Alona McCreary (Order #15311115) 
 
 ## Fame 
@@ -6905,8 +6513,6 @@ When you interact with humans who recognize your character’s Fame, you can add
 
 - Local scene 
 
-- •• City 
-
 Dots of this background are not lost if a fetish you have attuned is lost, stolen, or abandoned. Instead, you can reallocate your dots of this background to attune yourself to new or different fetishes. Note this background does not provide you with a fetish. Rather, it is a measure of your ability to correctly use and care for one. For the complete rules on fetishes, see **Chapter Fifteen: Influences and Equipment, Fetishes** , page 716. 
 
 ## Influences 
@@ -6916,8 +6522,6 @@ The _Influence_ background is a mechanical means to express the series of social
    - **Elite** : You have influence over the upper crust, those who are wealthy, hold legitimate power, own corporations, or control noteworthy institutions. These individuals live in a world of wealth and affluence. 
 
    - **Underworld** : You have influence over those who work outside of the law, whether they represent working classes looking the other way, or those who live on the street ruling gangs and drug cartels, running networks of thieves or controlling intricate cultural bureaucracy. These individuals live in a world of rumors, whispers, and lies. 
-
-- ••• State 
 
 - ••••  Adjoining states/region 
 
@@ -6942,8 +6546,6 @@ Information about utilizing Influence is detailed in **Chapter Fifteen: Influenc
 While humans find the company of werewolves uncomfortable, _kinfolk_ suffer from no such limitation. For that reason, many Garou rely upon their kinfolk to assist when a softer touch is needed. A werewolf’s Kinfolk background may represent humans or wolves, likely family members, fiercely dedicated to helping your cause. Unlike the Allies background, your kinfolk are always available when you need them. They can be trusted to oversee your personal effects, defend your property, and further your goals. 
 
 A kinfolk does not have the specialized knowledge of a Contact, nor the broad capacity to perform favors like Allies do, but she is more loyal and resilient than either of the other two. A kinfolk fights if necessary, though Garou who needlessly place kinfolk in the line of fire are likely to find themselves punished. 
-
-195 
 
 Chapter Four: CharaCter Creation 
 
@@ -6973,9 +6575,6 @@ You are a student, the lowest rung of Garou society (other than a Cub). At this 
 
 You are a general member of Garou society. Werewolves who wish to contribute, but don’t aspire to leadership (or greatness), often do not advance beyond the Rank 
 
-**
-## **Rank Chart** 
-
 |||||||||
 |---|---|---|---|---|---|---|---|
 ||**Rank**|**Bonus**<br>**Attributes**|**Gift Level**|**Innate**<br>**Renown**|**Downtime Action**<br>**Bonus/Requirement**|**Skill Cost**||
@@ -6988,8 +6587,6 @@ You are a general member of Garou society. Werewolves who wish to contribute, bu
 |||||||||
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
-
-196 
 
 Alona McCreary (Order #15311115) 
 
@@ -7039,8 +6636,6 @@ Like children of all species, younger werewolves learn at an exceptional rate, m
 
 Chapter Four: CharaCter Creation 
 
-197 
-
 Alona McCreary (Order #15311115) 
 
 When purchasing skills, Cub (Rank 0), Cliath (Rank 1), and Fostern (Rank 2) Garou spend XP equal to the skill’s new level, rather than the standard rate of new skill level x2 XP. 
@@ -7072,8 +6667,6 @@ The Resources background provides a guideline for a general standard of living. 
 - •••• **Wealthy** : You rarely touch cash, as most of your assets exist in tangible forms that are themselves more valuable and stable than paper money, such as gold, diamonds, and gems, or in massive credit reserves based on these holdings. You hold more wealth than many who would claim to be your peers, but it’s likely they underestimate your true total net worth. At this level of wealth, banks and government institutions closely monitor how you convert your money to cash. You can easily spend up to $100,000 in liquid cash per month without attracting the wrong kind of attention. 
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
-
-198 
 
 Alona McCreary (Order #15311115) 
 
@@ -7117,8 +6710,6 @@ Seasonal Rites are deeply rooted in the wellbeing of a sept and its members. The
 
 Chapter Four: CharaCter Creation 
 
-199 
-
 Alona McCreary (Order #15311115) 
 
 ## Spirit Pact 
@@ -7155,12 +6746,7 @@ Every time you purchase a dot of the _Territory_ background, choose one of the f
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-200 
-
 Alona McCreary (Order #15311115) 
-
-**
-## **Fera** 
 
 Fera may join packs of werewolves, and they can benefit from the Totem background. While some Fera are solitary, certain groups may form packs of their own.  Like Garou, Fera  contribute to a pack’s diversity according to their auspices. 
 
@@ -7197,8 +6783,6 @@ Changing your pack’s totem or changing the bonuses it offers requires the memb
 ## **Animal Communication** 
 
 When creating this totem, choose a type of animal. Individuals benefiting from this bonus can communicate with the chosen animal type without using a gift to do so. Additionally, once per game session, characters with this bonus can summon animals of this type, which will do their 
-
-201 
 
 Chapter Four: CharaCter Creation 
 
@@ -7246,8 +6830,6 @@ Characters in the pack can communicate mentally, as long as they are in the same
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-202 
-
 Alona McCreary (Order #15311115) 
 
 ## **Resilient** 
@@ -7284,9 +6866,6 @@ If you wish to change your selected bonuses, or if you wish to take advantage of
 ## **New Pack Members** 
 
 Adding new pack members involves taking the inductee on a Simple Umbral Quest to meet your totem or one of its minions. Once your totem has acknowledged a new member of your pack, she gains access to totem bonuses, assuming she possesses dots of the Totem background. If a new member increases your pack’s diversity, allowing the totem to offer another bonus, players should work with the Storyteller to determine which bonus is offered after the introductions are made. 
-
-**
-203 
 
 Chapter Four: CharaCter Creation 
 
@@ -7333,8 +6912,6 @@ You can purchase merits after you begin playing a character, provided the descri
 If you choose to portray an uncommon or rare character type, you must buy the associated rarity merit. Rarity merits 
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
-
-204 
 
 Alona McCreary (Order #15311115) 
 
@@ -7392,8 +6969,6 @@ With your initial XP, you may:
 
 If you do not spend all of your initial XP during character creation, you may reserve up to 5 points. Reserved experience becomes earned XP. You cannot reserve more than 5 of your initial XP. If you complete character creation with more than 5 unspent XP, the remainder is lost. 
 
-205 
-
 Chapter Four: CharaCter Creation 
 
 Alona McCreary (Order #15311115) 
@@ -7438,8 +7013,6 @@ Whether this is your first LARP or you’re a LARP veteran, a positive attitude 
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-206 
-
 Alona McCreary (Order #15311115) 
 
 Alona McCreary (Order #15311115) 
@@ -7473,13 +7046,9 @@ You must purchase gifts according to the gift level ladder; you cannot learn mor
 
 If you want to purchase a level 3 gift, then your character must already have already learned at least one level 1 and one level 2 gift. Any gift serves as a rung in the gift level ladder, regardless of affinity. 
 
-209 
-
 Chapter Five: GiFts 
 
 Alona McCreary (Order #15311115) 
-
-- _Level 3:_ 
 
 If you wish to purchase a second level 3 gift, you must have purchased at least two level 1 and two level 2 gifts to complete the gift level ladder, as illustrated below: 
 
@@ -7516,23 +7085,17 @@ _Persephone is a Homid Galliard Black Fury. She possesses the following gifts:_
 
 When you choose your character’s auspice, breed, and tribe, your character gains those corresponding affinities. After determining that you are eligible to learn a chosen gift based on its level, check to see if your auspice, breed, or tribe matches one of the gift’s affinities. If your auspice, breed, or tribe matches one of the gift’s affinities, then you have an affinity for that gift. If none of them match, then you do not have an affinity for the gift. 
 
-- _Level 1:_ 
-
    - › _Blur of the Milky Eye (Galliard affinity)_ 
 
    - › _Persuasion (Homid affinity)_ 
 
    - › _Predator’s Insight (out of affinity)_ 
 
-- _Level 2:_ 
-
    - › _Song of Heroes (Galliard affinity)_ 
 
    - › _The Silver Witness (Galliard affinity)_ 
 
 _She wants to learn the following gifts:_ 
-
-- _Level 1:_ 
 
 ## Learning Affinity Gifts 
 
@@ -7541,8 +7104,6 @@ _She wants to learn the following gifts:_
 - › _Urban Ward (Bone Gnawer affinity)_ 
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
-
-210 
 
 Alona McCreary (Order #15311115) 
 
@@ -7560,11 +7121,6 @@ _Persephone, the Homid Galliard Black Fury, has decided that she wishes to purch
 
 - The XP cost of a new out-of-affinity gift is the gift’s level x6 XP. 
 
-**
-**
-
-211 
-
 Alona McCreary (Order #15311115) 
 
 ## General Gift Affinities by Level 
@@ -7575,10 +7131,6 @@ Alona McCreary (Order #15311115)
 
 - Airt Perception (p. 263) Airt Perception (p. 263) Mind Web (p. 265) Blur of the Milky Eye (p. 263) Conjure Tulpa Object (p. 264) Resist Pain (p. 267) Persuasion (p. 266) Mother’s Touch (p. 266) Sense the Balance (p. 267) Predator’s Insight (p. 266) Sense the Balance (p. 267) Subpoena (p. 268) Spirit Skin (p. 268) Spirit Skin (p. 268) Tongue of the Taunt (p. 269) Wolf Senses (p. 271) Wild Court (p. 270) Traitor’s Bane (p. 270) 
 
-- Awaken Minor Spirit (p. 272)p. 272) 272) Circle of Gaia’s Cleansing (p. 273)p. 273) 273) 
-
-- Realm Wisdom (p. 276)p. 276) 276) Silver Witness, the (p. 276)p. 276) 276) Spirit Ward (p. 278)p. 278) 278) Strength of Purpose (p. 278)p. 278) 278) Umbral Tether (p. 279)p. 279) 279) 
-
 Calm the Heart (p. 273) Awaken Minor Spirit (p. 272)p. 272) 272) Burden of Doubt (p. 272)p. 272) 272) Falling Touch (p. 274) Circle of Gaia’s Entrance the Mob (p. 273)p. 273) 273) Invoke Delirium (p. 274) Cleansing (p. 273)p. 273) 273) Marshal’s Vigilance (p. 275)p. 275) 275) Jam Technology (p. 274) Realm Wisdom (p. 276)p. 276) 276) Siren’s Lure (p. 277)p. 277) 277) Luna’s Blessing (p. 275) Silver Witness, the (p. 276)p. 276) 276) Song of Heroes (p. 277)p. 277) 277) Taking the Forgotten (p. 279) Spirit Ward (p. 278)p. 278) 278) Strength of Purpose (p. 278)p. 278) 278) Withering Gaze (p. 280) Strength of Purpose (p. 278)p. 278) 278) Withering Gaze (p. 280)p. 280) 280) Umbral Tether (p. 279)p. 279) 279) Coyote’s Mantle (p. 281) Forge of the Fetish (p. 282) Call to Duty (p. 281) Scent of the Prey (p. 284) Gaia’s Touch (p. 283) Pack Tactics (p. 283) Spirit’s Gaze (p. 285) Master of Fire (p. 283) Spirit’s Gaze (p. 285) Thousand Forms (p. 286) Spirit Knife (p. 284) Steel Sharpens Steel (p. 285) Trick Shot (p. 286) Thousand Forms (p. 286) Stoking Fury’s Furnace (p. 286) 
 
 Awaken Major Spirit (p. 287) Castigate (p. 287) Forced Transformation (p. 289) Invoke Earth’s Contract (p. 290) Snarl of the Predator (p. 292) 
@@ -7586,8 +7138,6 @@ Awaken Major Spirit (p. 287) Castigate (p. 287) Forced Transformation (p. 289) I
 - Cheap Shot (p. 288) Awaken Major Spirit (p. 287) Hobbling Strike (p. 290) Castigate (page 287) Laugh of the Hyena (p. 290) Defense of the Hearth (p. 288) Madness Season, the (p. 291) Forced Transformation (p. 289) Recollection of Madness Season, the (p. 291) Distant Dreams (p. 291) 
 
 - Artful Dodger, the (p. 294) Chant of Serenity (p. 294)p. 294) 294) Bridge Walker (p. 294) Conduit of Pain (p. 295)p. 295) 295) Gaia’s Vengeful Teeth (p. 295) Spirit Mastery (p. 297)p. 297) 297) Thieving Talons Spirit Vessel (p. 297)p. 297) 297) of the Magpie (p. 298) 
-
-Chant of Serenity (p. 294)p. 294) 294) Gaia’s Vengeful Teeth (p. 295) Conduit of Pain (p. 295)p. 295) 295) Geas (p. 295) Spirit Mastery (p. 297)p. 297) 297) Heart of Fury (p. 296) Spirit Vessel (p. 297)p. 297) 297) Spirit Mastery (p. 297) 
 
 **Galliard** 
 
@@ -7603,8 +7153,6 @@ Bridge Walker (p. 294) Chant of Serenity (p. 294) Conduit of Pain (p. 295) Heart
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-212 
-
 Alona McCreary (Order #15311115) 
 
 ## General Gift Affinities by Level 
@@ -7612,8 +7160,6 @@ Alona McCreary (Order #15311115)
 **Ahroun** 
 
 **Homid Lupus** 
-
-**
 
 Fight or Flight (p. 265) Predator’s Insight (p. 266) Razor Claws (p. 267) Resist Pain (p. 267) Vie for Dominance (p. 270) 
 
@@ -7630,8 +7176,6 @@ Burden of Doubt (p. 272) Circle of Gaia’s Cleansing (p. 273) Umbral Tether (p.
 Pack Tactics (p. 283) Call to Duty (p. 281) Scent of the Prey (p. 284) Call of the Wyrm (p. 280) Renewed Vigor (p. 284) Master of Fire (p. 283) Spirit of the Fray (p. 285) Forge of the Fetish (p. 282) Spirit of the Fray (p. 285) Trick Shot (p. 286) Thousand Forms (p. 286) Spirit Knife (page 284) Steel Sharpens Steel (p. 285)p. 285) 285) Stoking Fury’s Furnace (p. 286)p. 286) 286) Gnaw (p. 289)p. 289) 289) Cheap Shot (p. 288)p. 288) 288) Gnaw (p. 289)p. 289) 289) Defense of the Hearth (p. 288) Hobbling Strike (p. 290)p. 290) 290) Recollection of Rancorous Halo (p. 291)p. 291) 291) Gnaw (p. 289) Invoke Earth’s Contract  (p. 290)p. 290) 290) Distant Dreams (p. 291)p. 291) 291) Snarl of the Predator (p. 292)p. 292) 292) Madness Season, the (p. 291) Rancorous Halo (p. 291)p. 291) 291) View the Battlefield (p. 292)p. 292) 292) View the Battlefield (p. 292) Snarl of the Predator (p. 292)p. 292) 292) Aegis of Rage (p. 293) Artful Dodger, the (p. 294) Apotheosis of Rage (p. 293) Aegis of Rage (p. 293) Apotheosis of Rage (p. 293) Gaia’s Vengeful Teeth (p. 295) Spirit Vessel (p. 297) Apotheosis of Rage (p. 293) Spirit Vessel (p. 297) Geas (p. 295) Thieving Talons Wyld’s Undreamt Fury (p. 298) Wyld’s Undreamt Fury (p. 298) of the Magpie (p. 298) 
 
 Pack Tactics (p. 283) Renewed Vigor (p. 284) Spirit of the Fray (p. 285) Steel Sharpens Steel (p. 285)p. 285) 285) Stoking Fury’s Furnace (p. 286)p. 286) 286) 
-
-213 
 
 Chapter Five: GiFts 
 
@@ -7683,8 +7227,6 @@ Most powers have a _focus effect_ . Focus effects are bonus abilities granted to
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-214 
-
 Alona McCreary (Order #15311115) 
 
 **
@@ -7724,8 +7266,6 @@ You can end the trance at any time without expending an action, but you retain t
 ## **Exceptional Success** 
 
 For the next hour, you retain a special bond with the target. If her mood shifts or she becomes aggressive, you’ll have advanced warning. If your target starts a combat, you may take your simple action before she can take any action. This forewarning does not give you an additional action, but allows you to take your simple action early. 
-
-215 
 
 Chapter Five: GiFts 
 
@@ -7797,8 +7337,6 @@ Spend 1 point of Gnosis to activate Gorgon’s Gaze. For the next hour, you beco
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-216 
-
 Alona McCreary (Order #15311115) 
 
 of legend and myth. Those in your presence cannot look directly at you beyond a fleeting glance, making you immune to all powers that require Gaze and Focus or line of sight to activate. If you have a target’s Gaze and Focus, they cannot add their Dodge skill to their defensive pools against you. 
@@ -7846,8 +7384,6 @@ _You know the secret alleys and hidden paths through a city, and can travel from
 Spend 1 point of Gnosis and concentrate for three turns on your intended destination, which must be somewhere within the same urban center in which you are currently located. You must remain completely unobserved during the three turns for the gift to work. If you are seen by a pedestrian, recorded by a security camera, or spied upon by a supernatural power, Blink fails to activate. If this power fails to activate, you may realize that you were observed at some point during the power’s three-turn activation period, but Blink does not grant specific knowledge about how you were observed. 
 
 When you successfully activate this power, you vanish from your location and reappear within a few minutes’ walk of 
-
-217 
 
 Chapter Five: GiFts 
 
@@ -7898,8 +7434,6 @@ _Bone Gnawers are infamous for being scrappy fighters, holding their own in bar 
 Spend 1 point of Gnosis and use your standard action to make a Brawl attack against your target. If you succeed in the opposed challenge, you deal your usual damage to the target. On your opponent’s very next initiative, an umbral echo of your previous attack strikes your target, scoring an additional 2 points of normal damage, which cannot be reduced. Savage Strike may be used during Rage rounds, but multiple applications of this power cannot stack against the same target. 
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
-
-218 
 
 Alona McCreary (Order #15311115) 
 
@@ -7961,8 +7495,6 @@ _Like an elite serviceman guarding a world leader, or a mother wolf defending he
 
 **Affinity:** Children of Gaia 
 
-219 
-
 Chapter Five: GiFts 
 
 Alona McCreary (Order #15311115) 
@@ -8023,8 +7555,6 @@ Spend 1 point of Gnosis and expend a standard action to mystically bind one item
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-220 
-
 Alona McCreary (Order #15311115) 
 
 If the target object is a suit of armor, it appears surrounding you, fully assembled. Additionally, you may spend a simple action to regain the item, if it has been lost or you have been disarmed of it. 
@@ -8081,8 +7611,6 @@ Your wailing cries deafen your targets for two turns.
 
 Anyone affected by your Wail of the Banshee is pushed two steps away from you, as though hit by the Knockback weapon quality. (See **Chapter Fifteen: Influences and Equipment, Equipment, Ranged Weapons, Knockback** , page 708.) 
 
-221 
-
 Chapter Five: GiFts 
 
 Alona McCreary (Order #15311115) 
@@ -8130,8 +7658,6 @@ You may create a level 3 Fetish or Weapon Fetish to become your spiritual emblem
 Attacks from your illusion deal either 3 points of normal or 2 points of aggravated damage, instead of the standard 2 normal or 1 aggravated damage. 
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
-
-222 
 
 Alona McCreary (Order #15311115) 
 
@@ -8189,8 +7715,6 @@ This damage applies regardless of whether a target moves voluntarily or not. A t
 
 A target may only be under the effects of a single application of this power at once. Should a target be affected by a subsequent use of this power while it is already active against her, the effects of the previous power immediately end. 
 
-223 
-
 Chapter Five: GiFts 
 
 Alona McCreary (Order #15311115) 
@@ -8243,8 +7767,6 @@ When changing configurations, you cannot alter or acquire the Antique, Artisan, 
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-224 Alona McCreary (Order #15311115) 
-
 Also, you cannot apply qualities that are reserved for twohanded weapons to a one-handed flyapart. 
 
 You can only have a number of flyaparts at a time up to the number of dots you possess of the Science skill; bonding a different item relinquishes your connection to the first, rendering it inert. An abandoned flyapart will not function and is beyond repair, unless it is re-bonded to someone using this gift. 
@@ -8290,8 +7812,6 @@ _Glass Walkers are known for bending Weaver elements to their will, particularly
 ## **Affinities:** Glass Walker 
 
 **Test Pool:** Physical attribute + Athletics skill versus target’s Physical attribute + Dodge skill 
-
-225 
 
 Chapter Five: GiFts 
 
@@ -8346,8 +7866,6 @@ _All creatures have something of the Weaver in them, or so the Glass Walkers say
 **Affinities:** Glass Walker 
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
-
-226 
 
 Alona McCreary (Order #15311115) 
 
@@ -8405,8 +7923,6 @@ Expend 1 point of Gnosis and a standard action to lick the wounds of a dead body
 
 In no case will the target body provide additional sustenance beyond any parts of it which may have already been consumed, either to animals or to vampires seeking blood. 
 
-227 
-
 Chapter Five: GiFts 
 
 Alona McCreary (Order #15311115) 
@@ -8455,8 +7971,6 @@ Spend 1 point of Gnosis and spend your simple action to call forth your primal r
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-228 
-
 Alona McCreary (Order #15311115) 
 
 those that are ghouls, will always fight. Should an animal elect to fight, it will not attack you. 
@@ -8502,8 +8016,6 @@ The force of your gravitational pull is incredibly crushing. The damage caused b
 _Stormcrows have always been associated with the Shadow Lords. You’ve learned to harness this kinship to summon a Gaffling spirit and command it to spy for you. Your mastery of this spirit animal is so complete that you may see through its eyes to view places far away, even in the Umbra._ 
 
 **Affinities:** Shadow Lord 
-
-229 
 
 Chapter Five: GiFts 
 
@@ -8559,8 +8071,6 @@ Direct the Storm will not reinforce a frenzying creature’s natural ability to 
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-230 
-
 Alona McCreary (Order #15311115) 
 
 you’ll have to select which of your allies the frenzied creature will target. Once this gift takes effect, the target cannot be affected by Direct the Storm again until the duration ends. 
@@ -8615,8 +8125,6 @@ You may transmute the Rage you absorb via this gift into Gnosis, regaining a num
 
 Because the shadow is still mostly ephemeral, grappling attacks against it automatically fail. The torn shadow stays within one step of the target, but cannot reattach until after a full 15 minutes, when the gift ends. 
 
-231 
-
 Chapter Five: GiFts 
 
 Alona McCreary (Order #15311115) 
@@ -8666,8 +8174,6 @@ Spend 1 point of Gnosis and expend a standard action to curse your target. If yo
 - If your target is human, an animal, or a creature with a normal circulatory system, she is less responsive to medical treatment. If she is already injured or later becomes injured, any attempts to treat her with the Medicine skill bear a -5 wild card penalty. If she is already in a critical or infirm state, or on life support, she may die at the Storyteller’s discretion. 
 
 - If your target is a shapeshifter, she loses any access to Regeneration benefits, as her physiology slows to a crawl. 
-
-233 
 
 Chapter Five: GiFts 
 
@@ -8721,8 +8227,6 @@ Spend 1 point of Gnosis and expend a standard action invoking a curse to plague 
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-234 
-
 Alona McCreary (Order #15311115) 
 
 on tombs of pharaohs, but any solemn curse will suffice. If you succeed in an opposed challenge against a target within hearing range, your hex will immediately overcome them and remain in place for the next 24 hours. 
@@ -8766,8 +8270,6 @@ _There are moments when help is desperately needed, when one must be able to mov
 Spend 1 point of Gnosis to greatly accelerate your physical movements until the end of the current round. You may use this gift at any point, even before your turn in the initiative order. Activating Speed Beyond Thought does not require the use of an action or any particular degree of concentration. However, it does require a certain level of serenity to remain receptive to the influence of fate; this gift cannot be activated during any stage of anger frenzy, and if you enter frenzy while it is active, the gift’s effects end immediately. 
 
 While Speed Beyond Thought is active, you gain an extra set of actions: 1 simple action and 1 standard action. These actions are resolved during the Rage round following what would otherwise be your final Rage round for each turn. 
-
-235 
 
 Chapter Five: GiFts 
 
@@ -8831,8 +8333,6 @@ If used during combat, this power has a diminished effect. Targets only obey you
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-236 
-
 Alona McCreary (Order #15311115) 
 
 In all cases, your dictates must be clear and straightforward, and the target must understand your instructions. The target of Mastery will attempt to take context into account. If you point at a door and order your victim to “Leave!” she will attempt to leave via the door you indicated (as opposed to using a different door or jumping out of a window). If an order is confusing or ambiguous, the subject may respond with less accuracy or perform her task poorly, as she struggles to understand what’s been asked of her. Additionally, the target of Mastery must abide the order for the duration of the power. If ordered to open a door, for example, she cannot close it until the power’s duration ends. Mastery cannot rob your target of the ability to defend herself, nor can your target be made to follow any order that is overtly self-harming. 
@@ -8882,8 +8382,6 @@ Spend 1 point of Gnosis and expend a simple action to manifest Luna’s Armor. T
 ## **Exceptional Success** 
 
 Paws of the Newborn Cub’s duration extends until the end of the following two turns, instead of the standard one turn. 
-
-237 
 
 Chapter Five: GiFts 
 
@@ -8942,8 +8440,6 @@ Your shapeshifting abilities have become much more fluid. Once per turn, you may
 When using your Dodge skill in combat, you receive a +5 wild card bonus to defend against exceptional successes. 
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
-
-238 
 
 Alona McCreary (Order #15311115) 
 
@@ -9009,8 +8505,6 @@ During this time, you can temporarily expend a single dot of your Ancestors back
 
 - You may spend a point of Ancestors background to attempt a retest, as though you had spent a point of Willpower. This effect cannot be used in conjunction with a typical Willpower retest. 
 
-239 
-
 Chapter Five: GiFts 
 
 Alona McCreary (Order #15311115) 
@@ -9067,8 +8561,6 @@ Spend 1 point of Gnosis and expend your standard action to painfully sprout four
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-240 Alona McCreary (Order #15311115) 
-
 Coils of the Serpent have two different methods of attack: 
 
 - The coil may strike any target within two steps, inflicting 1 point of normal damage per successful strike. Your Rage bonus does not apply to this damage. 
@@ -9124,8 +8616,6 @@ In addition, you have learned to absorb the supernatural resources from other aw
 ## **Exceptional Success** 
 
 You steal 4 points of Gnosis from your target, rather than 3. 
-
-241 
 
 Chapter Five: GiFts 
 
@@ -9191,8 +8681,6 @@ _Your ties to the earth and its spirit run deep, coursing through your blood and
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-242 
-
 Alona McCreary (Order #15311115) 
 
 ## **System** 
@@ -9242,8 +8730,6 @@ This shift in appearance is so drastic that even those who have Familiarity with
 ## **Exceptional Success** 
 
 Your curse is especially potent, dealing 3 points of aggravated damage upon its initial activation, instead of the normal 2 points. 
-
-243 
 
 Chapter Five: GiFts 
 
@@ -9313,8 +8799,6 @@ If your opponent’s Willpower pool is reduced to 0 by a successful attack using
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-244 
-
 Alona McCreary (Order #15311115) 
 
 ## ••••• Marked for Death 
@@ -9366,8 +8850,6 @@ When you are using your webs as tools, you may expand them to 10 cubic feet, if 
 _The Ananasi do not regenerate like their cousins, instead requiring blood to heal. You, however, have found another way to restore your vitality. You are able to call on your kinship with lesser spiders, ordering them to hunt on your behalf._ 
 
 ## **Affinities:** Ananasi 
-
-245 
 
 Chapter Five: GiFts 
 
@@ -9431,8 +8913,6 @@ _As the old adage goes, many hands make light work. No creature takes advantage 
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-246 
-
 Alona McCreary (Order #15311115) 
 
 ## **System** 
@@ -9488,8 +8968,6 @@ _Nothing can bar your entry from those places you wish to enter. You are able to
 ## **System** 
 
 Expend 1 point of Gnosis and use your standard action to align yourself with the spirit world. For the next five minutes, you can travel through any obstruction that bars your path—locks open, security systems deactivate, and 
-
-247 
 
 Chapter Five: GiFts 
 
@@ -9557,8 +9035,6 @@ Expend 1 point of Gnosis and use your simple action to delve into the collective
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-248 
-
 Alona McCreary (Order #15311115) 
 
 construct languages from your knowledge, creating new terminology and vocabulary that can only be understood by other Corax. 
@@ -9610,8 +9086,6 @@ _The Corax aren’t warriors—they prefer to fly high and let others duke it ou
 **Test Pool:** Physical attribute + Athletics skill versus target’s Physical attribute + Dodge skill 
 
 Expend 1 point of Gnosis and use a simple action to turn your feathers into deadly weapons for the next 10 minutes. 
-
-249 
 
 Chapter Five: GiFts 
 
@@ -9671,8 +9145,6 @@ _The constellation Ursa Major is one of the most recognizable configurations in 
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-250 
-
 Alona McCreary (Order #15311115) 
 
 ## **System** 
@@ -9716,8 +9188,6 @@ You may target up to three individuals at once with this power, and each must ch
 _The Gurahl are great proponents of harmony. They believe life is meant to be lived, and that all have a role to play in the cosmic dance of life. In situations where others would say a person is hurt or sick, the Gurahl say she simply lacks the energy to dance. This gift infuses your target with the vitality of spring, granting her the energy to rejoin the celestial dance._ 
 
 ## **Affinity:** Gurahl 
-
-251 
 
 Chapter Five: GiFts 
 
@@ -9771,8 +9241,6 @@ Spend 2 point of Gnosis and expend your simple action to call upon a spirit-serv
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-252 
-
 Alona McCreary (Order #15311115) 
 
 Additionally, you may command the servant to direct you to Geth-Rura, Mangi’s realm, where you may challenge him to release one of the souls of the departed. Travelling there requires a level 5 Heroic Quest through the Umbra (See **Chapter Eight: Dramatic Systems, Quests** , page 390). Once you have arrived, you must defeat Mangi the Death Bear in a wrestling match in order to coerce him to release the soul. The Storyteller determines character statistics for Mangi, but he is an Incarna of considerable power. Should you succeed, he will allow you to return with a single individual of your choice, bringing them back from the dead. Whether you succeed or fail, you cannot attempt to retrieve the same individual again, nor can any other. You can only visit the realm of Mangi once per year. 
@@ -9818,8 +9286,6 @@ She is now completely charmed by your personality, rationalizing any disdain or 
 The subject will rationalize her behavior while under the effect of this power. After its effect has subsided, those who already felt positively toward you will simply remember that you were particularly alluring; those who moderately disliked you will begrudgingly blame the brief change of heart on your incredibly persuasive skills. Only an individual who actively reviled you beforehand and wished you harm will clearly see that her actions were manipulated after the fact. Others watching the charmed individual may see more clearly that she is under the sway of your emotional control—but it will be difficult to convince the charmed individual that such is true. 
 
 Characters charmed by this power cannot bring themselves to harm you, physically or politically, and will generally be as nice to you as reasonably possible. Allure of the Fox is 
-
-253 
 
 Chapter Five: GiFts 
 
@@ -9871,8 +9337,6 @@ Expend 1 point of Gnosis and use your standard action to lure a target. To use t
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-254 Alona McCreary (Order #15311115) 
-
 in an offensive opposed challenge, or if it becomes impossible to follow you without your target directly harming herself, the effects of this gift end. 
 
 ## **Exceptional Success** 
@@ -9922,8 +9386,6 @@ Spend 1 point of Gnosis and use a standard action to feign the appearance of dea
 Anyone attempting to use supernatural means, such as Wolf Senses or Auspex, to discern your state must make an opposed challenge using her Mental attribute + Investigation skill versus your Social attribute + Subterfuge skill, with a -3 wild card penalty to her test pool. If she succeeds, she sees through the deception, recognizing that you are still alive. 
 
 Once activated, this power lasts for one scene, unless you choose to end the gift sooner by expending a simple action to do so. Once Possum’s Wisdom ends, you must find hot food in order to help drive away the lethargy in your limbs. 
-
-255 
 
 Chapter Five: GiFts 
 
@@ -9987,8 +9449,6 @@ _Since the War of Rage, the Umbral Dansers have held the keys to the Umbra, hold
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-256 
-
 Alona McCreary (Order #15311115) 
 
 ## **System** 
@@ -10030,8 +9490,6 @@ If your target has 4 or more dots of the chosen skill, you gain an additional bo
 ## **Affinity:** Nuwisha 
 
 **Test Pool:** Social attribute + Subterfuge skill versus target’s Social attribute + Willpower 
-
-257 
 
 Chapter Five: GiFts 
 
@@ -10097,8 +9555,6 @@ Spend 1 point of Gnosis and use your standard action to turn into a plague of ra
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-258 
-
 Alona McCreary (Order #15311115) 
 
 When you activate Plague of Rats, all of your Mental and Social powers end. You cannot spend Gnosis or use Mental or Social powers while using Plague of Rats. Individual rats in your plague possess your Mental attribute, Social attribute, your attribute focuses, and skills, but each only has a Physical attribute of 3. These animals inflict 1 point of normal damage per Physical attack and have 3 health levels. If your rats attempt to retest in combat, each animal must spend Willpower separately, and they use your Willpower pool to do so. The plague of rats gain and lose Rage as a collective. 
@@ -10136,8 +9592,6 @@ Ratkin, their kinfolk, and Bone Gnawers with the Blessing of Mother Rat merit ar
 ## **Focus [Intelligence]** 
 
 Suffering through The Slow Knife is agony; the distraction of the pain causes a -3 wild card penalty to all of the target’s non-defensive test pools. However, this pain (and its resulting penalty) may be completely mitigated with the gift Resist Pain and other supernatural powers. 
-
-259 
 
 Chapter Five: GiFts 
 
@@ -10189,8 +9643,6 @@ _The Rokea once possessed hundreds of grottos—underwater caerns—scattered ac
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-260 
-
 Alona McCreary (Order #15311115) 
 
 ## **System** 
@@ -10237,13 +9689,9 @@ If your target breaks free of your Grapple, she suffers 3 points of aggravated d
 
 If your target has an ability to ignore wound penalties, such as the Stamina focus or the gift Resist Pain, she does not lose her simple action each round. 
 
-261 
-
 Chapter Five: GiFts 
 
 Alona McCreary (Order #15311115) 
-
-262 
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
@@ -10297,8 +9745,6 @@ Blur of the Milky Eye cannot be used to make another character invisible, even i
 
 Opponents with supernatural senses, such as a Garou using Wolf Senses or a vampire using Heightened Senses, can attempt to use her sharpened senses to pierce Blur of the Milky Eye. To see you, she must win an opposed challenge using her power activation test pool against your Mental attribute + Willpower or Stealth skill. For example, a rival Garou attempts to pierce through your Blur of the Milky Eye 
 
-263 
-
 Chapter Five: GiFts 
 
 Alona McCreary (Order #15311115) 
@@ -10349,8 +9795,6 @@ Expend 1 point of Gnosis and use a standard action to create a tulpa object of a
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-264 
-
 Alona McCreary (Order #15311115) 
 
 After you have created an item with this power, you must spend 1 point of Gnosis each minute you wish to keep the object in existence. The first minute does not require an additional expenditure of Gnosis. If you do not spend this Gnosis, the object vanishes. 
@@ -10398,8 +9842,6 @@ _The Weaver has ensnared the world in her web, connecting us through technology 
 Spend 1 point of Gnosis and expend a simple action to create a telepathic connection with a single willing subject in your line of sight. For the purpose of determining whether or not a subject is willing, she knows beforehand who is attempting to contact her and may decide whether or not to accept the connection. Once the connection has been established, you and your target may communicate via telepathic whispers. This link only conveys short, verbal messages and does not transmit thoughts, images, or memories. 
 
 Once a link has been created, you may include new members in the Mind Web, so long as they are willing and within your line of sight, by spending one simple action per person you intend to include. Bringing new members into a Mind Web does not require further expenditure of Gnosis and 
-
-265 
 
 Chapter Five: GiFts 
 
@@ -10461,8 +9903,6 @@ _Only the most foolish Cubs rush into battle without first knowing the strength 
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-266 
-
 Alona McCreary (Order #15311115) 
 
 ## **System** 
@@ -10520,8 +9960,6 @@ _The world exists in a state of balance—a pull between Weaver, Wyld, and Wyrm.
 **Affinities:** Theurge, Philodox, Lupus 
 
 **Test pool:** Mental attribute + Awareness skill versus target’s Mental attribute + Willpower 
-
-267 
 
 Chapter Five: GiFts 
 
@@ -10587,8 +10025,6 @@ Spend 1 point of Gnosis and use your standard action to verbally issue a summons
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-268 
-
 Alona McCreary (Order #15311115) 
 
 this challenge, you must be familiar with the target (see **Familiarity with the Target** , page 214). If you succeed, a spirit travels to your target’s location, manifests, and delivers your summons, declaring your name, Rank, and the desired location for her appearance. 
@@ -10636,8 +10072,6 @@ The effects of this power persist for the next hour or until the target of this 
 The target loses 2 points of Willpower, instead of the usual 1 point, if she rejects the summons or fails to arrive on time. 
 
 The power of your personality is such that you can leverage this gift with a mere glance, instead of verbal insults or gestures. Observers may notice your smug expression, but they can find no fault or violation of protocol in your behavior. 
-
-269 
 
 Chapter Five: GiFts 
 
@@ -10688,8 +10122,6 @@ _Competition among wolves begins at an early age, as eager cubs wrestle and scra
 ## **Affinities:** Ahroun, Lupus 
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
-
-270 
 
 Alona McCreary (Order #15311115) 
 
@@ -10742,8 +10174,6 @@ If you score an exceptional success when seeing through supernatural concealment
 ## **Focus [Perception]** 
 
 A Perception-focused individual sharpens her senses by spending a simple action, rather than a standard action. 
-
-271 
 
 Chapter Five: GiFts 
 
@@ -10805,8 +10235,6 @@ Your target reduces the damage she would normally deal on her next successful Ph
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-272 
-
 Alona McCreary (Order #15311115) 
 
 ## **Exceptional Success** 
@@ -10864,8 +10292,6 @@ _The world has almost fallen to the insanity of the Wyrm; its taint has spread v
 ## **System** 
 
 Spend 1 point of Gnosis and use your standard action to activate Entrance the Mob. For the duration of this gift, you retain the Gaze and Focus of everyone who can hear your voice. This effect lasts up to one full turn for each dot of the Performance skill you possess, although you may choose to end it sooner by ceasing to speak. While this power is active, anyone within hearing distance must listen to you, talk reasonably, or leave. You cannot force others to like you or talk to you, but they must listen as long as you continue talking, or until you reach the maximum duration allowed by your Performance skill. Once Entrance the Mob 
-
-273 
 
 Chapter Five: GiFts 
 
@@ -10929,8 +10355,6 @@ _Humanity keeps close ties with the Weaver, learning technology and science as t
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-274 
-
 Alona McCreary (Order #15311115) 
 
 _spiritual connection to such devices. This gift allows you to spiritually infect machines with elements of the Wyld—gremlin spirits that love to cause chaos and disruption._ 
@@ -10984,8 +10408,6 @@ Your opponent’s weakness is made plain before your piercing stare. If your tar
 ## **Focus [Perception]** 
 
 You may have this power active against a number of targets up to to the number of dots you possess of the Awareness skill without its effects ending. Should you affect a target with this power beyond that number, you must choose a target already under the effect of your gift and release her from its effects. 
-
-275 
 
 Chapter Five: GiFts 
 
@@ -11049,8 +10471,6 @@ If you wish to use the boosted skill for a downtime action, you can keep the bol
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-276 
-
 Alona McCreary (Order #15311115) 
 
 ## •• Siren’s Lure 
@@ -11096,8 +10516,6 @@ Spend 1 point of Gnosis and expend your standard action to encourage your allies
 Additionally, if you have a token created with the gift The Silver Witness (see page 276), you can expend it and tell its story to cause your audience to recover a second point of Gnosis. Only one token can be expended per use of Song of Heroes. 
 
 Song of Heroes cannot raise a character’s Gnosis pool above her maximum capacity. No character can benefit from more than one use of Song of Heroes per hour. 
-
-277 
 
 Chapter Five: GiFts 
 
@@ -11159,8 +10577,6 @@ If your Physical attack succeeds, you and your chosen allies also receive a +3 b
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-278 
-
 Alona McCreary (Order #15311115) 
 
 ## •• Taking the Forgotten 
@@ -11202,8 +10618,6 @@ _Storms rage across the Umbra, making travel difficult. Many have been lost to t
 Spend 1 point of Gnosis and use your standard action to mystically anchor a small part of yourself within a location in the Umbra. This spiritual tether creates a trail that helps you navigate the Umbra and weather the chaos of umbral storms. While you have an umbral tether in place, you are immune to the Knock Down combat maneuver, including gifts that leverage the maneuver supernaturally. In addition, once per umbral Quest, you may expend 1 point of Willpower to ignore a consequence. This ability extends to every character traveling with you. Only a single umbral tether can be active for a given umbral Quest at a time. (For more information about the Umbra, umbral storms, and navigation of the Umbra, see **Chapter Thirteen: The Umbra** , page 583; for more information on Quests, see **Chapter Eight: Dramatic Systems, Quests** , page 390.) 
 
 In addition, you can bind a party of werewolves together to ensure that they are not separated while traveling in the Umbra. This umbral tether lasts until you dissolve it by expending a simple action. 
-
-279 
 
 Chapter Five: GiFts 
 
@@ -11259,8 +10673,6 @@ Upon arriving, the affected creature must immediately present herself to you at 
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-280 
-
 Alona McCreary (Order #15311115) 
 
 or hiding. Once she has presented herself, the supernatural compulsion of the gift ends. If the target arrives to the origin of the call and you have hidden yourself, the supernatural compulsion of the gift ends. 
@@ -11313,8 +10725,6 @@ If you wish to mimic a specific person’s (or wolf’s) identity, you must have
 
 Coyote’s Mantle can be used to change the appearance of your clothing, equipment, and skeletal structure in minor ways, so long as your body or equipment does not change significantly in size or shape. A dinner jacket could be made 
 
-281 
-
 Chapter Five: GiFts 
 
 Alona McCreary (Order #15311115) 
@@ -11352,8 +10762,6 @@ For example, if a Cliath (1 dot of the Rank background) wants to make a level 2 
 If you examine a fetish for five minutes, you can commune with its spirit in order to determine that fetish creator’s identity. Use the information listed on the fetish’s item card’s “Created by” line for this purpose. For sample fetish forms, see **Chapter Fifteen: Influences and Equipment, Fetishes, Fetish Forms** , page 733. 
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
-
-282 
 
 Alona McCreary (Order #15311115) 
 
@@ -11410,8 +10818,6 @@ At the start of your action during the next Everyman round, you may choose to sp
 ## **Focus [Appearance]** 
 
 Your presence is especially inspiring. Your targets can use a single combat maneuver without expending Willpower to do so, as an alternative to using the Assist Attacker or Assist Defender combat tactics. Only one free combat maneuver can be gained this way each turn. 
-
-283 
 
 Chapter Five: GiFts 
 
@@ -11471,8 +10877,6 @@ Additionally, for the duration of the gift, your weapon can strike at spirits ac
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-284 Alona McCreary (Order #15311115) 
-
 ## **Focus [Perception]** 
 
 This weapon can be loaned to another and still function, but a wise Garou takes care when letting such an object out of her sight. Once a weapon has been imbued with your essence, even after the duration of the gift ends, possessing it automatically grants the wielder familiarity with you (see **Familiarity with the Target** , page 214). 
@@ -11520,8 +10924,6 @@ _Conventional wisdom teaches that an experienced warrior brings more to a battle
 ## **System** 
 
 Spend 1 point of Gnosis and use your simple action to shout words of inspiration to your allies. Choose one of your skills. For the next five minutes, a number of allies up to the number of dots you possess of the Leadership skill may opt to use the value of your chosen skill in place of their own. 
-
-285 
 
 Chapter Five: GiFts 
 
@@ -11589,8 +10991,6 @@ Spend 1 point of Gnosis and use your standard action to target a single individu
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-286 
-
 Alona McCreary (Order #15311115) 
 
 hit your target without a challenge, gaining a normal success. Effects that allow an individual to automatically avoid your attack succeed in defending against Trick Shot, but powers that provide defensive bonuses do not. 
@@ -11640,8 +11040,6 @@ _You have the ears of the spirits, and they respect your words. If you call on t
 ## **Affinities:** Theurge, Philodox 
 
 **Test Pool:** Social attribute + Occult skill + Rank background versus target’s Social attribute + Willpower + Rank background 
-
-287 
 
 Chapter Five: GiFts 
 
@@ -11701,8 +11099,6 @@ If anyone with hostile intent is within five steps of you when you activate this
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-288 
-
 Alona McCreary (Order #15311115) 
 
 Defense of the Hearth does not prevent individuals using ranged weapons or powers from attacking you or those you protect. If an individual protected by your Defense of the Hearth attacks or targets someone with a hostile power (whether targeting an individual inside or outside of your aura), she immediately loses the protection of Defense of the Hearth. Such a character cannot be protected by this gift for the next hour. 
@@ -11746,8 +11142,6 @@ Spend 1 point of Gnosis and expend your standard action to force a target who is
 ## **Focus [Wits]** 
 
 Your Gnaw is particularly efficient. You can bite through a steel chain using a simple action, or gnaw through a reinforced wall in one minute. Instead of gaining the Fast melee weapon quality, your bite attacks gain the Deadly melee weapon quality, in addition to the Brutal quality. 
-
-289 
 
 Chapter Five: GiFts 
 
@@ -11800,8 +11194,6 @@ _Hyena laughs, mocking anyone who tries to command her. You’ve learned to mimi
 When you spend a point of Willpower to retest a Mental or Social power that attempts to change your behavior or influence your emotions, you gain a +5 wild card bonus to your defensive test pool for that retest attempt. 
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
-
-290 
 
 Alona McCreary (Order #15311115) 
 
@@ -11857,8 +11249,6 @@ Spend 1 point of Gnosis and use a standard action to send your target’s mind t
 
 Engage your target in an opposed challenge. If you succeed, the target ceases her current activity, as she becomes lost in a vivid daydream. This change happens abruptly; if she is currently speaking, she will pause mid-sentence, as if poised on a thought. She does not notice the presence or activities 
 
-291 
-
 Chapter Five: GiFts 
 
 Alona McCreary (Order #15311115) 
@@ -11913,8 +11303,6 @@ _You can see the terrain of a battlefield, along with the placement of allies an
 
 Spend 1 point of Gnosis and expend a simple action to gain a hazy, top-down view of a battlefield at which you are present, superimposed over your normal vision. The area perceived can vary in size; it covers the whole space involved in the current combat scenario, whether that is 
 
-292 
-
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
 Alona McCreary (Order #15311115) 
@@ -11962,8 +11350,6 @@ After activating Aegis of Rage, you immediately recover the Gnosis spent to acti
 _While all Garou carry within them the seeds of Luna’s anger, those seeds only truly blossom in the deepest throes of battle. Through this gift, you become Luna’s rage made manifest, striking repeatedly in impossible succession._ 
 
 **Affinities:** Ahroun, Lupus, Metis 
-
-293 
 
 Chapter Five: GiFts 
 
@@ -12018,8 +11404,6 @@ _Those who too eagerly ride the tide of battle must take caution, lest they find
 ## **Affinities:** Theurge, Galliard 
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
-
-294 
 
 Alona McCreary (Order #15311115) 
 
@@ -12081,8 +11465,6 @@ The earth itself refuses to bear the burden of the target’s disgrace. For the 
 
 _Ancient warriors, though terrifying in battle, would go to great lengths to avoid violating a geas—a mystic obligation powerful enough to influence their fates. The old stories speak of redeeming_ 
 
-295 
-
 Chapter Five: GiFts 
 
 Alona McCreary (Order #15311115) 
@@ -12133,8 +11515,6 @@ Spend 2 points of Gnosis and expend your standard action to use Heart of Fury. C
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-296 
-
 Alona McCreary (Order #15311115) 
 
 ## **Focus [Appearance]** 
@@ -12182,8 +11562,6 @@ While Spirit Vessel is active, you suffer from the Derangement: Spirit’s Motiv
 ## **Focus [Intelligence]** 
 
 You gain a +1 attribute bonus to any test pool related to the attribute focus gained by Spirit Vessel. 
-
-297 
 
 Chapter Five: GiFts 
 
@@ -12245,8 +11623,6 @@ You can select three qualities from the chart, rather than two.
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-298 
-
 Alona McCreary (Order #15311115) 
 
 Alona McCreary (Order #15311115) 
@@ -12273,8 +11649,6 @@ Any merit effect that requires the expenditure of Gnosis counts as a supernatura
 ## Adding Merits and Flaws 
 
 If you do not purchase the maximum points of merits for your character, or if you do not take the maximum amount of XP in flaws at character creation, you may purchase merits and flaws during the chronicle with Storyteller permission. Note that there are some merits and flaws that can only be purchased at character creation and cannot be added to a character sheet thereafter. These merits and flaws represent qualities that happened in a character’s history, and they cannot suddenly develop now. 
-
-301 
 
 Chapter Six: MeritS and FlawS 
 
@@ -12322,8 +11696,6 @@ If you gain a power or ability that negates the detriments of a flaw your charac
 
 When a Storyteller creates her setting, she establishes the rarity of certain options, such as the various Fera. This 
 
-302 
-
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
 Alona McCreary (Order #15311115) 
@@ -12368,8 +11740,6 @@ Each tribe has a list of merits that are available only to werewolves who are me
 
 Chapter Six: MeritS and FlawS 
 
-303 
-
 Alona McCreary (Order #15311115) 
 
 ## Black Fury Merits 
@@ -12405,8 +11775,6 @@ When using this power, assign two equipment qualities of your choice—other tha
 • **Improvised Weapon:** Almost anything is a weapon in your hands. Activating Jury-Rigging on an improvised weapon allows you to give it the weapon qualities of a real weapon for the next hour. For example, you might make a nail gun that is as effective as a rifle, a broom handle that works like a mace, or a piece of scrap metal that functions like a sword. When using this power, assign two weapon qualities of your choice—other than Flashy or Masterwork—to your improvised weapon. The chosen qualities must be vaguely logical for your improvised weapon to possess, and you cannot assign supernatural qualities or qualities that do not match the form and function of the weapon. For example, you cannot make a baseball bat function like a pistol, and you cannot make a piece of steel behave like a silver weapon. For the duration of this power, you cannot use the improvised weapon’s original qualities (if it had any). 
 
 - **Incorrect Equipment:** Using Jury-Rigging on a tool allows you to force it to work for one specific situation for the next hour. For example, you might scrape at a random key until it fits the lock you are trying to open, or you might jury-rig a ½-inch wrench to work on a ¾-inch bolt. As long as the tool is similar to the specific item you need, you can make it work. 
-
-304 
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
@@ -12447,8 +11815,6 @@ The Fianna boast of their legacy of producing the finest crafters among the Garo
 Fae blood runs through your lineage. Though only traces may remain, it has imbued you with the Spriggans’ gift. By expending your standard action to draw upon this power, you can alter your physical size. You may grow to up to triple your normal height, granting you 3 additional health levels. Damage to these health levels remains when you return to normal size; a careless Fianna can find herself incapacitated or worse after returning to her normal size. 
 
 Conversely, you may choose to shrink yourself down to one-third of your normal height. When you decrease your size by at least half, you gain a +3 wild card bonus to any challenges using your Stealth skill. 
-
-305 
 
 Chapter Six: MeritS and FlawS 
 
@@ -12498,8 +11864,6 @@ You receive three modules when you take this merit, and you can never have more 
 
 - Modules can be fetishes, if you take appropriate levels of the Fetish background. 
 
-306 
-
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
 Alona McCreary (Order #15311115) 
@@ -12542,8 +11906,6 @@ Rules are for suckers too dim to avoid being caught. You’ve learned how to tem
 
 There’s no glory in defeat. To victor go the spoils, even if she must cheat to swing the balance. Once per game session, you may call upon Grandfather Thunder to cheat the odds for a short time. Seizing the Edge allows you to ignore the comparison of test pools for a single round, turning any tie on a single rock, paper, scissors challenge into a win for you. This temporary advantage carries through for any retests for a given challenge. Victories gained via Seizing the Edge are considered wins for the purpose of exceptional successes. You can activate this power at any point in the round, even before your initiative. 
 
-307 
-
 Chapter Six: MeritS and FlawS 
 
 Alona McCreary (Order #15311115) 
@@ -12583,8 +11945,6 @@ When selecting your fetish, you may choose the qualities as if you made it yours
 Phoenix is revered by the Silver Fangs. This totem has taken a special interest in your heroic deeds and will grant you a one-time favor. If you are wounded to the point of death while acting in a heroic manner, you are immediately resurrected at full health in a grand flourish of silver flame. 
 
 For the next five turns, you receive a +1 wild card bonus to all defensive test pools. Before the end of that time, you must kill all of your enemies present, or you must complete a heroic deed worthy of song and the admiration of the 
-
-308 
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
@@ -12632,8 +11992,6 @@ The Uktena share both friendship and kinfolk with a number of the Fera, and have
 
 Uktena has taught you the secret of shedding your skin to be reborn anew. Expend a standard action to rip the outer layer of skin from your face. Afterwards, your body renews, and you automatically heal 3 levels of damage, starting with aggravated damage first. The links to any powers active on you, such as Geas, Burden of Doubt, or Withering Gaze, are immediately dissolved, canceling them. The caster of any 
 
-309 
-
 Chapter Six: MeritS and FlawS 
 
 Alona McCreary (Order #15311115) 
@@ -12671,8 +12029,6 @@ The Ajaba are often considered the Garou of Africa, although their task there is
 ## **Devourer of Death (3 point merit)** 
 
 During the years of Black Tooth’s reign, the Ajaba were forced to wander outside of their homelands, scavenging in order to survive. You have learned how to make do with what you have, and you know that sometimes terrible things must be done in order to survive and thrive. With this merit, you are able to regain Gnosis by devouring raw, recently deceased flesh. For every half-pound of flesh that you devour, you regain 1 point of Gnosis. The source of the flesh does not matter; however, the taste of infants under one year of age is repugnant—it will still fill your belly and allow you to regain Gnosis, but the taste will linger for days. If you attempt to use this merit’s power during combat, you can consume one half-pound of flesh for each standard action you expend, provided the source of flesh is dead. 
-
-310 
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
@@ -12720,8 +12076,6 @@ All Bastet are descendants of the _Khara_ , the fierce sabertooth predators of a
 
 Some feel the call to more than one responsibility, and their talents in multiple fields prove the rightness of answering those calls. You may choose an additional pryio (auspice) from the one you chose after your character’s First Change. You gain an additional auspice affinity for the purpose of purchasing new gifts, selecting totem bonuses, and a new auspice bonus, which immediately applies to one of your skills. 
 
-311 
-
 Chapter Six: MeritS and FlawS 
 
 Alona McCreary (Order #15311115) 
@@ -12766,8 +12120,6 @@ Gurahl are protectors by nature, and few things are as dangerous as a mother whe
 
 - Immediately apply your regeneration benefit as though it were the beginning of the round, even if you have already applied it this round. For example, if you are at Rage 4, you immediately apply the benefits of Regeneration II, even if you have done so previously this round. 
 
-312 
-
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
 Alona McCreary (Order #15311115) 
@@ -12806,13 +12158,9 @@ In addition, if you choose to take on Wyrm Taint, you appear to be in the fourth
 
 Confusion and misdirection are the main tools the Nuwisha use when tricking those they encounter. You have learned how to harness the gift of misdirection, allowing you to escape even the stickiest situation. Once per game session, you can spend a standard action to declare a fair escape that cannot be contested, defying the 
 
-313 
-
 Chapter Six: MeritS and FlawS 
 
 Alona McCreary (Order #15311115) 
-
-**
 
 Alona McCreary (Order #15311115) 
 
@@ -12853,8 +12201,6 @@ Time is a toothless hunter to the ancient Rokea leviathans. Your blood has mutat
 Each multi-tribe faction has a list of merits that are available only to members of that group. These merits are not available to allies or kinfolk. 
 
 Fera  and Silent Striders can purchase up to one merit from either the Concordat of Stars or Sanctum of Gaia factions, but if a character joins the opposite faction, that character permanently loses the merit without a refund of XP. Fera cannot join the Concordat of Stars or the Sanctum of Gaia. (For more information, see **Chapter Eleven: Garou Nation: Politics in the Garou Nation** , page 505.) 
-
-315 
 
 Chapter Six: MeritS and FlawS 
 
@@ -12897,8 +12243,6 @@ Your faith in Gaia is absolute. You are steadfast in the knowledge that the Garo
 ## **Silver Tolerance (3 point merit)** 
 
 Gaia rewards those devoted to her cause. You can wield silver without losing Gnosis for coming into contact with it or carrying it on your person.  In addition, when you take damage from a silver source, the first point of damage is reduced from aggravated to normal damage. (For more information, see **Chapter Eight: Dramatic Systems, Silver** , page 360.) 
-
-316 
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
@@ -12943,8 +12287,6 @@ You are considered to possess 1 additional dot of the Rank background than your 
 ## **Celestial Attunement (2 point merit)** 
 
 You are attuned to one of the great astrological Celestines. Perhaps Tambiyah blessed your birth or the rage of Rorg runs in your blood. It guides your life and sometimes helps you in mysterious ways. Select a specific Celestial to which you are attuned, subject to your Storyteller’s approval. You gain an additional Archetype on your character sheet, which can be used to regain Willpower. While this merit is a blessing, your patron may also assign you strange requests or missions through dreams or visions. 
-
-317 
 
 Chapter Six: MeritS and FlawS 
 
@@ -12994,8 +12336,6 @@ The hero to whom you are related is obvious to any Garou who sees you. You shoul
 
 Some quirk of the First Change slowed down your aging process. You are decades older than you appear, and barring a violent death, you may live to be several hundred years old. This merit does not stack with other merits that grant longer life. 
 
-318 
-
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
 Alona McCreary (Order #15311115) 
@@ -13044,8 +12384,6 @@ You can bring your predatory nature to the surface, frightening off humans. This
 
 You may be larger than other people, more resistant to hardships, or have tougher skin, but for whatever reason, you have a greater capacity to withstand injury. Characters with this merit gain 1 additional health level in each wound track, resulting in four Healthy levels, four Injured levels, and four Incapacitated levels. This merit works in conjunction with other powers that grant health levels. 
 
-319 
-
 Chapter Six: MeritS and FlawS 
 
 Alona McCreary (Order #15311115) 
@@ -13093,8 +12431,6 @@ You are particularly comfortable navigating the Umbra, and you have an instinct 
 Your spirit is attuned to a realm of your choice from the Penumbra or Near Umbra. Spirits within the realm see you more favorably, respect a small territory as yours within the realm, and welcome you home when you visit. While in your attuned realm, you gain a +2 wild card bonus for dealing with its spirits or interactions with the realm. You instinctively know the laws of that realm and receive a free retest for umbral travel to that realm. All Umbral Quest difficulties associated with this realm, including travel, are reduced by half, rounded down. 
 
 This merit may only be purchased once per character. Once attuned, you cannot change your attuned realm without removing this merit and then repurchasing it for a different 
-
-320 
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
@@ -13152,8 +12488,6 @@ At the start of each game session, or anytime your character is presented with y
 
 You are particularly vulnerable to some substance other than silver. Choose a substance that is possible to craft 
 
-321 
-
 Chapter Six: MeritS and FlawS 
 
 Alona McCreary (Order #15311115) 
@@ -13204,8 +12538,6 @@ Your claws and fangs are blunted, rather than being sharp like those of other we
 
 You may be a Lupus, or extremely dedicated to the Wyld. For whatever reason, you are ill at ease in the city. While in an urban environment, you are distracted, edgy, and easily startled. You suffer a -1 penalty to Investigation and Awareness skill challenges and a -3 penalty to resist any powers that cause you to flee or become frightened, such as Snarl of the Predator. 
 
-322 
-
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
 Alona McCreary (Order #15311115) 
@@ -13253,8 +12585,6 @@ You cannot shift into Crinos form unless you have at least 4 points of Rage. If 
 ## **Dull (2 point flaw)** 
 
 You’re prone to talk about bland things, and you don’t handle furor or emotional stimulation very well. When others get passionate, you boggle, harrumph, and withdraw. This quality makes it difficult for you to express your deepest feelings and inner motivations. You don’t receive the retest usually given by a character’s archetype. 
-
-323 
 
 Chapter Six: MeritS and FlawS 
 
@@ -13308,8 +12638,6 @@ Some Lupus are so tied to their wolf natures that they have difficulty approxima
 
 You have no patience for standing around and waiting. You want to do things now—forget the slowpokes trying to hold you back. You vastly prefer acting on impulse without caring 
 
-324 
-
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
 Alona McCreary (Order #15311115) 
@@ -13355,8 +12683,6 @@ You may have lost an eye as part of a horrific attack or due to an accident of b
 ## **Overconfident (2 point flaw)** 
 
 You have an exaggerated and unshakable opinion of your own worth and capabilities. You trust your own abilities over anything another person could offer, even in situations where you risk defeat. Because you aren’t actually invulnerable and omnipotent, such overconfidence can be dangerous, and when you do fail, you quickly find someone or something else to blame. You cannot benefit from the Assist Attacker or Assist Defender mass combat tactics, unless the person assisting you is following an order that you have just issued. 
-
-325 
 
 Chapter Six: MeritS and FlawS 
 
@@ -13408,8 +12734,6 @@ You suffer the traditional folklore signs of lycanthropy— your eyebrows have g
 
 You’ve committed a grievous offense against the spirits at large or a particular spirit of great power and influence, such as an Incarna or greater spirit. While you have this flaw, your Rank background is considered one Rank lower for the 
 
-326 
-
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
 Alona McCreary (Order #15311115) 
@@ -13455,8 +12779,6 @@ Perhaps you had a horrific run-in with an ancient vampire or suffer from some cu
 A human friend or family member is suspicious about your activities and constantly looks into your unexplained absences, examines the unusual stains on your clothing, and occasionally spies on you (for your own good). 
 
 You must spend one downtime action each game session to avoid having your loved one stumble across evidence of the supernatural world. If you fail to do this, you will need to spend three downtime actions before the next game session in order to convince your loved one that everything is normal. If you fail to do this, you must either explain the supernatural world to your loved one (purchasing her as a Retainer) or allow her to stumble around and get killed, captured, or corrupted by your enemies. In either case, you must immediately remove this flaw from your character sheet, spending XP to remove the flaw as normal. If you do not possess sufficient XP to remove the flaw, you go into XP debt. 
-
-327 
 
 Chapter Six: MeritS and FlawS 
 
@@ -13508,8 +12830,6 @@ Most derangement concepts can be represented with more than one mechanic. For ex
 
 Think of the system for creating a derangement this way—if a character’s derangement trigger is water, the specific outcome and reaction will be different according to that character’s derangement type, as the following examples illustrate: 
 
-328 
-
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
 Alona McCreary (Order #15311115) 
@@ -13552,8 +12872,6 @@ _Valka One-Eye, Jarl of the Embers of the Last Light, and LaCoix’s bitter riva
 _She knows a frontal assault on the hive is unwise, but yet LaCoix feels the weight of yet another Derangement trait, bringing her total to 3. “The whole of House Unbreakable Hearth is on the way, more than enough to kill every one of those bastards without risking the lives of our warriors. The hive will still be there in the morning.”_ 
 
 _“That’s the sensible thing to do,” the Get of Fenris agrees. Valka turns her one-eyed gaze towards the horizon, where a smoke trail_ 
-
-329 
 
 Chapter Six: MeritS and FlawS 
 
@@ -13623,8 +12941,6 @@ When you encounter your derangement’s trigger, you feel the urge to cause dest
 
 - You need to be the “alpha” werewolf in any social situation, or you respond with violence. 
 
-330 
-
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
 Alona McCreary (Order #15311115) 
@@ -13679,8 +12995,6 @@ Anyone who challenges your belief, attempts to convince you that you are wrong, 
 
 - You are the most qualified person to lead your fellow Garou in any situation. Anyone who says differently is a mindless fool. 
 
-331 
-
 Chapter Six: MeritS and FlawS 
 
 Alona McCreary (Order #15311115) 
@@ -13711,8 +13025,6 @@ When a character attempts a difficult action, such as punching someone or moving
 • **Paper:** Beats rock and ties with paper. 
 
 • **Scissors:** Beats paper and ties with scissors. 
-
-333 
 
 Chapter Seven: Core SyStemS 
 
@@ -13770,8 +13082,6 @@ Sometimes the Storyteller might leave notes on prop objects or in locations indi
 
 The next step is to perform a test. To make a test, play rock, paper, scissors with your Storyteller. 
 
-334 
-
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
 Alona McCreary (Order #15311115) 
@@ -13827,8 +13137,6 @@ _Madeline the Glass Walker attempts to repair the damaged smartphone she took of
 3. Madeline throws a rock, paper, scissors test with the Storyteller. The Storyteller throws paper and Madeline throws rock, losing the test. 
 
 4. Madeline really needs to get the location of this meeting. The player decides that she will spend a point of Willpower to retest. The Storyteller throws paper again, but this time, Madeline throws scissors. Since scissors beats paper, she wins. 
-
-335 
 
 Chapter Seven: Core SyStemS 
 
@@ -13890,8 +13198,6 @@ Defending against Mental and Social challenges requires a different formula, as 
 
 Willpower quantifies how well a character can resist Mental and Social challenges. Note that defense test pools use your character’s current Willpower, not your character’s total permanent Willpower. Therefore, the more Willpower you spend, the more vulnerable you become to Social and Mental challenges. It is to your advantage to save Willpower points for when you really need them. For more information, please see **Willpower** and **Regaining Willpower** , page 352. 
 
-336 
-
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
 Alona McCreary (Order #15311115) 
@@ -13952,8 +13258,6 @@ If you try to perform an action without having the appropriate skill and lose th
 
 At any time before the actual test is performed, a player may choose to acquiesce and admit defeat. Characters who relent lose the challenge automatically. If the relenting character’s test pool is less than the attacker’s, then the attacker scores an exceptional success; otherwise, the attacker scores a normal success. 
 
-337 
-
 Chapter Seven: Core SyStemS 
 
 Alona McCreary (Order #15311115) 
@@ -14004,8 +13308,6 @@ _Madeline runs with the city official chasing after her. She comes across a poli
 
 5. Madeline asks if she qualifies for an overbid retest. Since the city official’s test pool is 10, Madeline would need a test pool of 20 or more to qualify for an overbid retest. Since Madeline’s test pool is 16, she cannot use an overbid retest on this challenge. 
 
-338 
-
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
 Alona McCreary (Order #15311115) 
@@ -14052,8 +13354,6 @@ You can use a simple action or standard action to move up to three steps. If you
 
 When taking your steps, you must move around other characters. Allies may allow you to move past them, but unwilling characters may physically block you. If you as a player cannot safely and easily move past the space an opposing character occupies, then you are considered blocked. Unless the player blocking you is prone or grappled, 
 
-339 
-
 Chapter Seven: Core SyStemS 
 
 Alona McCreary (Order #15311115) 
@@ -14093,8 +13393,6 @@ Sometimes, you want to duck for cover, but there isn’t anything to hide behind
 Players entering combat or other dynamic scenes may elect to agree on an outcome, rather than use mechanics to resolve a challenge. If all players agree to an outcome that the Storyteller approves, then the players end the complex scenario and should return to roleplay as quickly as possible. If the players can’t come to an agreement about the outcome, then proceed to the next step. It is possible for players to handle mediation without the assistance of a Storyteller, but if there is any disagreement at all, the Storyteller arbitrates. 
 
 Sometimes, to keep the story flowing, players might agree to an outcome that furthers the stories for all of the characters. For example, Will might simply want to escape the scene with his life, but Jacob wants to give Will a flesh wound 
-
-340 Alona McCreary (Order #15311115) 
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
@@ -14141,9 +13439,6 @@ You can only take Physical actions during a Rage round. You can move or attack, 
 
 You start a combat by using your simple action to draw a gun. Later, when your initiative comes up, you use your standard action to shoot. If you were holding the weapon before the combat started, you could use your standard action to fire, starting the combat, and when your initiative comes up, you could use your simple action to move behind cover. 
 
-**
-341 
-
 Chapter Seven: Core SyStemS 
 
 Alona McCreary (Order #15311115) 
@@ -14185,8 +13480,6 @@ When attacking someone with a melee weapon (such as a knife, sword, or club), us
 1. **Syndrome (Initiative 10):** It occurs to Syndrome that he’s found little worth fighting a Garou in Crinos form over. He decides it’s a good time to flee. Syndrome is able to revert to Rodens form without an action. He spends his simple action to dart beneath the car, and uses his standard action to activate the gift Blur of the Milky Eye. 
 
 When throwing a weapon at your target, use your Physical attribute + Athletics skill versus your opponent’s Physical attribute + Dodge skill. By default, successful thrown attacks inflict 1 point of damage. To use a thrown attack, you need to be within 10 steps of your target, and you must use a weapon with a quality that allows it to be thrown, such as Balanced (see **Chapter Fifteen: Influence and Equipment, Ranged Weapons** , page 707). 
-
-342 
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
@@ -14236,8 +13529,6 @@ If you succeed with a Blinding Attack, your opponent suffers 3 fewer damage (min
 
 Modify your attack test pool by -2. If you succeed in the challenge, you force your target to drop one item of your choice. Picking the item up requires a standard action. If you are Dexterity-focused and have a free hand, you may choose to end up holding the disarmed object. Normally this maneuver can only be used on an object a target is holding in her hands, but the Storyteller may allow you to use this maneuver to take unsecured items off a target, such as a cord tied around her neck, a hat, or a rod sticking out of her pocket. Disarm cannot be used to remove large or secured items, such as a jacket or chain mail. 
 
-343 
-
 Chapter Seven: Core SyStemS 
 
 Alona McCreary (Order #15311115) 
@@ -14286,8 +13577,6 @@ _Feral combat maneuvers_ take advantage of the animal instincts, quadrupled spee
 
 - If you are Strength-focused, you can perform Mangle Fur or Savage Leap once per combat without spending Willpower. 
 
-344 
-
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
 Alona McCreary (Order #15311115) 
@@ -14329,8 +13618,6 @@ If you fail a Mental or Social attack, the target and everyone who witnesses it 
 A character with the Awareness skill can attempt to notice nearby Mental and Social attacks even if the attacker succeeds on her test. If you are looking at someone who successfully uses a power or at the power’s target (or if you are the power’s target), you can make an opposed challenge using your Mental attribute + Awareness skill versus the target’s Mental attribute + current Willpower or Mental attribute + Subterfuge skill (target’s choice) to determine if you understand what happened. 
 
 If the source of a supernatural power isn’t within line of sight, characters who notice the power know what direction the power came from. For example, if someone hiding on a nearby rooftop successfully uses a Mental power on the Master of the Challenge, any character with the Awareness skill who is looking at the Master of the Challenge when the challenge takes place has the opportunity to notice the attack. If that character succeeds in that challenge, she recognizes that the power originated from somewhere above, but may not be able to immediately determine exactly which rooftop the attacker stood on, without further investigation. 
-
-345 
 
 Chapter Seven: Core SyStemS 
 
@@ -14375,8 +13662,6 @@ A _mixed challenge_ is one that compares two different character attributes. A p
 
 When you utilize a mixed challenge, the type of challenge is determined by the defender’s resistance attribute for the purpose of maximum attacks per round. For example, the above challenge uses the defender’s Physical attribute, and counts against the maximum number of Physical challenges a defender can be targeted by for that round. 
 
-346 
-
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
 Alona McCreary (Order #15311115) 
@@ -14419,8 +13704,6 @@ _Our companions are fighting their vampire opponent, who has since regained her 
 
 A player may choose to spend her simple action and use the Assist Defender tactic at any time during the round, even before her turn in the initiative order. A player can also hold her simple action, waiting for the opportunity to assist an ally later in the round. A player cannot choose to use the Assist Defender tactic if she has already used all of her simple actions for that round, or if she has no simple action during that round. Assist Defender does not use a character’s standard action; even if she expends a simple action to use assist defender, the character acts normally on her standard action when her initiative arrives. 
 
-347 
-
 Chapter Seven: Core SyStemS 
 
 Alona McCreary (Order #15311115) 
@@ -14451,9 +13734,6 @@ In some circumstances, both an attacking character and a defending character may
 ## **Stock NPCs and Mass Combat** 
 
 On occasion, Stock NPCs become involved in mass combat scenes. Remember that Stock NPCs are background characters. While they can be useful, they should never be given as much attention or allowed as many options for drama and glory as an actual player-character. When a Stock NPC uses the Assist Attacker tactic, she provides a +1 wild card bonus to the attacker’s Physical attack. When a Stock NPC uses the Assist Defender tactic, she provides a +1 wild card bonus to the defender’s Dodge skill defense test pool. Like a normal use of mass combat tactics, no action or defense can be modified by more than one mass combat tactic. If a player-character and a Stock NPC wish to modify the same attack or defense, the Storyteller should always favor the player-character over the Stock NPC. 
-
-**
-348 
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
@@ -14511,8 +13791,6 @@ Stamina-focused characters don’t suffer penalties when they reach the Incapaci
 
 _Normal damage_ comes from attacks that slash, pierce, or bash your opponent. Unless otherwise noted, assume your attack causes normal damage. 
 
-349 
-
 Chapter Seven: Core SyStemS 
 
 Alona McCreary (Order #15311115) 
@@ -14548,8 +13826,6 @@ A _dose_ is the amount of chemical that can affect a character in a single turn.
 - **Amphetamine:** When you ingest a dose of a stimulant, you become twitchy and hyperactive, and you cannot sleep or rest for the next hour. Additional doses do not increase the penalties, but add to the duration on a one-for-one basis. If you are exposed to more doses of a stimulant than you have dots in your Physical attribute in one 24-hour period, you suffer major organ failure and will die without medical attention. Staminafocused characters can ingest three additional doses of stimulants before suffering organ failure. Undead characters are immune to organ failure. 
 
 - **Toxin:** When you’re exposed to a toxin, nothing happens for a three turns (five turns if you are Staminafocused). After that time passes, you must make a static challenge using your Physical attribute + Survival skill with a difficulty between 5 and 30 (depending on the poison’s virility as determined by the Storyteller). If you succeed, you resist the poison. Failure causes you to take 1 point of damage that cannot be reduced or negated, and you must test again in five minutes. This process continues until you succeed or die. Undead 
-
-350 
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
@@ -14607,8 +13883,6 @@ A werewolf can also be killed by silver weapons or the corrupt attacks that eman
 
 A werewolf who falls unconscious from damage, but who is not killed, eventually recovers. She regains consciousness, along with all of her Incapacitated health levels, after 10 minutes of uninterrupted regeneration. 
 
-351 
-
 Chapter Seven: Core SyStemS 
 
 Alona McCreary (Order #15311115) 
@@ -14657,8 +13931,6 @@ There is no limit to the number of characters whom you can reward for roleplayin
 
 When the Storyteller notices a player roleplaying her character well, she may elect to refresh some or all of the character’s spent Willpower. By default, the Storyteller refreshes all of the character’s spent Willpower (just like a player would), but the Storyteller is allowed to award fewer Willpower if the situation warrants it. Storytellers can refresh Willpower as often as they like and can refresh the same character’s Willpower more than once per night. 
 
-352 Alona McCreary (Order #15311115) 
-
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
 Storytellers should not hesitate to use this ability when they witness a player roleplaying in a way that other players do not see or do not acknowledge. However, this refresh should be used carefully, lest players forget to use the system. Players should be allowed and encouraged to reward each other whenever possible. 
@@ -14680,9 +13952,6 @@ _During a pack raid into a Pentex-owned skyscraper, Kevin orders a halt when Raq
 ## **Storyteller Refresh** 
 
 _At the end of a particularly harrowing combat scene, the Storyteller announces that everyone involved regains 1 point of spent Willpower. This act allows the Storyteller to reward her players and make sure that no one leaves the fight with all of their Willpower expended (as everyone will have at least 1 point), but leaves room for the players to reward each other through roleplay later in the evening. If the Storyteller feels that there won’t be an opportunity to roleplay in the near future, she might decide to refresh more (or all) Willpower spent during the combat._ 
-
-**
-353 
 
 Chapter Seven: Core SyStemS 
 
@@ -14720,8 +13989,6 @@ Noah and Rickard shared a look. For the first time in weeks, a shadow of a smile
 
 Alona McCreary (Order #15311115) 
 
-*       *       * 
-
 “This is insane, you know,” Sabine admonished the three Garou. “You plan on finding Anastasia Clement and taking her alive, before dragging her to Erebus and forcing redemption on her? You understand that isn’t how redemption actually works, don’t you?” 
 
 “Sabine, she is single-handedly leading the charge against the Fera. If we can remove her, we only strengthen our alliance with the Fera.” Unblinking, Rickard met her chastisement with his old, reliable firmness. “We’re not asking for your assistance, or even your permission. But if we don’t return, you know why.” 
@@ -14729,8 +13996,6 @@ Alona McCreary (Order #15311115)
 “This is suicide, Rickard. Would your packmates want this for you, truly?” 
 
 Turning heel, the Alpha had no answer to the kinfolk’s question. Instead, he corrected, “It’s not suicide. It’s redemption.” 
-
-*       *       * 
 
 They found her in Malfeas. The fallen Fianna spent her time in the Umbra, watching over her new recruits as they stepped into the Labyrinth and danced the Spiral. For months, Anastasia Clement had assailed Fera in hopes of breaking the tentative agreement between the Garou and their shapeshifting brethren. She hid in the dark corners of the Umbra, taunting the Garou at every turn. 
 
@@ -14745,8 +14010,6 @@ Locating her was easy enough for the pack. After the months they had spent track
 Rickard nodded once, holding up a hand to his packmates. At the end of the line they saw her—willowy and lithe, pleased as a cat with a bowl of cream. She followed her new children before veering off, dipping into a dark side passage. 
 
 Miles to Go hit her under the cover of silence and darkness, thanks to a fetish forged by Noah’s cousin. Though she fought like a dervish, the Garou had justice and redemption on their side. 
-
-*       *       * 
 
 The silver streams of Erebus spat and bubbled before them. In the distance, a thick line of silver shimmered—their destination. 
 
@@ -14815,8 +14078,6 @@ Here are some popular myths and suppositions about the Garou and the Fera—as w
 
 - **Werewolves only change during a full moon.** It’s untrue that Garou can only change shape during a full moon, but they have an intrinsic tie to Luna, the spirit 
 
-359 
-
 Chapter eight: DramatiC SyStemS 
 
 Alona McCreary (Order #15311115) 
@@ -14861,8 +14122,6 @@ The _First Change_ is the moment when a Garou or Fera first goes through the tra
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-360 
-
 Alona McCreary (Order #15311115) 
 
 **
@@ -14892,8 +14151,6 @@ If a human (not a Bitten kinfolk or Lost Cub) goes through the First Change duri
 2. You must begin play as a Cub (see **Kinfolk, Cubs, and Lost Cubs** , (see below). 
 
 3. A new werewolf starts with 3 dots of level 1 gifts, which must be of an affinity matching her tribe, her auspice, or her breed (player’s choice). 
-
-361 
 
 Chapter eight: DramatiC SyStemS 
 
@@ -14930,8 +14187,6 @@ Each of the Changing Breeds have unique names and roles for their kinfolk, Cubs,
 
 **
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
-
-362 
 
 Alona McCreary (Order #15311115) 
 
@@ -14985,8 +14240,6 @@ A kinfolk cannot purchase any tribe-specific merits. However, she may be require
 
 The following information replaces the equivalent steps in the Werewolf Quick-Start creation guide, **Chapter Three: Character Creation, Quick-Start Character Creation Guide** , page 176. 
 
-363 
-
 Chapter eight: DramatiC SyStemS 
 
 Alona McCreary (Order #15311115) 
@@ -15025,8 +14278,6 @@ Create Cub characters in the same fashion as a regular Garou, but without any do
 **
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-364 
-
 Alona McCreary (Order #15311115) 
 
 **
@@ -15061,8 +14312,6 @@ _“I was on fire. Every nerve ending tried to convince me that I was dead alrea
 
 The onset of the Age of Apocalypse brought massive destruction to the Garou. Great caerns were brought to their foundations, septs were splintered, and umbral storms made escape impossible. The Wyrm attacked from all directions, sending twisted kinfolk and corrupted allies as secret saboteurs, poisoning the hearts of caerns using mystical toxins and shattering the Gauntlet, allowing hidden horrors from the Umbra to attack. Survival became paramount, overwhelming all other responsibilities. The Garou Nation and its allies fought the Wyrm to a standstill, but at a great cost. 
 
-365 
-
 Chapter eight: DramatiC SyStemS 
 
 Alona McCreary (Order #15311115) 
@@ -15093,8 +14342,6 @@ Others feel the Bite is a direct attack, albeit a subtle one, from the Wyrm. The
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-366 
-
 Alona McCreary (Order #15311115) 
 
 does line up with the Wyrm’s previous machinations, there has been no sign that Bitten hold any more Wyrm Taint than any other Garou in the nation. The Elders have largely dismissed this theory as nothing more than a fear of change. 
@@ -15113,17 +14360,11 @@ Only those with a spiritual connection to Gaia can ever benefit from the Bite. K
 
 Once an Unborn or kinfolk has been Bitten, she undergoes a dramatic mutation in her mind, body, and soul that lasts for exactly 28 days. This extended First Change is different for every kinfolk or Unborn, but they all experience a terrifying intensity unlike that of naturally changing Garou. Initially, a Bitten begins to feel as though she has come down with 
 
-**
-## **DNA and Garou** 
-
 For many years, the Wyrm used its minions to infiltrate the scientific community in order to create better weapons to use against the Garou. While Gaian werewolves failed to take advantage of such research, the Wyrm’s agents had no qualms about taking these tools and bending them to their will, Pentex and its subsidiaries were particularly focused on this experimentation. Through their diligence, the Wyrm has produced tools, such as silver nitrate bullets and drugs intended to limit a shapeshifter’s ability to change forms. Some minions of the Wyrm believe that, while Garou are half spirit, the genetic aspects of their abilities can be manipulated. 
 
 Rumors run wild of experimentation on captured Garou, kinfolk, and Bitten. These individuals are rarely seen again. If they are, they have often been corrupted beyond recognition. Pentex has long been known for its experiments on the genetic makeup of Garou, including its infiltration of the Valkenburg Foundation. 
 
 Many Garou feel the Valkenburg Foundation is dangerous and will ultimately cause more problems than it solves. However, this group has worked to identify the origins of the Bitten, and it has found ways to ease their transition after receiving the Bite. To date, several Bitten found their way to the foundation in hopes of being rehabilitated. The Valkenburg Foundation has largely gone underground in the wake of the umbral storms, but there are those who are still able to find their agents when the need arises. 
-
-**
-367 
 
 Chapter eight: DramatiC SyStemS 
 
@@ -15157,8 +14398,6 @@ The Bite can occur at any time, at player or Storyteller discretion, but only  U
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-368 
-
 Alona McCreary (Order #15311115) 
 
 **
@@ -15184,8 +14423,6 @@ Bitten Garou are identical to true-born Garou, save a strange uncomfortable feel
 Many Metis, in particular, have welcomed the advent of the Bitten, viewing the Bite as their way to finally contribute additional warriors to Gaia. Metis Garou understand the stigma attached to the Bitten, and often find themselves uniquely prepared to help these young Garou find their footing within the Garou Nation. 
 
 Many Elders have come to realize the Bitten represent a unique opportunity to replenish the warriors lost during the beginning of the Age of Apocalypse. They have grudgingly accepted that these new Garou may offer salvation when the Garou Nation needs it most. However, they have largely forbidden the practice of biting known kinfolk without explicit permission both from the tribe protecting the kinfolk and the kinfolk herself. These steps 
-
-369 
 
 Chapter eight: DramatiC SyStemS 
 
@@ -15241,8 +14478,6 @@ _The conversion process has left River with refunded XP. River’s player decide
 
 _River’s player can now purchase new merits, so long as she does not go above the 7-point merit cap. She may select from general or Get of Fenris tribal merits._ 
 
-370 
-
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
 Alona McCreary (Order #15311115) 
@@ -15285,9 +14520,6 @@ While in Glabro form, her Dodge skill wild card bonus increases to +5, instead o
 ## **Personal Items and Shifting Forms** 
 
 Garou naturally form a spiritual bond with personal items that have been in close contact with them for a long period of time. Examples include: clothing or small items, such as a pistol, wallet, or even a smart phone, that are carried in one hand. This bond allows these objects to become part of a werewolf’s body when she assumes other forms. A Garou who wears glasses while in her Homid form might discover that her Lupus form has circles of colored fur around her eyes. In addition, a werewolf automatically bonds with any attuned fetishes she might possess. However, armor lacking the empowerment of a fetish is too inflexible for shapeshifting; Garou cannot bond with mundane armor or retain it while they shift forms. 
-
-**
-371 
 
 Chapter eight: DramatiC SyStemS 
 
@@ -15333,8 +14565,6 @@ A Garou in Lupus form can attempt a bite attack without needing to grapple her o
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-372 
-
 Alona McCreary (Order #15311115) 
 
 |||**Homid**|**Glabro**|**Crinos**|**Hispo**|**Lupus**||
@@ -15343,8 +14573,6 @@ Alona McCreary (Order #15311115)
 ||**Ajaba**|• None<br>• (Homid-breed: can<br>decrease Rage)|•Aggravated<br>damage with<br>claws<br>• +3 bonus to<br>Brawl, Melee,<br>and Firearms<br>• +2 bonus to<br>Intimidation and<br>Athletics<br>• (Strength focus:<br>Brawl bonus<br>becomes +5)|• Aggravated<br>damage with<br>teeth and claws<br>• Can bite without<br>grappling<br>• +4 bonus to<br>Brawl and Melee<br>• +1 damage on<br>bite attacks<br>• (Strength focus:<br>Brawl and<br>Melee bonus<br>becomes +6)|• Aggravated<br>damage with<br>teeth and claws<br>• Can bite without<br>grappling<br>• Gains Hardened<br>and Impact<br>Absorption<br>• (Stamina focus: 3<br>additional health<br>levels)|• Can track using<br>scent<br>• Can bite<br>without<br>grappling<br>• (Hyaenid-breed:<br>can decrease<br>Rage)||
 ||**Ananasi**|• None|• +2 bonus<br>to Brawl,<br>Intimidation,<br>Athletics, and<br>Dodge|• Aggravated<br>damage with<br>claws<br>• Can bite without<br>grappling<br>• +4 bonus to<br>Brawl and<br>Athletics<br>• +2 bonus to<br>Dodge<br>• (Strength focus:<br>Brawl and<br>Athletics bonus<br>becomes +6)|• Aggravated<br>damage with<br>fangs and claws<br>• Can bite without<br>grappling<br>• +2 bonus to<br>Brawl<br>• +1 bonus to<br>Dodge<br>• Can climb<br>vertical surfaces<br>at normal speed<br>• (Stamina focus: 3<br>additional health<br>levels)|• Can squeeze<br>through small<br>openings<br>• All damage<br>from incoming<br>attacks is<br>reduced to<br>1 point of<br>damage||
 ||Bastet|• None<br>• (Homid-breed: can<br>decrease Rage)|• Aggravated<br>damage with<br>claws<br>• +3 bonus to<br>Dodge<br>• (Dexterity focus:<br>Dodge bonus<br>becomes +5)|• Aggravated<br>damage with<br>teeth and claws<br>• Can bite without<br>grappling<br>• +4 bonus to<br>Brawl and Melee<br>• (Strength focus:<br>Brawl and<br>Melee bonus<br>becomes +6)|• Aggravated<br>damage with<br>teeth and claws<br>• Can bite without<br>grappling<br>• +2 bonus to<br>Brawl and<br>Dodge<br>• (Stamina focus: 3<br>additional health<br>levels)|• Can track using<br>scent<br>• Can bite<br>without<br>grappling<br>• (Feline-breed:<br>can decrease<br>Rage)||
-
-373 
 
 Chapter eight: DramatiC SyStemS 
 
@@ -15358,8 +14586,6 @@ Alona McCreary (Order #15311115)
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-374 
-
 Alona McCreary (Order #15311115) 
 
 |||**Homid**|**Glabro**|**Crinos**|**Hispo**|**Lupus**||
@@ -15367,8 +14593,6 @@ Alona McCreary (Order #15311115)
 ||**Nuwisha**|• None|• Aggravated<br>damage with<br>claws<br>• +2 bonus to<br>Dodge, Stealth,<br>and Survival<br>• (Dexterity focus:<br>Dodge bonus<br>becomes +4)|• Aggravated<br>damage with teeth<br>and claws<br>• Can bite without<br>grappling<br>• +3 bonus to Brawl<br>and Melee<br>• +1 bonus to Dodge<br>• (Strength focus:<br>Brawl and<br>Melee bonus<br>becomes +5)|• Aggravated<br>damage with<br>teeth and claws<br>• Can bite without<br>grappling<br>• +4 bonus to<br>Stealth and<br>Survival<br>• +2 bonus to<br>Dodge<br>• (Stamina focus: 3<br>additional health<br>levels)|• Can track using<br>scent<br>• Can bite<br>without<br>grappling<br>• +2 bonus to<br>Dodge, Stealth,<br>and Survival||
 ||**Ratkin**|• None<br>• (Homid-breed:<br>can decrease<br>Rage)|• +1 bonus to<br>Athletics, Brawl,<br>Melee, and<br>Firearms<br>• +2 bonus to<br>Dodge<br>• (Dexterity focus:<br>+2 bonus to<br>Stealth)|• Aggravated<br>damage with teeth<br>• Can bite without<br>grappling<br>• +4 bonus to<br>Athletics and<br>Dodge<br>• +2 damage on<br>Brawl and Melee<br>attacks<br>• Can use tools and<br>all weapons<br>• Gains prehensile tail<br>• (Dexterity focus:<br>Athletics and<br>Dodge bonus<br>becomes +6)|• Aggravated<br>damage with<br>teeth and claws<br>• Can bite without<br>grappling<br>• +3 bonus to Brawl<br>• +2 bonus to<br>Dodge<br>• (Stamina focus: 3<br>additional health<br>levels)|• Can track using<br>scent<br>• Can bite<br>without<br>grappling<br>• +2 bonus to<br>Investigation<br>and Stealth<br>• Can climb<br>without<br>movement<br>penalty,<br>carrying twice<br>their weight<br>• (Rodens-breed:<br>can decrease<br>Rage)||
 ||**Rokea**|• None<br>• (Homid-breed:<br>can decrease<br>Rage)|• +2 bonus to<br>Brawl, Melee,<br>and Firearms<br>• (Stamina focus: 3<br>additional health<br>levels)|• Aggravated<br>damage with teeth<br>and claws<br>• Can bite without<br>grappling<br>• +6 bonus to Brawl<br>• +1 aggravated<br>damage on bite<br>attacks<br>• Swim: can breathe<br>underwater<br>• Sending: can<br>communicate to<br>other Rokea up to<br>a mile away while<br>underwater<br>• (Strength focus:<br>Base damage on<br>bite attack rises<br>to 3 points of<br>damage)|• Aggravated<br>damate with<br>teeth<br>• Can bite without<br>grappling<br>• +6 bonus to Brawl<br>• +2 aggravated<br>damage on bite<br>attacks<br>• Swim: can breathe<br>underwater<br>• Sending: can<br>communicate to<br>other Rokea up to<br>a mile away while<br>underwater<br>• (Strength focus:<br>Base damage on<br>bite attack rises<br>to 4 points of<br>damage)|• Can track<br>using scent<br>underwater<br>• Swim: can<br>breathe<br>underwater<br>• Sending: can<br>communicate<br>to other Rokea<br>up to a mile<br>away while<br>underwater<br>• (Squamus-<br>breed: can<br>decrease Rage)||
-
-375 
 
 Chapter eight: DramatiC SyStemS 
 
@@ -15422,8 +14646,6 @@ _Rage_ is a supernatural fury that fuels the spirits of all Garou. This ferociou
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-376 
-
 Alona McCreary (Order #15311115) 
 
 Early on, Garou learn to keep this anger in check, though the aura of its presence cannot be hidden, causing humans to flinch unconsciously at the predator in their midst. When thrust into danger or excitement, these carefully crafted emotional leashes shatter, releasing from within a fury both awe- and terror-inspiring. 
@@ -15459,8 +14681,6 @@ Rage is a powerful weapon, but like many powerful tools, it can present dangers 
 - During the Everyman round, a Homid-breed Garou in Homid form or a Lupus-breed in Lupus form may opt to spend a simple action to vent 1 to 3 points of Rage. The player chooses how much Rage is lost in this manner. 
 
 - Certain gifts can lower a Garou’s Rage. In no case can a Garou’s Rage drop below 0 points. 
-
-377 
 
 Chapter eight: DramatiC SyStemS 
 
@@ -15521,8 +14741,6 @@ Once you have 8 or more points of Rage, your fury is such that you can no longer
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-378 
-
 Alona McCreary (Order #15311115) 
 
 blooding your enemies with your hands, teeth, or claws sates you. Additionally, your character’s Dodge skill defense test pools receive a -2 penalty. 
@@ -15571,8 +14789,6 @@ There are three types of frenzy:
 
 - Thrall of the Wyrm frenzy 
 
-379 
-
 Chapter eight: DramatiC SyStemS 
 
 Alona McCreary (Order #15311115) 
@@ -15608,8 +14824,6 @@ In recent years, however, the destruction and splintering of the world’s caern
 Modern psychiatric medicine has prioritized the exploration of the impact of post-traumatic stress disorder, major depression, anxiety disorders, and related conditions. Physicians have only recently begun to recognize the full range of symptoms of these conditions and how they affect those suffering from them. Among the members of the Garou Nation, some believe that Harano might be a similar condition occurring in shapeshifters. Afflicted Garou may 
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
-
-380 
 
 Alona McCreary (Order #15311115) 
 
@@ -15653,8 +14867,6 @@ There are five stages of Harano, each representing a graduation of this conditio
 
 - **Second Stage:** Rest or concentration feels impossible as you experience an adrenaline-soaked sense of potent hyperawareness, always preparing for yet-another battle or ambush that might occur at any moment. You suffer from insomnia, and you appear tired, irritable, and withdrawn to others. When testing for anger frenzy, you receive a +2 penalty to your current Rage level, as though you have 2 additional points of Rage. For example, if you have 6 points of Rage, you would be in anger frenzy: stage 1, but benefit from Rage level 6 on the Rage track. However, after accounting for your +2 penalty to your Rage level, you enter anger frenzy: stage 1, as though you had 8 points of Rage, instead of 6 points. 
 
-381 
-
 Chapter eight: DramatiC SyStemS 
 
 Alona McCreary (Order #15311115) 
@@ -15697,8 +14909,6 @@ When humans see Garou or Fera in their Crinos forms, the humans are affected wit
 
 There are a number of symptoms associated with the Delirium. Humans suffer differently according to their Stock NPC rating: 
 
-382 
-
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
 Alona McCreary (Order #15311115) 
@@ -15736,9 +14946,6 @@ A newly changed werewolf may not understand why she can likely never go home. Th
 
 The power of the Delirium over the human brain is so potent that even a photograph or video recording of a werewolf in Crinos can have a strange effect. A small part of the amygdala rejects the information presented, resulting in a strange “uncanny valley” effect. To such an observer, the Crinos seems almost too realistic to be believable and the average human’s mind simply refuses to believe it could be real. Most humans pass off such recordings as special effects and pranks. Hunters and those possessing specialized lore can recognize a Crinos form for what it is, however. 
 
-**
-383 
-
 Chapter eight: DramatiC SyStemS 
 
 Alona McCreary (Order #15311115) 
@@ -15774,8 +14981,6 @@ _“Whoever fights monsters should see to it that in the process he does not bec
 - **Five Minutes:** The anxiety deepens, resulting in changes in speech patterns, such as stuttering or becoming unable to complete sentences. A human falls back on nervous behaviors, such as avoiding eye contact or pulling on her hair. Wolves raise their hackles, as they determine the new wolf smells different, and begin to circle her. 
 
 _Wyrm Taint_ is a spiritual affliction triggered by an exposure to emanations of the Wyrm. Once afflicted, the taint metastasizes into a degradation of the soul and sundering of the spiritual connection that links shapeshifters to Gaia. Galliards sometimes refer to Wyrm Taint by the euphemism, 
-
-384 
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
@@ -15823,15 +15028,11 @@ It is recommended that Storytellers progress a character no more than two stages
 
 ## Stages of Wyrm Taint 
 
-_“Crazy. Going. Slowly am I. 6. 5. 4...”_ 
-
 - [Name stricken from the Silver Record] 
 
 There are five stages of Wyrm Taint, each representing a degradation of the soul, dissolution of the covenant with Gaia, and acceptance of the Wyrm. Each stage is cumulative, incorporating the penalties of the stages below it. For example, if you suffer from the third stage of Wyrm Taint, you experience all of the symptoms and penalties from the first and second stages of Wyrm Taint, as well as the third stage. 
 
 - **First Stage:** You feel unclean, as though there is something wrong with your flesh, and your soul feels heavy and listless. You might find that your skin itches, as though you’re suffering from a rash, and you always feel on edge. 
-
-385 
 
 Chapter eight: DramatiC SyStemS 
 
@@ -15867,8 +15068,6 @@ Devolving to the fourth stage of Wyrm Taint or beyond requires the character to 
 **
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-386 
-
 Alona McCreary (Order #15311115) 
 
 stages of Wyrm Taint must expend a Willpower to remain in the circle and allow themselves to be dragged back into Gaia’s embrace. 
@@ -15903,9 +15102,6 @@ An active chronicle often has a complex hidden world of influence actions and do
 ## **Economy of Downtimes** 
 
 High-Rank Garou have many off-camera duties to perform. Low-Rank Garou have fewer responsibilities and thus more downtime actions. It is expected that these Garou will help their Elders in quests and missions in exchange for Renown, lore, and personal instruction in gifts. Such assistance is typically represented by the **Lending Aid to an Ally** downtime action. This symbiotic relationship creates an important economy of downtimes that makes playing all of the Ranks fun and important to the story of the game. 
-
-**
-387 
 
 Chapter eight: DramatiC SyStemS 
 
@@ -15945,8 +15141,6 @@ The director of this movie is the Storyteller. She creates the stage and the min
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-388 
-
 Alona McCreary (Order #15311115) 
 
 Players should always remain in character during a game, if at all possible. Occasionally there will be rules discussion, but it’s best to keep such things to a minimum in order to maintain the roleplay and atmosphere of a scene. If a player needs to take a break from roleplaying, she should inform the Storyteller. That player should leave the immediate area, if possible, and not interact with any of the other players while out of character. 
@@ -15985,8 +15179,6 @@ Once ready, the Storyteller invites these characters into a new act and begins n
 
 When the combat is completed, the characters begin a new scene: the same location, but after the combat. They may talk, roleplay, or perform actions as normal. If they choose 
 
-389 
-
 Chapter eight: DramatiC SyStemS 
 
 Alona McCreary (Order #15311115) 
@@ -16020,8 +15212,6 @@ This system provides an abstract method to help Storytellers supply enough adven
 A quest centers on a challenge: a particular goal the players want to achieve and the parameters the Storyteller sets for accomplishing it. In addition to a well-formed goal, each quest generated with the quest system includes a category and difficulty rating, as well as a particular list of quest requirements the players must meet before embarking upon the quest. 
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
-
-390 
 
 Alona McCreary (Order #15311115) 
 
@@ -16059,9 +15249,6 @@ The quest worksheet at the end of this section can help a Storyteller keep track
 ## **Storyteller’s Prerogative: The Quest Generation System** 
 
 This system provides a toolkit for Storytellers to help with the management of a live-action chronicle; it is not intended to serve as a straitjacket, forcing every quest into a particular shape. The Storyteller may elect to personally run any scene she wishes, rather than use the quest generation system. Alternatively, she may elect to alter the difficulty rating of a given quest based considerations such as story concerns, environmental factors, or to challenge her players. Likewise, she may decide to change the potential consequences based on plot factors. The important thing to remember is that this system provides for collaboration and interaction, rather than a few simple equations. 
-
-**
-391 
 
 Chapter eight: DramatiC SyStemS 
 
@@ -16125,8 +15312,6 @@ Any participating member of the quest may elect to drop out after receiving cons
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-392 
-
 Alona McCreary (Order #15311115) 
 
 If the quest requires multiple scenarios, a surrendering character cannot later return to be a part of the quest in subsequent scenarios. If the quest leader drops out, the quest fails. If, after someone leaves, the remaining group still meets the quest requirements, the quest group may attempt to test again, trying to win the scenario by returning to the _Perform Simple Test_ step, above. If the questing party runs out of Willpower or Gnosis, they fail the scenario. 
@@ -16156,8 +15341,6 @@ Participants on a quest can heal damage, recover spent Gnosis and Willpower used
 ## Quest Examples and Consequences 
 
 The following charts provide specific consequence lists for each category of quest—Simple, Complex, and Heroic—as well as a list of sample quest ideas listed by difficulty rating. 
-
-393 
 
 Chapter eight: DramatiC SyStemS 
 
@@ -16193,8 +15376,6 @@ Losses taken as a result of a consequence (including Willpower and Gnosis) canno
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-394 
-
 Alona McCreary (Order #15311115) 
 
 ## Complex Quests 
@@ -16222,8 +15403,6 @@ Losses taken as a result of a consequence (including Willpower and Gnosis) canno
 - Gaining the flaw Trouble Magnet for 60 days 
 
 - Loss of three talens of any type, or losing access to an attuned fetish until the quest is over. (This consequence can only be chosen if the character has sufficient talens or possesses an attuned fetish.) 
-
-395 
 
 Chapter eight: DramatiC SyStemS 
 
@@ -16260,8 +15439,6 @@ Losses taken as a result of a consequence (including Willpower and Gnosis) canno
 ## Quest Requirements 
 
 Quests are not lightly undertaken and require preparation and support from other werewolves. Before embarking on a quest, the Storyteller develops a number of requirements that provide a story element for the upcoming quest. The Storyteller should customize the example quest requirements below to fit the theme of each individual quest. 
-
-396 
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
@@ -16329,8 +15506,6 @@ The questing characters need the benefit of specific backgrounds in order to suc
 
 - Your quest could have significant consequences to your sept or tribe, you need someone of the _**Rank**_ of Adren or higher to sanction it. 
 
-397 
-
 Chapter eight: DramatiC SyStemS 
 
 Alona McCreary (Order #15311115) 
@@ -16393,8 +15568,6 @@ _7. The questing party will need a skilled Kinfolk to ensure nothing is forgotte
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-398 
-
 Alona McCreary (Order #15311115) 
 
 _8. Hunter will need to seek permission from the Sept Leader to be gone for so long._ 
@@ -16421,8 +15594,6 @@ _Hunter’s pack returns to the game bruised and bloody, but not defeated. They 
 
 _Lisa notes that the quest has five more scenarios before it completes, and she starts making preparations for how that might affect her storylines in the future. If it goes well, she might upgrade the last scenario into an event that takes center stage at an upcoming game session._ 
 
-399 
-
 Chapter eight: DramatiC SyStemS 
 
 Alona McCreary (Order #15311115) 
@@ -16443,23 +15614,11 @@ Alona McCreary (Order #15311115)
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-400 
-
 Alona McCreary (Order #15311115) 
 
 ## **RUNNING THE SCENARIO** 
 
-* 
-
-* 
-
 Number of Ties and Losses 
-
-* 
-
-* 
-
-* 
 
 Assigned Consequences 
 
@@ -16472,8 +15631,6 @@ Players’ proposed summary of events:
 Telling the Tale 
 
 Storyteller adjustments to proposal: 
-
-401 
 
 Chapter eight: DramatiC SyStemS 
 
@@ -16501,8 +15658,6 @@ However, if the scent persists, and the tracker has managed to close within visu
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-402 
-
 Alona McCreary (Order #15311115) 
 
 **
@@ -16522,9 +15677,6 @@ Tracking does not directly defeat Blur of the Milky Eye or other supernatural me
 In the case of supernatural powers that conceal the user’s identity, such as Coyote’s Mantle, tracking does not reveal the user’s identity. 
 
 If you attempt to use tracking while in the presence of someone with an identity-altering power active, the tracker identifies a scent that’s consistent with the assumed identity. If the tracker has somehow pierced the disguise, such as by using Wolf Senses or a similar power, she correctly identifies any lingering scents. If a tracker pursues someone, and her target has an identity-altering power active, the trail appears to grow cold near the target as the tracker approaches, possibly picking up farther on, if her target has cleverly doubled back. 
-
-**
-403 
 
 Chapter eight: DramatiC SyStemS 
 
@@ -16548,8 +15700,6 @@ Players can reward other players in recognition for excellent roleplaying (see *
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-404 
-
 Alona McCreary (Order #15311115) 
 
 ## “You can’t see me” 
@@ -16563,11 +15713,6 @@ Whether your character is a master of disguise or possesses a supernatural power
 ## “I’m not speaking normally” 
 
 Although the players conduct the business of the game in their common language, it’s very likely that their characters may have studied and can fluently speak other languages. If a character is speaking in a language other than the language common to the general game, that player should indicate their use of a foreign tongue. She does so by holding one hand in front of her face while extending the thumb and index finger, with the thumb touching the bottom of the player’s chin in the shape of an L. This gesture can also be used to indicate that your character is using a method other than speech to communicate, such as Mind Web. 
-
-**
-**
-**
-405 
 
 Chapter eight: DramatiC SyStemS 
 
@@ -16591,8 +15736,6 @@ Shapeshifters are not limited to human form. A werewolf can turn into a wolf for
 **
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-406 
-
 Alona McCreary (Order #15311115) 
 
 ## Alternatives to Common Gestures 
@@ -16600,9 +15743,6 @@ Alona McCreary (Order #15311115)
 There will be times, of course, when the common gestures are not sufficient to describe one’s current state. If these situations are brief—typically situations lasting a scene or 
 
 less—players are encouraged to use verbal descriptions. For ongoing situations, such as the continual stink of the flaw Animal Musk, players may find that using a small tag attached to their costumes communicates their characters’ states without interrupting scenes. 
-
-**
-407 
 
 Chapter eight: DramatiC SyStemS 
 
@@ -16626,8 +15766,6 @@ Like that of the wolves they call kin, Garou society is hierarchal in nature. Ev
 separating all Garou into a series of five grades. However, Rank is not merely a social construct; werewolves who advance gain access to greater power, finding themselves imbued with spiritual strength, raising them beyond their own innate capabilities. 
 
 When Gaia first breathed life into the Garou, they quickly came to understand that they could not exist as perfect equals, as this would rip apart their burgeoning society and end their work before it really began. Thus, the concept of Rank was born as a means to delineate between Garou who have achieved much in their duty to Gaia and those who have just started on their journey. In time, the spirits blessed this society’s social construct, allowing it to become more than just a means to divide the Garou based on their experience. From the beginning, Rank carried with it a certain amount of privilege and responsibility. Those who strive to become Elders of the nation are expected to be leaders and teachers, paragons and sages. It is not an easy task, and many Garou discover that it is not for them. 
-
-409 
 
 Chapter NiNe: SoCial SyStemS 
 
@@ -16660,8 +15798,6 @@ At this time, the new Cliath formally chooses her tribe. Although many Garou are
 Following this rite, werewolves celebrate and warmly welcome the new Cliaths as full members of the Garou Nation. During the ensuing festivities, each new Cliath receives her first deed name. These names are often inspired by the actions performed while on her Rite of Passage or 
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
-
-410 Alona McCreary (Order #15311115) 
 
 memorable moments during her time as a Cub. The Den Parent, other newly minted Cliath, and the rest of the sept ensure that the new deed name is appropriate. 
 
@@ -16696,8 +15832,6 @@ Cub is given her call to adventure and sent into the world to do good, returning
 - **Monster Hunt:** Many cultures used to send adolescents to hunt a particular animal to prove their courage and prowess. In this popular trial, Cubs are sent in search of a particular creature or spirit, possibly a powerful or elusive one. Though one of the Cubs may claim credit for the kill, success is awarded equally, provided the group has worked together. Get of Fenris and Black Furies commonly employ this method of trial. 
 
 - **Package Delivery:** What seems to be a simplistic trial can often unfold into a complicated series of events. In this Rite of Passage, Cubs must carry some piece of information or item of relevance between locations. 
-
-411 
 
 Chapter NiNe: SoCial SyStemS 
 
@@ -16737,8 +15871,6 @@ To qualify for a Rank challenge, a Garou must first demonstrate her ability to m
 
 To do so, she must first contact the Master of the Challenge from her sept. Together, should the Master of the Challenge approve, they will seek out a werewolf capable of overseeing her Rank challenge. This Garou must be someone of higher Rank than the challenger, who also is able to perform the Rite of Accomplishment (see **Chapter Eleven: Garou Nation: Rites, Rite of Accomplishment** , page 546). Werewolves prefer that the challenger and the Garou she challenges 
 
-412 
-
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
 Alona McCreary (Order #15311115) 
@@ -16772,8 +15904,6 @@ Having received her challenge, the challenger sets out to complete it to the bes
 To begin a Rank challenge, the challenger approaches a Garou of higher Rank to make her challenge. Thereafter, that Garou is charged with overseeing the challenge. Working with the Storyteller, she creates an appropriate Quest according to the chart to the right. Once the challenger has completed the trial, if the Garou overseeing the challenge is satisfied, she performs the Rite of Accomplishment for the challenger. The challenger must immediately spend XP to 
 
 - **Battle Cry:** Garou rely on their Galliards for inspiration. In this challenge, a Garou must craft a rousing battle 
-
-413 
 
 Chapter NiNe: SoCial SyStemS 
 
@@ -16817,8 +15947,6 @@ cry and inspire her comrades to wade into battle with their heads held high.
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-414 
-
 Alona McCreary (Order #15311115) 
 
 though Philodox and Ahroun have been tasked with learning stories relevant to their auspices. 
@@ -16854,9 +15982,6 @@ _Passion Play and the Master of the Challenge declare that Silent Paws has passe
 
 While Fera also share the construct of Rank, many of them maintain separate traditions with regard to challenge and advancement. A Garou cannot oversee a Rank challenge for any Fera and vice versa. For mechanical purposes, a Fera must meet the same requirements for Rank advancement as a Garou, including time spent at current Rank and expenditure of the appropriate Fleeting Renown. She can then spend a downtime action to seek out one of her own kind capable of facilitating a Rank challenge. The Storyteller should design one for the Fera of the same difficulty as a Garou of the appropriate Rank. 
 
-**
-415 
-
 Chapter NiNe: SoCial SyStemS 
 
 Alona McCreary (Order #15311115) 
@@ -16888,8 +16013,6 @@ When a Garou reaches the rank of Fostern, her fellow werewolves consider her a f
 The Garou Nation expects its Adren to be leaders, or at least willing to step into leadership positions if needed. Many Adren hold some position of power or authority, whether within a pack or as a lesser position in a sept. Often, Adren occupy the roles of Den Parent, Keeper of the Land, Guardian, or Gatekeeper. Their betters expect Adren to be proficient in their auspice roles and understand the purpose of each tribe. Adren Garou continue their own training while taking an active hand assisting in the education of younger werewolves: a transitionary role that is sometimes difficult to balance. Athro and Elder Garou carefully scrutinize Adren werewolves to determine if they have the qualities required to continue to rise in Rank. Ragabash in particular enjoy watching the actions of Adren, waiting for a moment when they can catch one in some misstep, providing an opportunity for education or ridicule. 
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
-
-416 Alona McCreary (Order #15311115) 
 
 ## Athro 
 
@@ -16923,9 +16046,6 @@ Renown works in alignment with the instinctual social patterns of all Garou, tap
 ## **Respect for Renown** 
 
 Kinfolk, Fera, and Garou all innately respect—and thus are automatically affected by—the expenditure of Renown traits, even if they hate their enemies and lack any respect for them. Other creatures, even Black Spiral Dancers, can’t possess or spend Renown. 
-
-**
-417 
 
 Chapter NiNe: SoCial SyStemS 
 
@@ -16967,8 +16087,6 @@ You can spend a trait of Glory Renown to do one of the following:
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-418 Alona McCreary (Order #15311115) 
-
 **
 ## **Fera and Renown** 
 
@@ -16998,8 +16116,6 @@ You can spend a trait of Honor to do one of the following:
 - **Honored Introduction:** The origin of the salute has its roots in knightly traditions. The handshake began as a gesture showing one was unarmed. Likewise, introductions are a point of honor among Garou; declining one extends disrespect, even among rivals. By spending a trait of Honor and announcing your name, Rank, and auspice to another Garou or Fera you’ve never met, you compel them to reply in kind. A Garou or Fera must introduce herself, stating plainly her name, Rank, and auspice—or spend a point of Willpower if she wishes to discourteously refuse. 
 
 - **Master of Decorum:** Among wolves, tempers can flare unexpectedly. By spending a trait of Honor and making a sincere apology, you can make dignified amends for an indiscretion you may have caused, provided the slight was minor and not sufficient to warrant formal punishment. A momentary lapse in judgment must be excused, such as stepping on someone’s paw, but grave insults or physical violence are not overlooked. While the other party may still hold a grudge, for the next five minutes, any Garou or Fera who would otherwise be openly hostile in the face of your apology must first spend a point of Willpower to do so. Other Garou view the use of Honor Renown in this way as sufficient 
-
-419 
 
 Chapter NiNe: SoCial SyStemS 
 
@@ -17039,8 +16155,6 @@ A Garou earns Innate Renown in recognition of her Rank. As a Garou’s Rank back
 
 For example, as a Fostern Galliard of the Black Furies, Raquel may select 2 Innate Renown at the beginning of a game session. This time, she selects 2 Glory Renown. She has also earned 1 Fleeting Honor Renown. Throughout the course of that game session, she spends all three traits. At the beginning of the next game session, she once again can select 2 Innate Renown traits due to her Rank, which may be 2 traits of Glory Renown or two different traits. Her Fleeting Honor Renown does not return. 
 
-420 
-
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
 Alona McCreary (Order #15311115) 
@@ -17076,8 +16190,6 @@ Certain types of moots allow for the opportunity for earn Fleeting Renown. Here,
 
 _Katrina, a Wendigo Theurge, and Henderson, a Glass Walker Galliard, are arguing over how to handle a spiritual issue involving the sept. A number of Weaver spirits in the city favor an upcoming landfill project that would extend the city’s coastline into the Great Lakes; however, the Wyld-aligned spirits of the lakes strongly oppose this change. Henderson’s pack, devoted to Cockroach, supports the expansion, and argues that the spirits of the lake are fickle and can be appeased later. Katrina, as a Theurge, disagrees. She insists that the spirits of the Wyld will not forget such a slight, and she declares that they must be given consideration. Henderson continues to state his point boldly, leaving little room for interjection. Katrina rises and reiterates her point, asserting that her Wisdom in this matter must be respected. Katrina’s player spends a trait of Wisdom Renown, activating Auspicial Purview. The player of Henderson now has a choice. If he wishes to spend a trait of Wisdom, he can continue the discussion. He can also overcome Katrina’s use of primal urge by spending a point of Willpower, continuing as he did before, but risking social consequences from his disruptive, boorish behavior. If he does neither, he must cease discussing the issue for at least five minutes._ 
 
-421 
-
 Chapter NiNe: SoCial SyStemS 
 
 Alona McCreary (Order #15311115) 
@@ -17091,8 +16203,6 @@ Renown Cards
 **
 **
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
-
-422 
 
 Alona McCreary (Order #15311115) 
 
@@ -17145,8 +16255,6 @@ _Ronin_ werewolves have been cast out of their tribes and the Garou Nation as a 
 A lesser moniker is temporary, lasting a set amount of time, unless removed sooner by a Sept Leader or a member of 
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
-
-424 
 
 Alona McCreary (Order #15311115) 
 
@@ -17204,8 +16312,6 @@ A Garou who has been caught violating the spirits is considered to be Tarnished.
 
 One who is _Worthy_ serves as a paragon of justice and a keeper of the Litany. As she is an example for the young, a Den Parent often calls upon a Worthy Garou to teach 
 
-425 
-
 Chapter NiNe: SoCial SyStemS 
 
 Alona McCreary (Order #15311115) 
@@ -17248,8 +16354,6 @@ Many Fera breeds have their own challenge traditions, though these tend to be us
 **
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-426 
-
 Alona McCreary (Order #15311115) 
 
 many werewolves view this act as a claim of ownership over the kin in question. Although challenges are widely used throughout the Garou Nation, they are more prevalent among certain tribes. Get of Fenris and Fianna are both well-known for hosting regular challenges, training to ensure their members are successful on the mound. 
@@ -17279,8 +16383,6 @@ When two Garou find themselves at odds over a minor issue, one of them issues a 
 When a Staredown challenge is accepted by both parties, the two werewolves begin immediately, circling one another and posturing. This challenge can be visceral and feral, with opponents often taking on other forms in order to make themselves more intimidating. Flexing, growling, beating their chests, and staring at one another with cold determination are all methods employed in an attempt to beat one’s opponent. Eventually, the loser drops her eyes, taking on a submissive posture as she cedes to the victor. Any werewolf, Fera, or kinfolk who has spent time within the Garou Nation understands what this challenge entails, and they are able to immediately identify who has triumphed. 
 
 While this type of challenge is not appropriate for all issues that arise among werewolves, Staredowns are commonly used for minor skirmishes that arise between two Garou. Verbal slights, such as questioning the ability of one Garou to speak on a particular topic or a personality clash over which course of action is best can result in a Staredown challenge. Other conflicts, such as a pack member questioning the ruling of her leader or a Ragabash overstepping a boundary with her pranks, may be resolved through use of this challenge. Staredowns 
-
-427 
 
 Chapter NiNe: SoCial SyStemS 
 
@@ -17318,8 +16420,6 @@ _Clyde, a Silver Fang Ragabash, is arguing with Brooke, a Red Talon Galliard. Th
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-428 
-
 Alona McCreary (Order #15311115) 
 
 _Clyde adds his Mental attribute plus his Intimidation skill, for a total of 15. Brooke wins the initial challenge. Clyde may either retest with Willpower or by spending a trait of Glory, if he has it. If Clyde does not retest, or if he chooses to but still ultimately loses the challenge, he must break eye contact with Brooke. For the next 10 minutes, he is unable to target her with any powers that require Gaze and Focus, though Brooke may still target him with such powers, if he is paying attention to her._ 
@@ -17349,8 +16449,6 @@ After the contest is over, the Master of the Challenge declares a winner. The wi
 ## Types of Gamecraft 
 
 A variety of established forms of gamecraft already exist, though in the 21[st] century, it is not uncommon for new forms to spring up all the time. The Storyteller should consider the following mechanics as guidelines, and should feel free to substitute different test pools for suggested contests or to create a more elaborate structure as necessary. 
-
-429 
 
 Chapter NiNe: SoCial SyStemS 
 
@@ -17382,8 +16480,6 @@ As a part of roleplaying, players often create characters skilled at things they
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-430 
-
 Alona McCreary (Order #15311115) 
 
 - **Performances:** Disputes among performers are not uncommon, going beyond simple creative differences. When this conflict happens, they may resolve their difficulty through a competitive performance, often involving one or more judges. For this contest, participants use their Social attribute + Performance skill, as appropriate. Fianna take contests of this sort very seriously, influenced by their roots in the bardic tradition, while Bone Gnawers have been known to engage in the occasional dance-off. 
@@ -17409,8 +16505,6 @@ Duels are always fought between only two werewolves, and they always end with a 
 A duel may also incorporate special rules as to how it will be fought, to which its participants must agree, as well as the Master of the Challenge. These conditions may include restrictions regarding which forms the participants can assume or rules governing the use of weapons and fetishes. These agreements frequently vary according to tribal lines and may also reflect the severity of the dispute. 
 
 Both parties must risk a trait of Fleeting Renown to participate in the duel, unless one risks a position. If agreed 
-
-431 
 
 Chapter NiNe: SoCial SyStemS 
 
@@ -17445,8 +16539,6 @@ Numerous forms of dueling have existed in different cultures throughout the ages
 - **Pistols at Dawn:** Once considered a relic from the Old West, the popularity of firearms among younger Garou has prompted a resurgence of this type of duel. Participants are each granted the use of a firearm, which need not necessarily be a pistol. Both parties typically agree to both the caliber of weapon as well as a specific 
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
-
-432 
 
 Alona McCreary (Order #15311115) 
 
@@ -17483,8 +16575,6 @@ Some moots call for attendance larger than even a gathering of multiple septs. W
 **Mood:** Tense, Exciting, Dramatic 
 
 **Setting:** Garou Nation 
-
-433 
 
 Chapter NiNe: SoCial SyStemS 
 
@@ -17526,8 +16616,6 @@ Concolations and Grand Concolations are not taken lightly, and there are many th
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-434 
-
 Alona McCreary (Order #15311115) 
 
 **
@@ -17565,8 +16653,6 @@ Rank is an everpresent factor in Garou society, but Concolations and Grand Conco
 While the Warden and her assistants do everything possible to ensure that discussions either stay civil or are contained by formal challenges, the sheer significance of the decisions that come forth at these moots can tempt those who believe that the ends justify the means. 
 
 When the time for discussion ends, the Talesinger calls the moot to order once more. 
-
-435 
 
 Chapter NiNe: SoCial SyStemS 
 
@@ -17620,8 +16706,6 @@ The judge recites the rules for the Pack Tourney on the field of the contest. By
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-436 
-
 Alona McCreary (Order #15311115) 
 
 that lasts hours or a simple test that determines the winner quickly. The only requirement is that one pack must demonstrate their skill, might, and cunning in battle. Common terms include the following: 
@@ -17666,8 +16750,6 @@ At Midsummer, the blood of Garou burns hot and their rage boils beneath the surf
 
 **Setting:** Garou Nation 
 
-437 
-
 Chapter NiNe: SoCial SyStemS 
 
 Alona McCreary (Order #15311115) 
@@ -17709,8 +16791,6 @@ Garou from the sept fill the following positions when they celebrate the Great H
 At dawn on Midsummer, the Great Hunt begins. The collected Garou receive a sign—such as a vision or omen— regarding which creature they are to pursue. The hunt master calls all of the participating Garou to attention and directs them to relentlessly pursue the target, and to not give up until the target is dead and its blood has enriched Gaia. 
 
 Any manner of pursuit is allowed, and some Glass Walkers have been just as successful at tracking a target as a seasoned Black Fury or Red Talon. Particularly talented kinfolk and Unborn have also participated in the Great Hunt, even if they reap little of its rewards, considering it a great distinction to be counted among the most accomplished of their kind. The Great Hunt itself is ferocious, and carnage is expected as the Garou pay little heed to anything but their 
-
-439 
 
 Chapter NiNe: SoCial SyStemS 
 
@@ -17761,8 +16841,6 @@ The Liar’s Dance, Slap Dance Feast, and Flyting are historically played with b
 
 **
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
-
-440 
 
 Alona McCreary (Order #15311115) 
 
@@ -17821,8 +16899,6 @@ For more information, see **Monikers** , page 424.
 ## Slap Dance Feast – A Boisterous Revelry 
 
 The life of a Garou is marred by death and bloodshed, a continual war with no end in sight. Over the millennia, werewolves have been forced to find ways to combat the grip of Harano and find joy where they can. The Slap Dance Feast moot allows for the celebration and revelry of all the successes of the Garou Nation—big and small. Unlike some other official functions, the Slap Dance Feast welcomes 
-
-441 
 
 Chapter NiNe: SoCial SyStemS 
 
@@ -17888,8 +16964,6 @@ Scoring in the Slap Dance Feast is achieved through the collection of these colo
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-442 
-
 Alona McCreary (Order #15311115) 
 
 - **Blue Stones:** When these stones are handed to a participant, it indicates that the giver recognizes that the recipient is filled with pure energy and creative urges. 
@@ -17936,8 +17010,6 @@ The Mother is empathetic, inclusive, and compassionate. This Garou earns a varia
 
 The King has shown herself to be a leader of the people. She is given a variation of the moniker Hero. This might 
 
-443 
-
 Chapter NiNe: SoCial SyStemS 
 
 Alona McCreary (Order #15311115) 
@@ -17977,8 +17049,6 @@ The Flyting is a game of insults meant to challenge a character’s mental resol
 
 **
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
-
-444 
 
 Alona McCreary (Order #15311115) 
 
@@ -18030,8 +17100,6 @@ Those seeking to test their mettle must voluntarily step into the circle. When a
 
 The judge begins the game in earnest by pointing at one of the bards and announcing to the crowd that the Flyting has begun. The bard has one minute to ridicule and disparage any other participant within the circle, with the exception of the judge. The insulted bards may briefly reply with a 
 
-445 
-
 Chapter NiNe: SoCial SyStemS 
 
 Alona McCreary (Order #15311115) 
@@ -18078,8 +17146,6 @@ The moots featured in **Mind’s Eye Theatre: Werewolf The Apocalyps** e represe
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-446 
-
 Alona McCreary (Order #15311115) 
 
 ## Custom Moot Creation 
@@ -18116,8 +17182,6 @@ ii. Define the monikers for the victors and losers
 
 4. Define any alterations to the core rules, if any, in your moot’s mechanics section. 
 
-447 
-
 Chapter NiNe: SoCial SyStemS 
 
 Alona McCreary (Order #15311115) 
@@ -18146,8 +17210,6 @@ Judge Taco let Some Mother’s Son rant while he examined the smoke-filled alley
 
 Some Mother’s Son dropped his defensive posture, looking to the side as he nodded as well. Judge Taco knew he didn’t fully agree with their task, but would back their plays, calling on the terrible spirits of Malfeas without a second thought to save his pack, even if it cost him his sanity. 
 
-*       *       * 
-
 Alona McCreary (Order #15311115) 
 
 #TOTEM’s progress to the temple that housed the Black Labyrinth was hindered only by a single altercation with patrolling banes. One of the banes had nearly severed Steals the Teeth’s arm, its long talons covered with a sickly yellow-green substance. Even when the wound knitted itself back together, Teeth was left pale and shaking. Judge had carried him the last half-mile, as the Metis mumbled and grunted, asking to be left behind more than once. Some Mother’s Son reassured him that once they got to their rendezvous point, there would be help. 
@@ -18165,8 +17227,6 @@ Mauls sat back on his giant heels, looking up at the judge and Some Mother’s S
 The raven clicked its beak together at the implied order, fluttering to the windowsill before taking to the air. Mauls the Gate checked Teeth’s wound, stretching out his arm and examining the efficacy of his gifts. There was a shrill trill outside of the hut, and Mauls the Gate nodded to the three Garou. 
 
 “It’s time.” 
-
-*       *       * 
 
 They met Gresia at the edge of the temple’s stone steps. She had shifted into her human form—a gaunt woman with a feathery halo of black hair. She twitched as she spoke, incapable of standing still, even when on the edge of the abyss. 
 
@@ -18192,8 +17252,6 @@ Mauls the Gate cried out, roaring in anguished pain as the Black Spiral Dancers 
 Mauls the Gate turned and shifted into Crinos, his growl booming through the temple foyer, “Get the Cub!” 
 
 Teeth swooped in, grabbing the young teenage boy, his grasp strong against the young one’s struggles to break free. The rest of #TOTEM followed him out as Gresia shielded them, blurring them out of existence. 
-
-*       *       * 
 
 It took time to reach the meeting point for retreat. Mauls the Gate was badly injured, and there was no time to stop, lest the Dancers find them again. The boy struggled the entire time, only silenced by a spirit Some Man’s Son summoned. When they finally arrived, they were all exhausted. 
 
@@ -18236,8 +17294,6 @@ We all tell stories, every day of our lives. People communicate with one another
 
 Imagine that you are the owner and ringmaster of a traveling circus in the days before the internet and a thousand channels on television. You manage the talent, introduce the various acts, and direct the attention of the audience to dazzling performances. Equal parts promoter and administrator, you control the tempo of the experience. Your audience will be demanding. Some will appreciate the high-wire act, others prefer to ignore the show itself while socializing, and still others only wish to see the clowns and the monkeys. They are also not always quick to forgive mistakes; how well they receive your performers’ efforts depends in part on the rapport you build with the audience. 
 
-453 
-
 Chapter ten: Storytelling 
 
 Alona McCreary (Order #15311115) 
@@ -18274,8 +17330,6 @@ Organizing and running a new chronicle isn’t easy, especially for a new Storyt
 In the immortal words of Douglas Adams: _Don’t panic!_ This section breaks down the seemingly unending tasks required to organize a new chronicle into digestible steps. And even if you’re a veteran Storyteller, some of these ideas may also help you. 
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
-
-454 
 
 Alona McCreary (Order #15311115) 
 
@@ -18315,8 +17369,6 @@ _Mood_ is the general tone and the underlying emotions you want your players to 
 
 Think of the mood as your story’s state of mind, and then ask yourself some questions about the emotions you want 
 
-455 
-
 Chapter ten: Storytelling 
 
 Alona McCreary (Order #15311115) 
@@ -18351,8 +17403,6 @@ Primary scale considerations include the number of players you can comfortably h
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-456 
-
 Alona McCreary (Order #15311115) 
 
 **
@@ -18380,8 +17430,6 @@ This game size can be a fun challenge, as you’ll be portraying all manner of N
 As chronicles grow in size, the Storyteller can step back a pace or two to allow for social and political plots to form organically, to the point where these types of stories can take over the heavy lifting and offer players many choices for activity over the course of a game session. Games at this size can usually support all the key character roles for your chosen setting, whether it’s a by-the-Litany straightlaced pack, a gaggle of misfit Fera, or rebellious band of Garou, living on the edges of the werewolf society. With the assistance of a couple of Narrators, you can manage the flow of the day’s events, run some personal side plots as needed, and maintain story continuity. With a medium-sized player base, you can often draft a few players to help you portray key NPCs as needed, without completely halting plots by leaving a gaping hole in the cast roster. 
 
 However, running traditional narratives like the Hero’s Journey or Cold Revenge becomes more difficult. These types of stories don’t scale up easily, and they can often careen off in very unexpected directions, keeping you on your toes whenever characters unexpectedly involve themselves in a story you intended to limit to just two or three specific characters. You won’t have as many opportunities to give players a lot of personal attention when games reach this size, and you’ll find that you’ll need to rely on your time 
-
-457 
 
 Chapter ten: Storytelling 
 
@@ -18423,8 +17471,6 @@ The following topics should be detailed in this document and be presented to pla
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-458 
-
 Alona McCreary (Order #15311115) 
 
 **
@@ -18461,8 +17507,6 @@ Shorter stories often work better with correspondingly narrower scopes, but exte
 
 It’s especially important to vary your scope if any of your players pursue very long-term plots, such as questing into the Deep Umbra, completely sabotaging Pentex and rendering it impotent, or finding a long-lost spirit. The scope of the story is already established at a more personal level for these characters, and their stake in the overarching plot increases or diminishes as it affects their agenda. Put another way, a quest to find a spirit or destroy the Pentex corporation cannot dominate every moment of every game in the chronicle— 
 
-459 
-
 Chapter ten: Storytelling 
 
 Alona McCreary (Order #15311115) 
@@ -18496,8 +17540,6 @@ As a chronicle grows in scale, complete agency simply isn’t practical, due to 
 The best option is to have a frank discussion with the players about the Storyteller’s time and the limitations of the chronicle, and explain that if they decide to relocate their characters to a place so distant, those characters will be considered to have left the chronicle. Then, you can work with them to create situations or circumstances that make their characters’ plan undesirable. Maybe it’s just too dangerous to attempt to move that far, because vampires are active and numerous in the vicinity and the chances of reaching Fresno safely are all but 
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
-
-460 Alona McCreary (Order #15311115) 
 
 nil. Or perhaps the characters have old unresolved conflicts with another pack who would retaliate if their enemies suddenly lit out for another state, depriving these characters of the chance to resolve their issues. In a large-scale game, personal agency can only be allowed to extend so far before it threatens the enjoyment of everyone else. 
 
@@ -18539,8 +17581,6 @@ Here are some suggestions for how you might organize a large-scale game:
 
 5. Set aside space within the game area for a dedicated Storyteller table where you can keep copies of the rules, the Setting Style Document, and other supplies like index cards, pens, notepads, and sticky notes. This place provides a central location for players to resolve paperwork issues and make requests of Storytellers in an orderly fashion. If you have a good paperwork Narrator, she can help your players get into character as quickly as possible without drowning your players in unneeded administration. 
 
-461 
-
 Chapter ten: Storytelling 
 
 Alona McCreary (Order #15311115) 
@@ -18572,8 +17612,6 @@ A Setting Style Document also details common character knowledge, social hierarc
 The following two examples demonstrate how you might tell the same story from two different settings. These examples were created using the information from **Creating a Chronicle** , page 454. 
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
-
-462 
 
 Alona McCreary (Order #15311115) 
 
@@ -18610,8 +17648,6 @@ The Sept of the Forgotten Waters cannot flee from the onslaught of the Wyrm. Its
 ## **Storyteller Notes:** 
 
 - Antagonist rules for NPC vampires from **Mind’s Eye Theatre: Vampire The Masquerade** are used 
-
-463 
 
 Chapter ten: Storytelling 
 
@@ -18659,8 +17695,6 @@ The Garou of Bannack must fight the enemy on all sides. The nearby vampires, the
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-464 
-
 Alona McCreary (Order #15311115) 
 
 ## Creating a Custom Setting 
@@ -18707,9 +17741,6 @@ Each breed has its own laws, and each tribe has its own interpretation of the Li
 - Caerns and other holy places must be open for use by all Ahadi members, provided the use is reasonable and in accord with Gaia’s interests. 
 
 - Members must protect holy places at all cost, as they are the only way to win the war against the Wyrm. 
-
-**
-465 
 
 Chapter ten: Storytelling 
 
@@ -18759,8 +17790,6 @@ Survival in Lagos is not easy, and the Ahadi must remain vigilant in order to ma
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-466 
-
 Alona McCreary (Order #15311115) 
 
 ## Organization of the Ahadi 
@@ -18802,8 +17831,6 @@ To use the optional Antagonist Faction rules to create a custom setting for your
 ## Vampire Crossover Chronicles 
 
 Storytellers wishing to undertake the ambitious task of integrating both vampires and werewolves into the same chronicle are free to do so. While the social structures of both vampires and werewolves make them naturally cautious, if not distrustful, of one another, there are some occasions where both groups may find themselves occupying the same area. 
-
-467 
 
 Chapter ten: Storytelling 
 
@@ -18849,8 +17876,6 @@ The struggle between Weaver and Wyld continues to play out. Under the direction 
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-468 
-
 Alona McCreary (Order #15311115) 
 
 The following sample scenarios provide examples of how a game could operate involving both groups. 
@@ -18888,8 +17913,6 @@ Use the following modifications to vampire disciplines when running a crossover 
 - **Quell the Beast:** In additional to this power’s standard effects, a werewolf target loses 1 point of Rage. This effect cannot reduce the target to fewer than 0 points of Rage. Additionally, as long as this power is active, the target does not gain a point of Rage at the beginning of each round. This power cannot prevent a Garou from entering anger frenzy, but if the target is in fox frenzy, or Thrall of the Wyrm frenzy, this power causes the frenzy to end. For the purpose of this power, Garou do not have Beast traits. 
 
 - **Subsume the Spirit:** This power has no effect on Garou. It can be used on wolf kinfolk normally; however, the user cannot make use of any gifts the host possesses. 
-
-469 
 
 Chapter ten: Storytelling 
 
@@ -18941,8 +17964,6 @@ Alona McCreary (Order #15311115)
 
 - **Healing Vicissitude:** Garou are able to heal damage from Vicissitude normally. Once a Garou has returned to full health, she begins to heal any existing Vicissitude modifications. Each modification heals if it were 5 points of normal damage. These points have no impact on a Garou’s actual health levels or wound track. Rather, the modification is removed when 5 additional health levels are healed after the Garou is 
 
-470 
-
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
 Alona McCreary (Order #15311115) 
@@ -18985,8 +18006,6 @@ Use the following clarifications when running a crossover game with both **Mind�
 
    - » Each point of werewolf Blood consumed is mystically potent, doubling its effectiveness. A vampire can spend this point twice before the point of Blood is expended. Therefore, a vampire can hold twice as much Blood per point of werewolf blood consumed. Note that the amount of Blood per turn a vampire can spend does not increase, only her maximum Blood pool. This effect lasts for three nights, or until all the blood consumed has been utilized, whichever comes first. 
 
-471 
-
 Chapter ten: Storytelling 
 
 Alona McCreary (Order #15311115) 
@@ -19026,8 +18045,6 @@ Include the following items in a story bible:
 
 Your story’s locale is as much a character in the tale as the fictitious individuals who populate it. Information about your locale gives it depth and texture in the minds of your players and encourages them to see and treat it as though it were real. (Let’s be clear: Chicago is a real place, but the Chicago of your chronicle isn’t. It’s a fictionalized version of 
 
-472 
-
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
 Alona McCreary (Order #15311115) 
@@ -19063,8 +18080,6 @@ Other players with shorter attention spans require a new ball of string every ga
 Some players focus on immediate social or political concerns and won’t want to deal with other types of interactions. Avoid pulling these players out of intense personal scenes with plot. There is always time to trigger a story. Wait until the tempo of the game slows before springing a dramatic turn. 
 
 You will want to offer alternate plot tracks to satisfy the needs of all of your players. Keep track of the different types of plots and how they satisfy various types of players. 
-
-473 
 
 Chapter ten: Storytelling 
 
@@ -19102,8 +18117,6 @@ The narrative experience of a LARP is vastly different than traditional media su
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-474 
-
 Alona McCreary (Order #15311115) 
 
 Players do not compete directly against each other to earn XP. The Storyteller awards players based on attendance, costuming, and roleplaying. Players who don’t earn the maximum amount of XP allowed in a given month can, with a bit of time, earn extra XP via downtime scenes, background reports, or roleplaying via e-mail. 
@@ -19135,8 +18148,6 @@ You can entertain the entire chronicle by encouraging your players to include ot
 - A werewolf’s Rank changes as she goes through her career as a Garou. Most often it will rise; however, it is not impossible for situations to demand her Rank be stripped. Elders are wizened advisors and often quite powerful, while Cliath are considered little more than children who are rarely allowed to leave the sept alone. It can take mental adjustment to set aside our modern sensibilities of freedom and embrace the hierarchal beliefs of the game. We are taught to treat each other with respect and without prejudice, which can be difficult when playing a Garou character who despises all Fera she encounters. We are taught that we are all equal under the law, but in the **World of Darkness** , the concept of justice is quite different. Tribe, Rank, and Renown often determine how the laws of the sept apply to you. 
 
 - Most people are able to walk around in public and interact with their families and friends without fearing that they might unleash their bestial side on them. Werewolves must hide their existence from the world— 
-
-475 
 
 Chapter ten: Storytelling 
 
@@ -19179,8 +18190,6 @@ At a basic level, this plot can involve political intrigue and plotting against 
 This type of scenario only works with a great deal of Storyteller preparation. In this plot, it is the Storyteller’s job to create the sandbox for the player-characters to build the plot and then get out of their way. Properly prepared political plots decrease spontaneous violence in a game, because they provide a concrete means for characters to compete without escalating to killing their enemies. Bored 
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
-
-476 Alona McCreary (Order #15311115) 
 
 players are most likely to start pointless attacks that drain away the game’s energy. Often Storytellers ask their players, especially those with Athro or Elder characters, to avoid violence, but how can we expect the game to agree unless Storytellers provide the proper playground? 
 
@@ -19228,8 +18237,6 @@ A MacGuffin could be a special kinfolk or Lost Cub, a powerful fetish, or a long
 
 After the decimation of a dangerous hive, an extensive library was found deep within the earth. Containing tomes dating back to the Middle Ages, the place seemed to have been entirely untouched by time. Despite the desecration 
 
-477 
-
 Chapter ten: Storytelling 
 
 Alona McCreary (Order #15311115) 
@@ -19261,8 +18268,6 @@ Players who are required to portray NPCs should coordinate with the Storyteller 
 While it is not necessary to use NPC shifts in your game, using this option along with the Quest system and other tools provided throughout this book can help ease the burden on the storytelling staff and give them the chance to focus on what they do best: providing a compelling and exciting story for all to enjoy participating in. 
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
-
-478 Alona McCreary (Order #15311115) 
 
 ## Spirit Management 
 
@@ -19303,8 +18308,6 @@ When the characters arrive at the destination, the Storyteller can begin to set 
 ## Inside Umbral Realms 
 
 Each of the realms of the Umbra has different rules and a setting unique to itself. These changes depend on which aspect of the Umbra the characters have chosen to explore—the Penumbra, the Near Umbra or the Deep Umbra—as well as on the realm itself. 
-
-479 
 
 Chapter ten: Storytelling 
 
@@ -19348,8 +18351,6 @@ Conflict can drive a story in unexpected directions and generate interesting sce
 
 Imagine you are playing a Fostern Get of Fenris Ahroun named Vigdis. You were not born into your tribe, but rather adopted into it, and you have always struggled to prove that you are worthy of Fenris’ blessing. You have spent the past month investigating a medical facility that you are certain belongs to the Wyrm, and your dedication has finally paid off. You have found proof that the facility is teeming 
 
-480 
-
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
 Alona McCreary (Order #15311115) 
@@ -19377,8 +18378,6 @@ Listen closely to the questions your players ask you during a scene. These inqui
 This technique doesn’t suggest that you should simply let the players do whatever they want without consequences. Quite the reverse: actions must have consequences that are meaningful for the story to matter. Players want and need to know that the world their characters inhabit is logical, even if they don’t understand all of the aspects of it. If a player risks her character’s life specifically by choice, you should calculate the odds fairly and determine a good means to resolve the challenge. The balance is precarious. If the player instinctually believes that the laws of the universe are arbitrary, she will be disappointed. Immersion requires the players to have faith in the Storyteller. If gravity suddenly does not work as expected, the fictional universe feels less real. On the other hand, if a Storyteller is too strict and simply leaves behind a trail of paper corpses, players will become frustrated. 
 
 Some players will suggest solutions to the scenario that you never imagined, but that’s good. This isn’t a choose-yourown adventure novel, so don’t worry if the players decide to take a route that leads them somewhere you didn’t predict 
-
-481 
 
 Chapter ten: Storytelling 
 
@@ -19409,8 +18408,6 @@ During life, we learn from the mistakes of yesterday and prepare for the challen
 Award XP openly and be prepared to explain the rationale for your decisions in accordance with the rules. If the players disagree, hear them out and make sure you know the whole story, then award XP to those who have earned it. Be careful, since awarding too much XP can make characters too powerful too quickly and give players lax 
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
-
-482 
 
 Alona McCreary (Order #15311115) 
 
@@ -19463,8 +18460,6 @@ If your game encompasses more than one city, consider a standardized XP cap in o
 ## Graduated Experience Cap for Long-term Chronicles (Optional) 
 
 Chronicles last as long as required to tell the desired stories. Some last only a few game sessions. These tend to last a short time, with large amounts of XP awarded. Longterm chronicles require a slower burn. Some chronicles last decades. Unless the amount of XP allowed into these games is carefully managed, the game will suffer from a devastating arms race of XP, and newer players will feel lost, underpowered, and discouraged when they try to join. 
-
-483 
 
 Chapter ten: Storytelling 
 
@@ -19520,8 +18515,6 @@ _Tara is narrating a scene for Joshua, whose character has just fallen into the 
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-484 
-
 Alona McCreary (Order #15311115) 
 
 **
@@ -19566,8 +18559,6 @@ There’s nothing wrong with calling for a Time Stop to ponder the scene, ask qu
 
 _Redlining_ is when a Storyteller alters the continuity of a scene for the chronicle. A chronicle is a collection of scenes that form a long-term story, and altering even a single scene once it is complete can completely change or damage a chronicle. Some of the reasons why a Storyteller might decide to redline a scene include: cheating, character death 
 
-485 
-
 Chapter ten: Storytelling 
 
 Alona McCreary (Order #15311115) 
@@ -19602,8 +18593,6 @@ Consider the scale of your game when evaluating problem players. A single proble
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-486 Alona McCreary (Order #15311115) 
-
 ## Rules Lawyers 
 
 Some players, often called “rules lawyers,” derive more enjoyment from debating the meaning of the rules than they do from playing the game. Often they confuse one for the other. All Storytellers must make rules interpretations on the fly from time to time or decide how to handle a situation not covered by this book. Often, they must do so quickly and under pressure. Rules lawyers hate this necessity; it makes them very unhappy, particularly when the Storyteller doesn’t interpret the rules the way the rules lawyer prefers. 
@@ -19632,8 +18621,6 @@ Sometimes players allow their characters to use knowledge that they, the players
 
 As a Storyteller, when you identify metagaming, speak to the offending player as quickly as you can to remind her that her character cannot use information gained outside of the context of the game. Advise her to remain in-character at all times if she can, and to consider the origin of the information her character possesses before she acts on it. A player may occasionally collude with another in order to contrive a situation in which her character has a reason to pass on valuable information, and while it’s difficult to prove that such incidents are intentional, they are also damaging to the game and should be discouraged. 
 
-487 
-
 Chapter ten: Storytelling 
 
 Alona McCreary (Order #15311115) 
@@ -19661,8 +18648,6 @@ Sexual motifs and subjects must also be handled with great care. While some stor
 Do not allow others to question a player’s right to be an active participant. Players should never be told they aren’t an “authentic” gamer simply because their interests lie in costuming or theatrical presentation, rather than in-depth rules calculations. That’s as ridiculous as throwing someone out of your game simply because she can’t afford to wear a suit. Players are attracted to the LARP environment for many different reasons. Encourage everyone to participate, to respect the community, and to contribute. A hard-core mechanics person might trade her expertise for a few hours 
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
-
-488 Alona McCreary (Order #15311115) 
 
 of sewing lessons, and a dedicated theater buff might be able to advise the avid historian on the best way to embody her character’s archaic foibles. Remember that your players have a wide range of knowledge, interests, and abilities. Be sure to ask questions, rather than making assumptions about an individual’s favorite mode of play. 
 
@@ -19694,8 +18679,6 @@ This behavior is even more prevalent in networked games. Players use their smart
 
 As a Storyteller, you should encourage as much action as possible take place during the game session. Live-action roleplaying works best when people can do it in person, 
 
-489 
-
 Chapter ten: Storytelling 
 
 Alona McCreary (Order #15311115) 
@@ -19723,8 +18706,6 @@ There will come a time when the game runs for many hours. Maybe it’s very late
 - What, if any, strictures will you impose on players who wish to use smart phones to contact other players who aren’t present at the game for in-character communication? Are phone calls always in-character, and therefore subject to being noticed, overheard, and interrupted? Does the player making the call or text need to log it with the Storyteller in order for it to be considered part of the chronicle’s action? 
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
-
-490 
 
 Alona McCreary (Order #15311115) 
 
@@ -19823,8 +18804,6 @@ Advising and supporting the High King is the _Council of Tribes_ . A Councilor c
 
 The true power of the Garou Nation lies within the symbiotic feudal relationship between its global leadership and individual septs. The High King and the Council of Tribes are responsible for protecting and defending their vassal states and ensuring that they have the proper resources to maintain their protectorates and keep them defended. In return, the septs have the obligation to extend the reach of the Garou Nation, to maintain the Litany in 
 
-495 
-
 Chapter eleven: the Garou nation 
 
 Alona McCreary (Order #15311115) 
@@ -19860,8 +18839,6 @@ The title of High King has been traditionally claimed by a male sovereign of the
 
 **
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
-
-496 
 
 Alona McCreary (Order #15311115) 
 
@@ -19909,8 +18886,6 @@ He can expend a single trait of Fleeting Renown (of any type) to assign any grea
 
 - Calling on Legends to deal with a threat 
 
-497 
-
 Chapter eleven: the Garou nation 
 
 Alona McCreary (Order #15311115) 
@@ -19919,9 +18894,6 @@ Alona McCreary (Order #15311115)
 ## **The Seat of the High King** 
 
 When the Silver Fang kings ruled as High King, their own personal septs served double duty, as both functioning septs as well as the High King’s personal territory and protectorate. As such, the Council of Tribes met and often stayed in the High King’s sept to render advice and counsel to him. This sept and territory would then either be handed down to the successor, or would return to another worthy of stepping into the role of Sept Leader when the new High King, or Queen, made his own sept into a new home for the crown. 
-
-**
-## **Glory** 
 
 The High King can spend 1 trait of Glory Renown to enact one of the following effects: 
 
@@ -19960,8 +18932,6 @@ _“We’re a collection of predators struggling against our rage and very natur
 The _Council of Tribes_ is comprised of one councilor from each of the thirteen werewolf tribes. Although they only officially serve as advisors to the High King, the Councilor from each tribe is also considered the highest authority for her own 
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
-
-498 
 
 Alona McCreary (Order #15311115) 
 
@@ -20010,9 +18980,6 @@ She can expend a single trait of Fleeting Renown (of any type) to assign any gre
 
 The division between the Sanctum of Gaia and the Concordat of Stars has prevented the Council of Tribes from selecting any candidate to become High King. The Silver Fangs naturally argue that that only a member of their tribe is worthy of wearing the Silver Crown. The Shadow Lords claim that the leadership of the Silver Fangs led to the near destruction of the Garou Nation and that new blood is needed. The stalemate has forced the Council of Tribes to take on more and more responsibility and left the council in a political deadlock. 
 
-**
-499 
-
 Chapter eleven: the Garou nation 
 
 Alona McCreary (Order #15311115) 
@@ -20021,9 +18988,6 @@ Alona McCreary (Order #15311115)
 ## **While the King’s Away** 
 
 Presently, the Council of Tribes is fulfilling all of the duties and responsibilities of the High King. With a unanimous vote and appropriate Renown expenditures, they may act as the High King and take on his powers as enumerated on page 497. 
-
-**
-## **Glory** 
 
 A member of the Council of Tribes can spend 1 trait of Glory Renown to enact the following effect: 
 
@@ -20073,8 +19037,6 @@ A Legend can spend 1 trait of Glory Renown to enact the following effect:
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-500 
-
 Alona McCreary (Order #15311115) 
 
 ## **Honor** 
@@ -20115,8 +19077,6 @@ The Bone Gnawers often maintain strong ties with the Glass Walkers—a trend tha
 
 Once, the Bone Gnawer tribe was considered the omega of the Garou Nation. A few tribes, such as the Silver Fangs and the Get of Fenris, cling to that old prejudice, but the Bone Gnawers rail against their refusal to adapt to changing 
 
-501 
-
 Chapter eleven: the Garou nation 
 
 Alona McCreary (Order #15311115) 
@@ -20154,8 +19114,6 @@ The Get of Fenris stand with the Sanctum of Gaia, valuing the traditions that ha
 The Fenrir do not find it easy to mask their disdain, and this forthrightness does not often earn them friends. The perceived weakness of the Bone Gnawers repulses them. Likewise, they view the peace and diplomacy that the Children of Gaia espouse as a form of cowardice. 
 
 The Fenrir Councilor rules over the Sept of Blood Fist in Black Forest, Germany, protecting the great caern. 
-
-502 
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
@@ -20197,8 +19155,6 @@ The Shadow Lord Councilor volunteered to take control over the Sept of the Wheel
 
 Born during the chaos of the Gulf War, Samira “Doomspeaker” Tahan spent her life as a refugee, surviving 
 
-503 
-
 Chapter eleven: the Garou nation 
 
 Alona McCreary (Order #15311115) 
@@ -20232,8 +19188,6 @@ The Stargazers take the most issue with the Red Talons and the Get of Fenris. Th
 The Stargazer Councilor rules over the Sept of Glass and Steel at the Galaxy Soho Building in Beijing, China, protecting the great caern. 
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
-
-504 
 
 Alona McCreary (Order #15311115) 
 
@@ -20269,8 +19223,6 @@ The Age of Apocalypse began with a devastating wave of attacks upon the world’
 
 The _Sanctum of Gaia_ , led by the Silver Fangs, pushed for a hard return to the old ways of the Garou Nation. Its member tribes also include the Fianna, Get of Fenris, Wendigo, Red Talons, and the Black Furies. They argue that werewolves 
 
-505 
-
 Chapter eleven: the Garou nation 
 
 Alona McCreary (Order #15311115) 
@@ -20292,8 +19244,6 @@ The Sanctum recognizes that leadership is a burden and not a privilege. Its memb
 Since its emergence, werewolves have raised many questions about the significance of the Bite, and the effect this new process for triggering a First Change could have on the nation as a whole. The Sanctum of Gaia realizes that the Bite is another weapon in an arsenal running dangerously low. It is an example of natural selection, where the best and brightest will survive the change and join Gaia’s warriors. Sadly, the Bite’s success rate is very low, which is why it is vital that Garou find and protect those who may have a chance of successfully undergoing the process. Only by carefully cultivating this new resource will the Garou be able to reap the reward—an increased amount of warriors for their never-ending struggle. Thus, they believe, kinfolk have a duty to submit to guardianship until it can be determined if they should have the chance to join the Garou. 
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
-
-506 
 
 Alona McCreary (Order #15311115) 
 
@@ -20322,8 +19272,6 @@ all the shapeshifters, giving each type a form and function to suit its purpose.
 They also believe that if humans cannot be counted on to find their own way, guiding them is the only true course—not slaughter. Concordat members happily use the information and power they wield to support and protect humans, especially those who could deeply impact the world around them, ensuring the Wyrm cannot derail their destinies. Concordat members urge a stronger and more thorough integration of kinfolk into Garou society as warriors, healers, mates, and visionaries. They do not want to hide their kinfolk away, keeping them from the world with the excuse of protecting them. Instead Concordat members wish to teach and prepare their kinfolk, giving them knowledge and tools to take a more active role in the world in which they live. This practice has led to innovation in the war; kinfolk and other allies create companies that use the spoils their Garou allies provide to buy, cleanse, and revitalize Wyrm-corrupted lands. Through their kin, the Concordat actively seeks influence in the mortal halls of power, leveraging humanity itself to benefit Gaia and all her children. 
 
 Concordat members often justify their urgency by reminding others that the Age of Apocalypse has begun. They believe time cannot be wasted on arguing about each other’s failures and foibles, when the enemy without is clawing down the door. Each successfully planted shard seed provides hope for growth, representing another beachhead, another step forward, another sign of progress in a war that has seen far too many defeats for the Garou nation. The Concordat asserts that all shapeshifters can no longer sit back and defend their own territories while their cousins are slaughtered. Unity is the only hope for survival. This spirit of harmony is so strong that leaders of the Concordat have reached out to allies not before considered by the Garou. They seek out other supernatural creatures, such as mages, fae, and even vampires, to create alliances and treaties, supporting the overall goal of ensuring that a world remains in which they can all find a way to survive. They point to these alliances, including vampires coming to the aid of a caern under siege and driving away the minions of the Wyrm, as proof that such cooperation can, and will, succeed. 
-
-507 
 
 Chapter eleven: the Garou nation 
 
@@ -20355,8 +19303,6 @@ Out of all the tribes of the Garou Nation, only one as a whole has firmly held i
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-508 
-
 Alona McCreary (Order #15311115) 
 
 ## **Camp Defector** 
@@ -20382,8 +19328,6 @@ While the High King and the Council of Tribes handle tribal politics and sweepin
 Of course, Sept Leaders are still werewolves and part of the nation, and they are also beholden to the authority conferred by tribe, Rank, and position. This reality does not mean they always agree with the decisions made by others regarding their septs, particularly when said decisions are made by someone who has never set foot in their territory. In such cases, it is not uncommon for Sept Leaders to find unique ways to handle the orders they are given. Some Sept Leaders strive to never call attention to their people, handling their issues in-house and presenting a successful façade to any who might report to the Councilors or the High King. Others believe the more involved they are in the greater politics of the nation, the easier it is to handle interference from the leaders. Those who ascribe to this philosophy ensure they remain in close contact with any who might hold influence in the nation’s halls of power. No matter the route Sept Leaders choose, or even if they cleave their own way between these two extremes, it is their responsibility to guide their people through the potentially treacherous political waters of the nation. Sometimes the advice of a clever Ragabash or a quick-witted Philodox is all that stands between a sept’s safety and disaster, when it comes to the churn of the nation’s politics. 
 
 Sept Leaders sometimes attempt to ignore or refuse orders passed down to them. In the massive political machine that is the Garou Nation, it’s possible that by the time the upper echelons realize their order wasn’t obeyed, it is no longer important, or it might be forgotten entirely. However, 
-
-509 
 
 Chapter eleven: the Garou nation 
 
@@ -20419,8 +19363,6 @@ Fera can attempt to challenge for any lesser sept position, such as as Warder, D
 **
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-510 
-
 Alona McCreary (Order #15311115) 
 
 ordeal has brought about a reformation of character. For more information on the **Rite of Ostracism** , see page 544. 
@@ -20450,8 +19392,6 @@ Septs serve many vital purposes besides the paramount protection of caerns. The 
 In the wake of the diaspora of the Garou Nation, it is not uncommon for a notable werewolf to hold the responsibilities of multiple lesser offices, when there are not enough abled bodies to fill all of the roles needed to get the job done. For example, a Warder sometimes assumes the duties of a Den Parent and a Master of the Challenge. A werewolf can only hold the Abiding Renown from a single position. However, it is considered an act of hubris and scandal to claim multiple positions when there are willing and able Garou available to carry the burden. Neither the Sept Leader nor the Council of Auspices can accept the additional responsibilities from other positions. If there isn’t a werewolf to fill those roles, the sept simply keeps those positions vacant until a suitable candidate can be found. Over countless millennia, the 
 
 Chapter eleven: the Garou nation 
-
-511 
 
 Alona McCreary (Order #15311115) 
 
@@ -20498,8 +19438,6 @@ A Garou becomes a Sept Leader by defeating her predecessor in a ritualized chall
 - Sanctioning breaches of sept law 
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
-
-512 
 
 Alona McCreary (Order #15311115) 
 
@@ -20555,8 +19493,6 @@ Sept Leaders can spend 1 trait of Wisdom Renown to enact one of the following ef
 
 Chapter eleven: the Garou nation 
 
-513 
-
 Alona McCreary (Order #15311115) 
 
 This act overturns any judgement issued upon them, save for those issued by the High King or the Council of Tribes. However, the Council of Auspices can overturn their Sept Leader’s mercy via a unanimous vote to reinstate the criminal’s original punishment. 
@@ -20600,8 +19536,6 @@ As the chief guardian of a caern, a Warder is otherwise separate from the author
 - Holding immunity from prosecution for actions taken in defense of the caern 
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
-
-514 
 
 Alona McCreary (Order #15311115) 
 
@@ -20661,8 +19595,6 @@ Werewolves commonly accept the wisdom that it is the responsibility of the entir
 
 Chapter eleven: the Garou nation 
 
-515 
-
 Alona McCreary (Order #15311115) 
 
 Their goal is to educate the Cubs about what it means to be Garou, the differences and responsibilities of the auspices to which they were born, and the laws of the Litany. Whenever a Den Parent cannot teach something herself, it is her responsibility to direct those Cubs to other teachers who can best continue their specific education. 
@@ -20714,8 +19646,6 @@ The Den Parent can assign any member of the sept to teach a Cub or Cliath a gift
 
 **
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
-
-516 
 
 Alona McCreary (Order #15311115) 
 
@@ -20779,8 +19709,6 @@ A Master of the Challenge can spend 1 trait of Honor Renown to enact the followi
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-518 
-
 Alona McCreary (Order #15311115) 
 
 recommendations to the Truthcatcher, requesting that her target face formal judgement. 
@@ -20829,9 +19757,6 @@ A member of the Council of Auspices can spend 1 trait of Glory Renown to enact t
 ## **Rule by Council** 
 
 It was once more common for septs to be governed by a Council of Auspices, sometimes referred to as an Elder Council. In such cases, a council has the same authorities and privileges as the Sept Leader; furthermore, when its members vote unanimously, and when each spends the appropriate Renown traits, they can achieve the same effects. (For more information, see **The Sept: Sept Leadership, Sept Leader** , page 512.) 
-
-**
-519 
 
 Chapter eleven: the Garou nation 
 
@@ -20892,8 +19817,6 @@ The Fool can spend 1 trait of Honor Renown to enact the following effect:
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-520 
-
 Alona McCreary (Order #15311115) 
 
 ## **Wisdom** 
@@ -20950,8 +19873,6 @@ The Master of the Rite can spend 1 trait of Wisdom Renown to enact the following
 
 Chapter eleven: the Garou nation 
 
-521 
-
 Alona McCreary (Order #15311115) 
 
 award 1 Fleeting Wisdom Renown trait to those who complete this assignment. 
@@ -21006,8 +19927,6 @@ A Talesinger organizes other Galliards, and together, they ensure that the sept�
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-522 
-
 Alona McCreary (Order #15311115) 
 
 laws of the sept are known to all, and that the histories and stories of the sept’s members are told and remembered. She tends to the Hall of Heroes, and she records the important deeds of the sept. Within the monument to the ancestors, the Talesinger is lord and master, ensuring the vital links to history are never in danger. When the sept faces threats, here the Talesinger stands as a bulwark against those who would defame history. 
@@ -21059,8 +19978,6 @@ The Wyrmfoe is the living embodiment of the sept’s rage, hunting creatures of 
 One of the less-obvious duties of the office of the Wyrmfoe is to ensure that the defenses of the sept are well-stocked. 
 
 Chapter eleven: the Garou nation 
-
-523 
 
 Alona McCreary (Order #15311115) 
 
@@ -21116,8 +20033,6 @@ Claiming territory for a sept in a Wyld-oriented area offers the safety of anony
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-524 
-
 Alona McCreary (Order #15311115) 
 
 as regular manned patrols, traps and snares, or spiritual defenders, rather than more modern security systems. In this day and age, a Wyld-aligned sept may draw attention when outsiders begin to question why so many people are living together in isolation. 
@@ -21149,8 +20064,6 @@ Any sept without a shard seed, no matter the size of territory claimed or the nu
 The Storyteller determines the number of Garou and kinfolk PCs and NPCs at a sept, then calculates that sept’s level. Once the sept’s level has been determined, the size of the sept dictates a number of advantages and disadvantages its members receive. 
 
 Chapter eleven: the Garou nation 
-
-525 
 
 Alona McCreary (Order #15311115) 
 
@@ -21188,8 +20101,6 @@ Without these boundaries, a sept is incomplete. Once they are established, promi
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-526 
-
 Alona McCreary (Order #15311115) 
 
 provide plenty of seating for witnesses, while others go with a simple area marked as a meeting place. Customs vary between septs and often reflect their traditions and their Sept Leaders’ backgrounds. 
@@ -21217,8 +20128,6 @@ During a time of war, the leadership of the sept remains in the hands of the Sep
 Once the threat has been removed, the Sept Leader officially declares the time of war ended, allowing the sept 
 
 Chapter eleven: the Garou nation 
-
-527 
 
 Alona McCreary (Order #15311115) 
 
@@ -21250,8 +20159,6 @@ The Litany is the framework upon which the Garou have built their society. This 
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-528 
-
 Alona McCreary (Order #15311115) 
 
 trial, then for the duration of the trial, she speaks with the voice and authority of the Truthcatcher. The Truthcatcher then calls upon the Fool to either speak in defense of the accused, or to appoint another Ragabash to do so. The Talesinger also stands witness, or appoints an assistant, in order to ensure proper records are maintained for the sept. The witness is responsible for communicating any change in Renown or Rank to the sept and nation as required. Finally, the Wyrmfoe stands as champion for the court, or appoints an assistant to do so. The champion stands against any challenges brought forth during the course of the trial. 
@@ -21282,9 +20189,6 @@ A punishment that can only be levied by a Sept Leader or the High King, the Rite
 For more information on monikers, see **Chapter Nine: Social Systems: Monikers** , page 424. 
 
 For more information on Rite of the Hunt see **Rites: Rite of the Hunt** , page 545. 
-
-**
-529 
 
 Chapter eleven: the Garou nation 
 
@@ -21332,8 +20236,6 @@ When choosing a totem spirit to represent a pack, players should work with their
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-530 
-
 Alona McCreary (Order #15311115) 
 
 This decision helps players select a spirit that most closely represents those goals. For example, a pack dedicated to war and hunting down the enemies of Gaia might be best represented by Fenris Wolf or Griffon, while a pack that scouts and strikes where an enemy is weak would be better supported by Rattlesnake or Owl. 
@@ -21372,8 +20274,6 @@ The following information is intended to be a creative guideline for building a 
 **
 Chapter eleven: the Garou nation 
 
-531 
-
 Alona McCreary (Order #15311115) 
 
 The most famous destiny pack is the Silver Pack, which is chosen when needed by the totem Phoenix to complete a mission vital to the interests of the Garou Nation. 
@@ -21403,8 +20303,6 @@ A pack is a living organization with a complete life cycle. It comes into being,
 Garou expect those of higher Rank to provide an occasional helping hand to mentor Youngbloods. Experience is earned through blood and tears. Garou do not coddle their young, but they do watch and protect them when it is required. Often, new recruits find such treatment overbearing and resent the interference. Seasoned veterans try to watch 
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
-
-532 
 
 Alona McCreary (Order #15311115) 
 
@@ -21446,8 +20344,6 @@ A Wyld pack is a traditional organizational style inspired by the lupus instinct
 
 Chapter eleven: the Garou nation 
 
-533 
-
 Alona McCreary (Order #15311115) 
 
 Weaver dominates. Wyld packs run similar to native wolf packs, using an open family style with traditionally benevolent, but authoritative, parental figures leading the group. These packs are usually larger than average, often ranging from five to twelve members living, hunting, and patrolling together. 
@@ -21487,8 +20383,6 @@ Some packs eschew traditional hierarchies altogether, delving deeply into the an
 Collective packs believe one’s auspice is more than just the phase of the moon under which a Garou was born; it is a blessing directly from Luna that grants special insight and knowledge into all matters that fall under its bailiwick. In such a pack, leadership changes hands often, and the highest-ranked auspice most appropriate to the situation, referred to as the Auspice Prime, takes 
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
-
-534 
 
 Alona McCreary (Order #15311115) 
 
@@ -21532,8 +20426,6 @@ The problem many Democratic packs face is that it is easy to preach about the wi
 
 Chapter eleven: the Garou nation 
 
-535 
-
 Alona McCreary (Order #15311115) 
 
 ## **Roles that Garou in Democratic packs assume are as follows:** 
@@ -21571,8 +20463,6 @@ Totems who accept Authoritarian packs, especially more conservative tribal totem
 The Leader is the all-powerful tyrant of the pack. Her word is theoretically law and cannot be challenged at any time for as long as she lives. The hard truth is that more than one Authoritarian pack Leader has died in a bloody coup d’état when there were no witnesses present. A wise and charismatic leader appears to listen to her followers. She needs the majority of the pack to continue to love her, risking it all on the belief that she alone can help them survive the end of the world. 
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
-
-536 Alona McCreary (Order #15311115) 
 
 - **Minister of Harmony** 
 
@@ -21615,8 +20505,6 @@ The following packs serve as examples to give players and Storytellers ideas abo
 Mother Gaia’s ecosystem is on life support. The great Canadian North represents one of the largest unspoiled strongholds of the Wyld in North America, despite climate change and attempts by oil companies to drill or build a pipeline. This sacred land represents one of the last Pure Lands keeping the world alive. The Unbroken Vanguard defends this realm and the Garou strongholds there against incursions from the Wyrm, be they corporate fracking, 
 
 Chapter eleven: the Garou nation 
-
-537 
 
 Alona McCreary (Order #15311115) 
 
@@ -21684,8 +20572,6 @@ The pack includes notable werewolves from across the nation, spanning all tribes
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-538 
-
 Alona McCreary (Order #15311115) 
 
 ## Horizon 
@@ -21733,8 +20619,6 @@ Each ritual cast affirms the bond Garou share with spirits and results in streng
 The rituals employed by the Garou are broken down into five primary types: Caern Rites, Mystic Rites, Punishment Rites, Renown Rites, and Seasonal Rites. While there are other minor rites Garou often perform, such as thanking spirits of prey that were killed for food or howling in greeting to the sun or moon, these five primary ritual types are the most commonly taught and accepted. 
 
 Rituals are empowered by the spiritual essence within a Garou, Fera, or kinfolk. They are handed down from a Master of the Rite to her students in an unbroken chain dating back to when the original spirit pacts were formed. While the actual details of the rituals can vary depending on the tribe, sept, or perceptions of the participants, the belief of the caster and those participating in the rite is a ritual’s most important component. In order to successfully cast a ritual, the caster must possess the Rites background with 1 dot corresponding to the type of rite she wishes to perform. Assisting participants need not have knowledge of how to cast a rite in order to be involved. For more information on the Rites background, see **Chapter Four: Character** 
-
-539 
 
 Chapter eleven: the Garou nation 
 
@@ -21784,8 +20668,6 @@ For each additional point of Gnosis that the ritual caster spends during the rit
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-540 
-
 Alona McCreary (Order #15311115) 
 
 ## Rite of Furrowed Earth 
@@ -21829,8 +20711,6 @@ No manner of mundane or supernatural obfuscation can impede the pull of the comp
 ## Rite of the Shrouded Glen 
 
 Sometimes, the best defense is never being seen in the first place. This ritual renders the umbral reflection of a shard 
-
-541 
 
 Chapter eleven: the Garou nation 
 
@@ -21880,8 +20760,6 @@ Spend 1 point of Gnosis and use your standard action gathering the attention of 
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-542 
-
 Alona McCreary (Order #15311115) 
 
 This ritual may also be used to channel gnostic energy directly to a shard seed. When cast in this way, you can spend any number of additional points of Gnosis beyond the initial 1 point required to perform the rite, then transfer those points directly to the target shard seed. Any participants joining you in the ritual may do so as well. 
@@ -21927,8 +20805,6 @@ If cast to dissolve a pack, this ritual offers a spirit the ability to tell a pa
 ## Punishment Rites 
 
 Covering everything from breaches of the Litany to offenses against the laws of a sept and one another, Punishment rites 
-
-543 
 
 Chapter eleven: the Garou nation 
 
@@ -21976,8 +20852,6 @@ Spend 1 point of Gnosis and use three standard actions heaping mockery and scorn
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-544 Alona McCreary (Order #15311115) 
-
 Once this ritual has been cast on a target, the crimes that she committed to earn the punishment are never spoken of again. Enduring the humiliation required as part of the rite is penance enough, and only the most dishonorable would dare bring up the actions after the punishment has been completed. 
 
 For more information on when to use the Satire Rite, see **The Sept: The Litany and the Sept, Crime and Punishment** , page 528. 
@@ -22019,8 +20893,6 @@ In order to perform this rite, the caster needs a whistle, a bell, or some other
 Spend 1 point of Gnosis and use your standard action to create a high-pitched chime or whining sound. If you succeed on the Punishment rite challenge, you render the target’s voice high-pitched and squeaky while in Homid form and accented with hyena-like barks and yips when attempting to communicate in her Lupus form. 
 
 While under the effects of this ritual, the target receives a wild card penalty equal to the number of dots she possesses of the Rank background, applicable to any Leadership challenges in which she particpates. The target gains one of the following monikers as chosen by the caster of the rite: _Coward_ , _Dishonorable_ , or _Reckless_ . 
-
-545 
 
 Chapter eleven: the Garou nation 
 
@@ -22078,8 +20950,6 @@ When a Cub has learned her lessons and is ready to become a full member of the n
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-546 
-
 Alona McCreary (Order #15311115) 
 
 full sept membership, and it formally acknowledges the Cubs’ success. Cubs who go through this rite together often form the basis of a new pack. 
@@ -22129,8 +20999,6 @@ The caster and all participants gather together under the light of the moon. The
 Spend 1 point of Gnosis and use five standard actions to invoke Luna in each of her phases. If you succeed on a Seasonal rite challenge, this ritual removes a point of Harano from each participant for the next month. 
 
 If a participant in the Lunar Celebration rite participates in a moot before the month is over, her removed point of Harano does not return. If a werewolf fails to participate in a moot before the allotted time, the removed point of Harano returns, and the target gains another point of Harano for her failure. You can only be under the effect of one Lunar Celebration rite at a time. 
-
-547 
 
 Chapter eleven: the Garou nation 
 
@@ -22188,8 +21056,6 @@ For the next three months, those bound to the sept are not subject to any negati
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-548 
-
 Alona McCreary (Order #15311115) 
 
 ## Secrets Recovered 
@@ -22241,8 +21107,6 @@ defenders in each caern grew. In the end, shapeshifters saved thirteen of the ca
 
 The new caerns— _shard caerns_ —are vastly weaker than their predecessors. Compared to the mighty locales from which they are descended, shard caerns are fragile and 
 
-553 
-
 Chapter twelve: Caerns 
 
 Alona McCreary (Order #15311115) 
@@ -22275,8 +21139,6 @@ Some believe that there are lost great caerns sleeping deep in the remaining pla
 **
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-554 
-
 Alona McCreary (Order #15311115) 
 
 ## The Surviving Thirteen Great Caerns 
@@ -22307,9 +21169,6 @@ Situated deep in the Louisiana swamp, the Sept of Forgotten Waters is not an eas
 
 The Stargazer tribe has reported that, in spite of the Wyrm’s devastating assault, the Beast Courts were able to secure and retain an unknown number of their own caerns, known as **Dragon Nests** , in undisclosed locations throughout Asia. The Garou Nation has yet to bridge centuries of distrust to learn more, but there is hope that perhaps there are others fighting the good fight to restore Gaia. As they were party to the discovery of the shard seeds, it is expected that the Beast Courts are using similar methods to retake their former holdings. 
 
-**
-555 
-
 Chapter twelve: Caerns 
 
 Alona McCreary (Order #15311115) 
@@ -22331,8 +21190,6 @@ Nestled in the wilds of Canada, the Sept of the Last Breath has stood unflinchin
 **
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-556 
-
 Alona McCreary (Order #15311115) 
 
 ## Sept of the Weeping Daughter 
@@ -22350,8 +21207,6 @@ Grimbone Creek, 15 miles west of Lawson, Alaska, United States
 For nearly two hundred years, the Sept of the Weeping Daughter remained isolated; its keepers restricted admittance to Red Talons and, out of respect, select Wendigo. But during the Siege of the Dark Brigade, the few local guardians could not withstand the Wyrm’s onslaught. In a move considered controversial at the time, the Sept Leader decreed the caern open to refugees escaping the cities and destruction, and asked only that any who were able to stand take part in the fighting. When the Wyrm arrived on the heels of the newcomers, the Sept Leader led the defenders with a powerful howl that bolstered their resolve and spurred the attackers into disorganized frenzy. Filled with powerful rage, the once-haggard refugees seized their pursuers while Thistlechar challenged the enemy commander to face her personally. After an epic struggle, she gained the upper hand, and violently tore out his throat. Lacking any semblance of structure, the Dark Brigade was outmatched and sought to flee. The Red Talons and Wendigo spent the next several days hunting them across the tundra. 
 
 In recognition of the group effort that saved the great caern, it has since been decreed that any Garou may freely seek permission to enter it. However, the caern remains a stronghold for the Sanctum of Gaia, and its leaders are staunchly opposed to any notions of Weaver sympathy. Recently, a slew of Rokea have made the sept a port of call, suggesting that their relations with the Red Talons have warmed. 
-
-557 
 
 Chapter twelve: Caerns 
 
@@ -22375,8 +21230,6 @@ Located near the Tefé river in Brazil, the Sept of the Hollow Heart lies deep i
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-558 
-
 Alona McCreary (Order #15311115) 
 
 ## Sept of the Split Sun 
@@ -22392,8 +21245,6 @@ Sierra de las Minas, Guatemala
 **Sept Description:** The Sept of the Split Sun can track its history back to the days when the first Uktena migrated to South America. Founded to serve as a central staging point for fighting the vampires of Mesoamerica, the Garou of the Sept of the Split Sun have been known for their strength and tenacity in the overwhelming face of the Wyrm’s corruption since the sept was founded. When war came to the Pure Lands, Shadow Lords attempted to take this sept by force, in hopes of securing resources for their war against the Aztecs. The werewolves of the Split Sun, following their totem Quetzal, hid all traces of the caern and retreated deep into their protectorate, where the Shadow Lords could not find them. When the Dark Brigade came to attack the Sept of the Split Sun, the ancient magics endured, and the creatures of the Wyrm found themselves hopelessly lost in the jungle. Throughout the course of weeks, they were picked off by the caern’s defenders, led by the sept’s Ragabash and Ahroun. Although they were unable to damage the sept itself, the area was not left unmolested, as the Wyrm burned the jungle and killed dozens of locals in retribution. 
 
 One of the largest remaining great caerns in the world, the Sept of the Split Sun sprawls over a massive protectorate deep in the mountains of Sierra de las Minas. Many of the sept’s structures are carefully hidden amongst the natural flora, and some parts of the caern have never been seen by those who are not sworn to the sept. It’s rumored that among the monuments in its hall of heroes are some dedicated to the Camazotz. The Sept of the Split Sun has opened its borders to most Garou; however, Shadow Lords are met with a wary eye, and find that they must work harder to gain the trust of the inhabitants of the sept. 
-
-559 
 
 Chapter twelve: Caerns 
 
@@ -22421,8 +21272,6 @@ Pristine and savage, the Sept of the Crescent Moon is a beautiful Wyld sept. For
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-560 
-
 Alona McCreary (Order #15311115) 
 
 ## Sept of Glass and Steel 
@@ -22440,8 +21289,6 @@ Galaxy Soho Building, Beijing, China
 The unique design of the building positioned it at the heart of the city’s leylines, enabling it to draw an excess of Gnosis. For the past fifty years, Stargazer kinfolk worked carefully with urban planners to arrange this unique alignment, regulating the construction of nearby buildings to allow the lines of power to be maintained. When the Wyrm attacked, the Stargazers had fortune on their side, having recalled the sept’s warriors in preparation for what was deemed an inauspicious day in advance. While their attackers believed them easy prey, the Stargazers had careful preparation, the mortal populace, and for once, Weaver technology on their side. Through clarity and resolve, their caern endured, though others did not share in their fortune. 
 
 The Galaxy Soho building in Beijing is a massive, sprawling creation of glass and steel, rising high into the sky. The top fifteen floors of the building are dedicated to the caern, along with the massive gardens in the atrium. The Stargazers are immensely proud of their new harmonious space, and they find that their attitude towards the Weaver has softened in the wake of their victory. Although the sept is open to any Garou or Fera, mostly members of the Beast Courts can be found here. All members enjoy excellent relations with the surrounding community, who treat their elder kinfolk with great care and reverence. 
-
-561 
 
 Chapter twelve: Caerns 
 
@@ -22471,8 +21318,6 @@ The Dark River Caern is situated on the Congo, near Lisala. Traveling there is t
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-562 
-
 Alona McCreary (Order #15311115) 
 
 ## Sept of the Wheel of Ptah 
@@ -22488,8 +21333,6 @@ Casablanca, Morocco
 **Sept Description:** The Sept of the Wheel of Ptah makes its home in Casablanca, in the ancient Mosque Anfa. Established by the Silent Striders, this caern has served as a place of rest for weary travelers since its founding. Prior to the Age of Apocalypse, the Sept of the Wheel of Ptah stood as a crossroads of sorts for Garou who wished to travel via Moon Bridge—the unique power of the caern allowed it to open a gateway to anywhere in the world, regardless of whether or not a pathstone existed on the other end. Many adventurous Garou used this ability to travel deep into the Umbra or to discover ancient lost caerns that lay dormant. A secluded courtyard protects the Fountain of a Thousand Grieving Battles. Historically, the water of this fountain would run blood red whenever a tragic battle occurred within the nation. The first sign that an attack on the caerns was imminent was the water in the fountain running black. 
 
 As a Moon Bridge nexus, the Sept of the Wheel of Ptah was among the first to be attacked. The Wyrm had hoped to seize the caern and use it to travel between septs. Realizing this, the Sept Leader ordered the destruction of the centuries-old Pathstone—one of the first ever to be created—which was the sept’s only hope of retreat should they be overwhelmed. With its strategic value diminished, the Wyrm chose to reallocate a number of its forces elsewhere. Fortune then intervened, and the caern was able to hold with the assistance of Silent Striders and members of the Ahadi alike. Although the sept has yet to regain its ability to travel nearly anywhere via Moon Bridge, the kinfolk of the Sept of the Wheel of Ptah have worked to find acceptable alternatives, and the sept remains a travel hub for members of the Garou Nation traveling via mundane means. 
-
-563 
 
 Chapter twelve: Caerns 
 
@@ -22515,8 +21358,6 @@ Situated on the coast of Nigeria, the Sept of Last Stand is on the edge of the c
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-564 
-
 Alona McCreary (Order #15311115) 
 
 The Great Caerns of Europe 
@@ -22538,8 +21379,6 @@ Throughout the course of days, as wave after wave of Wyrm creatures broke agains
 Among their number was Daghur, born the brother of Sept Leader Alika, but given away at birth. He had since joined the Valkyria, and having received word from his sister, he convinced the camp to come to the Black Furies’ aid. Under the fury of their combined assault, the forces of the Wyrm crumpled and fell, and were soon slaughtered entirely. A number of the surviving Furies were shocked to see a man fighting so valiantly among the Valkyria, and they were even more surprised to find he he had been born a Fury. His presence that day sparked the debate that eventually led the Furies’ to shift their tribal policies. 
 
 The Sept of Bygone Visions is situated on the island of Ecube, also known as _Miria_ to the Black Furies. The sept itself is ancient, and the stone structures that dot its bawn have endured the test of time. On the nearby coast of Crete, the Black Furies founded a mainland villa as a safe haven for kinfolk, including both Black Fury kin and others alike. For centuries, this sept was exclusively open to Black Furies. Only after the start of the Age of Apocalypse did the sisters of Bygone Visions open their borders to others. The island remains a center of power for the Black Furies, and it is here that the Inner Calyx meets to discuss tribal business. 
-
-565 
 
 Chapter twelve: Caerns 
 
@@ -22563,8 +21402,6 @@ Stark and wild, Blood Fist is a haven for Lupus and Metis Garou. With much of th
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-566 
-
 Alona McCreary (Order #15311115) 
 
 ## Sept of Silver Tara 
@@ -22582,8 +21419,6 @@ Hill of Tara, Ireland
 As the other caerns began to fall, Bron Mac Fionn, the Ard Righ, feared his own fortifications wouldn’t last. With a small band, he escaped the blockade and went deep into the Umbra, seeking aid from the fae while his army held the line. He returned from the Arcadia Gateway with an artifact that restored the pact between the Sept of Silver Tara and its old allies. The resurgence of power restored the defenses and healed the caern, but at a cost. Bron had earned the ire of the fae Princess Mariana, who cursed him and all of the Fianna, opening their hearts to the sadness she endured. 
 
 With the pact restored, the Sept of Silver Tara remains one of the most fortified positions in the world for the Garou Nation. Nestled in emerald hills and protected by ancient magics, it serves as a staging point to retake the British Isles. However, its politics are in a delicate state as Mac Fionn holds the reins of power by a thin thread. Many worry that the unrest stirred by the recent curse may lead to bloody conflict among the hot-blooded Fianna, or even worse——a crisis of leadership, leaving the caern vulnerable in the face of a second onslaught by the Wyrm. 
-
-567 
 
 Chapter twelve: Caerns 
 
@@ -22618,8 +21453,6 @@ When a member of a sept wishes to announce a challenge, she takes to the _challe
 The _hall of heroes_ is a place memorializing those who gave their lives in service to Gaia in a heroic fashion. This area is typically removed from the caern heart, as it is often used for both mourning the dead and educating the young about sept history. Before the Apocalypse, pilgrimages to distant septs, honoring their legendary heroes, were very common. Following the events of the onset of the Age of Apocalypse, these halls have swelled with new additions worldwide, with some halls bearing a monument simply dedicated “to the fallen,” with the names and dates of battles noted. The monuments themselves take various forms, depending on the artistic skills of the sept’s members and on various cultural influences. 
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
-
-568 
 
 Alona McCreary (Order #15311115) 
 
@@ -22665,8 +21498,6 @@ Once per game session, for each increment of rating a great caern possesses, the
 
 - **Guardian’s Expertise:** For the next five minutes, the target receives a +3 bonus to one skill chosen by the caern totem. The chosen skill should reflect the nature of the totem in some way. 
 
-569 
-
 Chapter twelve: Caerns 
 
 Alona McCreary (Order #15311115) 
@@ -22709,8 +21540,6 @@ Garou at a great caern can open Moon Bridges to any other great caern, or to a s
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-570 
-
 Alona McCreary (Order #15311115) 
 
 **
@@ -22738,8 +21567,6 @@ Embraced by the Concordat of the Stars as proof that a partnership between the G
 Shard seeds are rare, and growing them takes time and great effort. Each seed represents the trust of a great caern’s defenders, given to those who would seek to establish a new sept. Some Garou have kept these priceless artifacts to themselves, using them as political leverage to determine which septs might receive their own shard caern. However, some tribes have sought a new direction, forging alliances with Fera by gifting them these seeds. The recent accord between the Red Talons and the Rokea was made possible through the gift of a shard seed, and the Uktena are working with a number of other Fera, as well. 
 
 Although shard seeds, and the shard caerns they become, have offered a new hope to the Garou Nation, they do not come without their own dangers. The seeds themselves are mobile, and even once they are planted, they are not truly safe. As scarce as they are, it is easy to give credence to the rumors of precious seeds being ripped from the soil, stolen, and repurposed for others’ use. Umbral storms, too, are powerful enough to ravage unprotected shard caerns, 
-
-571 
 
 Chapter twelve: Caerns 
 
@@ -22778,8 +21605,6 @@ A shard caern has the following attributes:
 - Umbral storms are particularly dangerous to shard caerns and the seeds within them. If a shard caern is exposed to an umbral storm more than three times within 12 months, it immediately decreases the shard caern’s rating by 1. If this reduction causes the caern to reach rating 0, the seed shatters, and the caern is lost. 
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
-
-572 
 
 Alona McCreary (Order #15311115) 
 
@@ -22820,8 +21645,6 @@ Only a periphery has sufficient gnostic energy to support the growth of a shard 
 The most commonly used form of protection is the use of the Rite of the Shrouded Glen. This ritual protects the totem spirit bound to the shard caern, and also protects other spirits that live within the sept’s territory. It also ensures that the gift Taking the Forgotten is rendered useless if it is used on a shard seed, in the event it is unearthed. While spirits and rites are potent defenses, nothing protects a shard caern better than the Garou and Fera who bind themselves to its defense. 
 
 The rating of a shard caern determines the average size of its bawn. This limit can vary slightly as determined by the needs and location of the sept. To the right are the average sizes for a shard caern’s bawn. 
-
-573 
 
 Chapter twelve: Caerns 
 
@@ -22877,8 +21700,6 @@ The Rite of Furrowed Earth is the first ritual performed, formally beginning the
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-574 Alona McCreary (Order #15311115) 
-
 This is the most dangerous moment for all involved. Not only is the seed exposed, but the land itself is also rendered vulnerable to possible attack or corruption. An attack at this moment could damage or corrupt the land, wrest the shard seed from its owners so that others can spirit it away to be used or destroyed, and undo all the sept’s hard work. 
 
 ## **Ritual Task 2: Summon Caern Totem** 
@@ -22913,8 +21734,6 @@ In small septs, some roles may remain vacant, or some Garou might have to pull d
 
 The Theurges of the Garou Nation believe that, in time, new shard caerns may blossom into great caerns. Theoretically, once a shard caern has reached a shard caern rating of 5 and has maintained its rating for a full decade, it will transition into a great caern with a rating of 1. When this change happens, the new great caern will be able to open Moon Bridges to all other great caerns, it will enjoy a significant boost in power, and it may even begin to grow shards seeds of its own. Of course, additional risks accompany these advantages. 
 
-575 
-
 Chapter twelve: Caerns 
 
 Alona McCreary (Order #15311115) 
@@ -22941,8 +21760,6 @@ Balancing the excitement of successfully creating a shard caern with increased p
 **
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-576 
-
 Alona McCreary (Order #15311115) 
 
 Nevertheless, a stolen shard seed can be used for one of three things: 
@@ -22958,9 +21775,6 @@ Although it’s never easy to destroy a caern of any variety, shard caerns are m
 A shard caern can be destroyed if its totem has been rendered discorporate and its caern heart receives aggravated damage equivalent to its shard caern rating. This destruction is only possible if the target caern’s seed is unearthed. If it is properly sealed under the earth by the correct rituals, it is invulnerable to damage until it is removed. However, should attackers manage to remove the shard seed from the soil’s protective womb and damage it sufficiently, the shard seed will shatter, and the mystical power contained within it will be destroyed. 
 
 - **Destruction of the Stolen Seed:** Primarily a tactic of the Wyrm and its minions, removal of a shard seed from its sept makes the seed far easier to destroy. 
-
-**
-577 
 
 Chapter twelve: Caerns 
 
@@ -22985,8 +21799,6 @@ Plasma Soul, still pressing firmly against the door, which was quickly losing it
 The Wendigo glanced around, assessing their available resources. He stomped a foot hard against the ground and noticed the subtle tremors it provoked. He eyed the rest of his packmates with a discerning look. When he nodded to himself and a sly grin appeared on his lips, the rest realized that their Alpha had a plan. “When I say ‘now,’ we all instantly shift to Crinos. The weight should easily shatter the floor supports below us. Be ready for the fall. Then retreat fighting.” 
 
 Alona McCreary (Order #15311115) 
-
-*       *       * 
 
 “NOW!” A cacophony of destructive sound echoed through the lab, as the flooring of the second-story office gave way under the weight of four Garou in Crinos form. They could hear the slam of the door above them, opening from the sudden lack of resistance. Even as they struggled to recover from the planned drop, two men followed the Garou through the collapsed floor. The harsh sound of gunfire echoed in the small room as the two reflexively pulled their triggers, spraying bullets as they fell. 
 
@@ -23029,8 +21841,6 @@ The Penumbra is full of hidden pockets and entryways into differing umbral realm
 
 Deeper within the spirit realm, the Penumbra transitions into the _Near Umbra_ . Here, traveling the roads within its realms are not easy, but they are not as dangerous as the pathways to the Deep Umbra. Realms like Atrocity, the Cyber Realm, Wolfhome, and the different Tribal Homelands are all accessible through entrances located within the Near Umbra. The Near Umbra’s realms are often destinations for quests seeking enlightenment and knowledge. Garou are also sometimes sent to these places to accomplish tasks on behalf of spirits or their totems. 
 
-583 
-
 Chapter thirteen: the Umbra 
 
 Alona McCreary (Order #15311115) 
@@ -23060,8 +21870,6 @@ A werewolf’s default spiritual affinity is Wyld. The merit Wyld Affinity (see 
 
 **
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
-
-584 
 
 Alona McCreary (Order #15311115) 
 
@@ -23105,8 +21913,6 @@ Returning to the Material Realm is dangerous. Without proper precautions, a trav
 
 To exit the Umbra, a werewolf must first expend a standard action peeking across the Gauntlet (see **The Gauntlet: Peeking Across the Gauntlet** , below, page 586) to attune herself to the Material Realm; then, she can cross without getting lost or injured. A werewolf who risks the crossing without looking first may find herself caught in an umbral storm (see **Umbral Storms** , page 603). The time required to physically cross the Gauntlet and enter into the Material Realm depends on the where the Garou is trying to pass, according to the chart on the next page. 
 
-585 
-
 Chapter thirteen: the Umbra 
 
 Alona McCreary (Order #15311115) 
@@ -23145,8 +21951,6 @@ Garou in the Penumbra can:
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-586 
-
 Alona McCreary (Order #15311115) 
 
 - Garou can spend Gnosis, at a rate of one per week, to sustain themselves in the Penumbra. Other creatures are rarely able to find sustenance within the spirit realms, and supernatural creatures that subsist on blood are unable to feed unless they bring humans into the Penumbra with them. If a creature starves to death while in the Umbra, it becomes a spiritual reflection—such as a Garou ancestor spirit, or a vampiric bane spirit. 
@@ -23178,8 +21982,6 @@ Entering the Battleground can occur by crossing the Gauntlet, but shapeshifters 
 ## **Special Mechanics:** 
 
 - Characters in this realm gain 1 additional point of Rage each turn on her Everyman initiative. 
-
-587 
 
 Chapter thirteen: the Umbra 
 
@@ -23219,8 +22021,6 @@ Some Garou come to Wolfhome to learn more about their primal natures and how to 
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-588 Alona McCreary (Order #15311115) 
-
 Those Garou who go looking for an entrance to Wolfhome can easily find it; however, a werewolf rarely enters Wolfhome willingly. The spirits, or some say Wolfhome itself, can punish an arrogant Garou by slightly extending the borders of Wolfhome while the Garou is already in the Penumbra. To exit the realm, a Garou must fully understand what it is to be an animal—from its instincts to its fears. When this understanding occurs, as determined by the Storyteller, a Garou can then exit this realm. 
 
 **Storytelling Hooks:** Wolfhome presents opportunities for Garou seeking to learn from their animal natures, both voluntarily and not. Some are sent to this realm as punishment, forced to stay in Wolfhome until they humble themselves and remember they are also beasts. Others already understand their need to become closer to their animal natures, and come voluntarily to Wolfhome to better epitomize both wolf and man. 
@@ -23256,8 +22056,6 @@ Domains in the Penumbra usually correspond to real world locations, places with 
 **Example:** _Jason is running a scene for his players. They are attempting to obtain a fetish that is part of an evolution exhibit at the Natural History Museum, and they have decided to sneak into the building by going through the Penumbra. Jason decides to create a domain named “Origin,” which is based on the theme of transformation. He determines the players can enter this domain by changing their form while holding onto a copy of the book_ Origins of the Species _. This act masks them as a changing thing that can easily avoid detection. When they approach the building, he describes the structure as a living entity, constantly growing new limbs or additional eyes, just to have them dissolve into some other appendage. Even the air around outside the reflection of the museum smells as though it is electrified, causing the characters’ skins to tingle and itch, as though they too should change._ 
 
 _Inside of the building, a group of Gaffling spirits have manifested as bipedal, intelligent chimpanzees. They spend their time carefully monitoring and maintaining the exhibits, which are animated and able to speak, trying to shout down each other and their caretakers by reciting their histories. The players determine the fetish they are looking for is guarded by an equally intelligent Jaggling spirit-ape; however, the large primate has reached the end of her rope with the exhibits’ constant harassment, and it has little desire to barter or broker a deal. Once the characters obtain the fetish, they are able to exit the domain by rejecting the transformation offered, changing to their Homid form and tearing out the pages of the book they used to enter._ 
-
-589 
 
 Chapter thirteen: the Umbra 
 
@@ -23305,8 +22103,6 @@ Tainted heavily by the Wyrm, the air of Atrocity reeks overwhelmingly of the cop
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-590 
-
 Alona McCreary (Order #15311115) 
 
 are forced to watch horrific violations and victimizations of others, unable to stop the massacre for more than a few moments. A Garou with a dark past may find herself face-to-face with her crimes, her atrocities playing out on gruesome repeat in front of her companions. 
@@ -23340,8 +22136,6 @@ The geography of the Dream Zone is ever-changing, shifting from the personal dre
 To enter the Dream Zone, a Garou must go to sleep in the Penumbra—a dangerous exercise of trust and vulnerability. Leaving the Dream Zone is easier, as a Garou must only wake up or complete her dream-quest. 
 
 **Storytelling Hooks:** The Dream Zone is an excellent setting for stories of prophecy and omens. Interpretations of events, viewed through a dreaming eye, are reflected in such a way that they offer a powerful backdrop for foreshadowing upcoming plotlines in your game. Events in the Dream Zone also clarify things that have happened in a character’s past. 
-
-591 
 
 Chapter thirteen: the Umbra 
 
@@ -23383,8 +22177,6 @@ Erebus is a realm Garou seek with purpose. To reach it, they can follow the Silv
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-592 
-
 Alona McCreary (Order #15311115) 
 
 ## Flux 
@@ -23418,8 +22210,6 @@ distances in a blink, arriving in time to save a caern under siege or seek out r
 In the _Legendary_ realm, terrible monsters still roam the earth and great deeds earn kingdoms. In a culture where myth, heroism, and storied feats are factual history, this land is a living testament to great power and noble rulers. It is the place where legendary ancestors dwell, where shapeshifters can learn at the feet of those glorified Garou, and where werewolves go on grand adventures in a land born from their ideals and dreams made manifest. 
 
 The Legendary realm has many kingdoms scattered throughout it; all of them belong to Garou heroes of myth and legend. These kingdoms reward werewolves for incredible feats of strength and succeeding at seemingly impossible quests. Each stone and every flower springs forth from the attributes of these heroes, from the bitterly cold and brutal kingdoms of a once-mighty Get of Fenris to the fairytale-like kingdom of a Fianna who had intimate knowledge of the fae. Every shapeshifter whose glory was proclaimed to others, spread by whispered word and boisterous song for the most spectacular of deeds, finds her home here. In between each of these kingdoms is a vast, wild place known as the Wylderness, where mythical beasts wait, guarding unfathomable treasures and magical groves. 
-
-593 
 
 Chapter thirteen: the Umbra 
 
@@ -23456,8 +22246,6 @@ Most Garou avoid Scar. The chance of ending up on the assembly line or at the ot
 Getting into Scar isn’t challenging. While other realms have tricky pathways to navigate, spirits to avoid, or obstacles to overcome, it’s easy to stumble from other realms into the Scar, becoming caught in traps laid by pattern spiders that infest 
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
-
-594 
 
 Alona McCreary (Order #15311115) 
 
@@ -23498,8 +22286,6 @@ Always difficult to reach, Summer Country became even more elusive as umbral sto
 - Characters do not suffer from wound penalties in this realm. 
 
 - Characters who enter this realm are immediately restored to full health, Gnosis, and Willpower. In addition, any detrimental effects from gifts are removed. 
-
-595 
 
 Chapter thirteen: the Umbra 
 
@@ -23547,8 +22333,6 @@ Realms in the Near Umbra are comprehensive locations dedicated to ideals or othe
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-596 
-
 Alona McCreary (Order #15311115) 
 
 _intent of martyrs, and basing it on the nuances and impact of self-sacrifice. Lucinda chooses not to align the realm to a member of the Triat, but tells her players they can constantly hear the sounds of battle in the distance, even if they cannot locate its source. She determines that characters can enter this realm accidentally, through traveling through the Umbra while musing about the cost of such sacrifices. She also determines they can enter it intentionally through the Dream Zone, as they explore facets of blood, death, and pain._ 
@@ -23595,8 +22379,6 @@ The _Abyss_ is a deep rift obscured by thick mists where every footstep is treac
 
 Three paths, their walls wet and jagged, spiral into the darkness that is the heart of the Abyss: The Golden, the 
 
-597 
-
 Chapter thirteen: the Umbra 
 
 Alona McCreary (Order #15311115) 
@@ -23630,8 +22412,6 @@ High within the sky in the Umbra, above the clouds, lies the _Aetherial_ realm�
 The Sept of the Stars is a Stargazer sept, welcoming and advising those who visit regarding their explorations within the Aetherial realm. Travelers can seek out advice about the differing laws that affect each of the different planetary realms or seek suggestions about how to avoid the dangers that exist along the paths between planets. Members of the sept, seeking to better understand the powerful spirits of the Aetherial realm, consider it their responsibility to guide and advise those who come seeking the Celestines and their realms. Members of this sept also observe the three Reaches of creation: the Wyld, Weaver, and Wyrm. Some believe 
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
-
-598 
 
 Alona McCreary (Order #15311115) 
 
@@ -23674,8 +22454,6 @@ Entrance to the Aetherial realm comes easily to those who can fly, soaring above
 
 Chapter thirteen: the Umbra 
 
-599 
-
 Alona McCreary (Order #15311115) 
 
 ## Arcadia Gateway 
@@ -23706,8 +22484,6 @@ All entrances to the realm of Arcadia Gateway are in the lands controlled by the
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-600 
-
 Alona McCreary (Order #15311115) 
 
 ## Malfeas 
@@ -23737,8 +22513,6 @@ Maeljin, they are all heavily guarded and patrolled. Only the most heroic werewo
 _Pangaea_ is a Wyld-created realm of untold beauty, reflecting the primordial past of Gaia herself. Every conceivable type of geography and season exists in Pangaea, and spirits roam the realm, taking the form of animals and plants of all types, even those long-extinct on Earth. Tribes of human huntergatherers can be found within the realm’s plains and forests, eking out a living among dinosaurs, wooly mammoths, and sabertooth tigers. 
 
 The realm of Pangaea is never static. Its atmosphere is ever-changing, and its paths or trails frequently change destination while being traveled. Many Garou become lost and confused in the myriad forests and swamps covering the land. Within these woods, however, lie powerful magical plants and animals long-suffused with the spiritual energy that permeates Pangaea. Everything, even the honey of bees, gains mystical properties due to the nature of the area in which it is produced. Anything of such beauty and magic harbors dangers. In Pangaea, Garou and Fera are no longer apex predators. Dinosaurs roam the land, eager to snatch up the unwary as their next meal, and great herds of bison stampede through plains, easily trampling Garou under their smashing hooves. The natural order is the only true law within the realm, and it is just as likely for Garou to find themselves prey instead of predator. 
-
-601 
 
 Chapter thirteen: the Umbra 
 
@@ -23792,8 +22566,6 @@ Due to the fluctuations umbral storms have wrought on the spiritual landscape, m
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-602 
-
 Alona McCreary (Order #15311115) 
 
 fae. All paths and trods that once opened to other realms have become defunct for the fae, including the gate to the Dreaming, hidden and secured in High Lord Lysander’s Gateway Castle. Princess Mariana and High Lord Lysander have refused to allow any of their brethren to use the paths from Arcadia Gateway to reach other realms of the Umbra, using their authority to prevent their brethren from finding out they are trapped. They fear, and rightly so, that if the fae found out there was no exit, they may try to find their own pathways into the Umbra and open doors to things better left unnamed, unknown, and unfound. 
@@ -23841,8 +22613,6 @@ When characters seek to travel through the Umbra, the Storyteller is encouraged 
 - Travelling to dangerous or hostile umbral realms, such as Malfeas, requires succeeding at a Heroic Quest. Travelling to a Deep Umbra realm, such as the Aetherial realm, uses a difficulty rating of 3 for the Heroic Quest, while attempting to journey to the truly terrifying realm of Malfeas uses a difficulty rating of 5. 
 
 For more examples, see **Chapter Eight: Dramatic Systems, Quests** , page 390. 
-
-603 
 
 Chapter thirteen: the Umbra 
 
@@ -23892,8 +22662,6 @@ Broken Lands have the same effects as peripheries listed above, as well as the f
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-604 
-
 Alona McCreary (Order #15311115) 
 
 - Werewolves do not need to spend a point of Gnosis in order to peek or cross from the Umbra into the Broken Lands, as the Gauntlet is torn too severely to offer any real impediment to a werewolf seeking to penetrate it. 
@@ -23925,8 +22693,6 @@ _When the pack has gathered the requirements at their live game session, its mem
 - **Spinalonga, Greece:** Once a leper colony, the disease and death tore a hole in the Gauntlet. Abandoned, tourists sometimes come through and swear they can speak to the dead or see strange things, but much of this activity is caused by the Broken Land allowing the Umbra to pour through. 
 
 - **Wonderland Amusement Park, China:** When this unfinished amusement park was razed to the ground, the death of dreams and uncertainty surrounding it opened a hole into the Umbra. Though the buildings are long gone, rumors abound that people can see the skeletons of the buildings shimmering into the life when the moon is full, broken down and ruined, always waiting to be used. 
-
-605 
 
 Chapter thirteen: the Umbra 
 
@@ -23972,8 +22738,6 @@ Successfully completing the quest or scenario closes the tear in the Gauntlet, r
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-606 
-
 Alona McCreary (Order #15311115) 
 
 ## Better to Ask Forgiveness than Permission 
@@ -24008,8 +22772,6 @@ Anastasia raised a hand, waving aside the offer. “Nothing just yet, but if we 
 
 With a welcoming gesture, the gentleman invited them up a flight of stairs. “Of course. Right this way.” 
 
-*       *       * 
-
 “ _I can’t believe this is working._ ” Impassioned Plea hissed his skepticism and amazement over the telepathic channel, as the group was led through the gallery. Each cluster of people the pack passed took notice of them, but eagerly stepped out of their path. The gentleman they followed stopped in front of a woman clad in a red evening gown, her hair elaborately arranged and sparkling jewels hanging at her throat. She stood still, reflecting on a sculpture. 
 
 “Natalie?” Her assistant’s voice was only a gentle disruption. “These ladies and gentlemen with me are with the Pendlay Group, and they’re looking for a moment of your time.” 
@@ -24037,8 +22799,6 @@ Alona McCreary (Order #15311115)
 Impassioned Plea chimed in, his tone measured, despite the tension. “Please ma’am, I don’t think either of us stands to benefit from this posturing. If you’ll hear us out, I think you’ll find we have a proposal that could prove mutually beneficial.” 
 
 An elegant eyebrow crept towards the vampire’s hairline as she regarded the group. “All right. I’m listening.” 
-
-*       *       * 
 
 “You made a deal with a _what_ ?” squawked Adsila Coldeyes, the Wendigo leader of the Lake Sammish Sept. She fumed as she stood before the pack, daring them to meet her gaze. 
 
@@ -24090,8 +22850,6 @@ When an NPC makes tests, the NPC’s test pool is double its rating. For example
 ## NPC Specializations 
 
 Each Stock NPC has a number of _specializations_ equal to its rating. Human NPCs can only possess skill specializations. Supernatural and partially supernatural creatures can purchase a combination of skill and gift specializations. 
-
-611 
 
 Chapter Fourteen: allies and a ntagonists 
 
@@ -24147,8 +22905,6 @@ Jack Turner Police Officer
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-612 
-
 Alona McCreary (Order #15311115) 
 
 ## Recommended Attack Limits 
@@ -24193,8 +22949,6 @@ Human or Crinos-sized NPCs use the same mass combat rules as player-characters a
 - Shapeshifters should track Rage like their counterparts with full character sheets. See **Chapter Eight: Dramatic Systems, Rage** , page 376 for additional information about gaining Rage. 
 
 - A shapeshifter’s Rank is equal to its Stock NPC rating. 
-
-613 
 
 Chapter Fourteen: allies and a ntagonists 
 
@@ -24258,8 +23012,6 @@ to shield their caerns from the incursions of umbral storms and the agents of th
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-614 
-
 Alona McCreary (Order #15311115) 
 
 **
@@ -24298,8 +23050,6 @@ To create a Legend, use the same rules for creating standard werewolf player-cha
 
 Many Legend NPCs have used their sway with the spirits to create new, unique level 6 gifts. These gifts resemble the level 5 gifts that are already available, with small adjustments. Storytellers are encouraged to create a unique gift that matches the flavor of the specific NPC possessing it. To create a Legend level 6 gift, take a level 5 gift and make one of the following adjustments: 
 
-615 
-
 Chapter Fourteen: allies and a ntagonists 
 
 Alona McCreary (Order #15311115) 
@@ -24331,8 +23081,6 @@ The Mokolé speak of a time when the Dragon’s Dream will once again come to pa
 Although the Mokolé live in distinctly different communities from werewolves, they are nevertheless united in service of a common purpose. Mokolé have no tribes, as their numbers would not support such a division, and they do not create packs like Garou. Within the saurian breed, they are many species, from crocodile to Gila monster. Despite these differences, all Mokolé share the responsibility to act as Gaia’s memory, to record all that passes, and to hold what they learn within their ancesteral memory to pass it from generation to generation. 
 
 Although Mokolé do not form packs, they do organize themselves into familial-like groups called _clutches_ . These groups include Mokolé and kin alike, and often remain in one location. They are tasked with maintaining the memory of any given area. Only rare Mokolé wander between these locations in order to unite all of Gaia’s memory. A clutch often lives within a _wallow_ : a safe location for Mokolé to raise their young as they work to bolster their numbers. Clutches ally into four _streams_ , or places of origin, based on their geographical locations. While clutches and streams occasionally come together to assist with a particular danger, the Mokolé as a whole prefer to remain in their own insular groups. 
-
-616 
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
@@ -24371,8 +23119,6 @@ To create a Mokolé, use the same rules for creating standard werewolf player-ch
 - In Archid form, Mokolé have the same form benefits as Garou in Crinos form, except that the Mokolé gain a +8 bonus to their Brawl- and Melee-skill based attack test pools. If they have the Strength focus, that bonus increases to +10. 
 
 - The form benefits for Suchid form vary based on a Mokolé’s varna. The player may choose to use the Lupusequivalent form benefits from any two shapeshifter breeds. For example, a Mokolé player might decide to 
-
-617 
 
 Chapter Fourteen: allies and a ntagonists 
 
@@ -24430,8 +23176,6 @@ James Hart is a Professor of History at the University of Florida, and he specia
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-618 
-
 Alona McCreary (Order #15311115) 
 
 Alona McCreary (Order #15311115) 
@@ -24468,8 +23212,6 @@ To create a Gaffling, use the same rules for creating standard supernatural Stoc
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-620 
-
 Alona McCreary (Order #15311115) 
 
 Gaffling Bestiary 
@@ -24503,8 +23245,6 @@ The Hounds Gaffling – Servant of the Huntsman
 **Special:** Hounds have a test pool of 6 in most challenges. In challenges involving Animal Ken, Brawl, or Dodge, their test pool is 11. Hounds have access to the first three levels of Ahroun-affinity gifts. 
 
 The Hounds are servants of the Huntsman, a Jaggling, and often travel in packs of 10 or more. 
-
-621 
 
 Chapter Fourteen: allies and a ntagonists 
 
@@ -24544,9 +23284,6 @@ Gaffling – Element Spirits
 
 These spirits can manifest as any commonly found element, such as Air, Earth, Fire, Water, or rarer elemental representations such as Electricity, Glass, or Atomic. While these spirits are often minor Gafflings, they can also be found as Jagglings. 
 
-**
-## **Spirit Bans** 
-
 Spirits will sometimes require a _ban_ as part of an exchange with a werewolf. For example, a Garou may have to agree to accept a ban against killing small rodents in order to gain assistance from one of Rat’s brood. Garou may also voluntarily accept a spirit’s ban as a show of good faith and solidarity with a spirit she is petitioning for assistance. 
 
 If a Storyteller introduces a spirit into her game, she should know what its ban is, even if she believes it will never come into play. 
@@ -24555,8 +23292,6 @@ Garou who break a spirit’s ban after they have agreed to uphold it run the ris
 
 **
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
-
-622 
 
 Alona McCreary (Order #15311115) 
 
@@ -24610,8 +23345,6 @@ Jaggling – Servants of Luna **Stock NPC:** Rating 5
 
 Lunes are servants of Luna that appear as shimmering gold and blue lights. They communicate empathically with other spirits, and are quite fond of the Garou. They are intelligent and wise, though as mercurial as their mistress. 
 
-623 
-
 Chapter Fourteen: allies and a ntagonists 
 
 Alona McCreary (Order #15311115) 
@@ -24663,8 +23396,6 @@ Jaggling – Servant of Stag
 The Huntsman leads the Wild Hunt. The Wild Hunt is occasionally called by the Fianna, a manifestation of the rage and fury of the Garou. Those who participate in the Wild Hunt run the risk of being carried away with it. 
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
-
-624 
 
 Alona McCreary (Order #15311115) 
 
@@ -24719,9 +23450,6 @@ To create an Incarna, use the same rules for creating standard supernatural Stoc
 
 Although Incarna can be created using the Stock NPC rules, a fair amount of planning and thought should be put into the creation of one of these spirits. They should not be made frivolously or on-the-spot. Remember, each Incarna is a singular one of its kind. It is the defining spirit for its brood. Serious consequences should befall anyone who trifles with these powerful spirits. 
 
-**
-625 
-
 Chapter Fourteen: allies and a ntagonists 
 
 Alona McCreary (Order #15311115) 
@@ -24774,8 +23502,6 @@ The Great Trash Heap is an Incarna spirit that is often called on by those who a
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-626 
-
 Alona McCreary (Order #15311115) 
 
 ## **Incarna NPC** 
@@ -24815,8 +23541,6 @@ Animal Fathers
 ## **Health Levels:** OOOOO OOOOO OOOOO OOOOO 
 
 **Special:** Animal Fathers have a test pool of 20 in most challenges. In challenges involving Animal Ken, Awareness, Brawl, Dodge, Investigation, Lore, Stealth, or Survival, their test pool is 25. Animal Fathers have access to all Ahroun- and Ragabash-affinity gifts. Animal Fathers are the Incarna of animal spirits, and they are fiercely protective of their children. Different animal groups each have their own Animal Father. 
-
-627 
 
 Chapter Fourteen: allies and a ntagonists 
 
@@ -24872,8 +23596,6 @@ Each of these spirits claims an umbral realm as its personal territory. These um
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-628 
-
 Alona McCreary (Order #15311115) 
 
 To create a Celestine, use the same rules for creating standard supernatural Stock NPCs, with the following exceptions: 
@@ -24913,8 +23635,6 @@ Celestine – Realm of the Moon
 **Special:** Luna has a test pool of 60 in most challenges. In challenges involving any appropriate skills for the spirit, her test pool is 65. Luna has access to all appropriate gifts. 
 
 Luna is the Celestine that claims the Moon as her realm, a mercurial and temperamental creature whose whims change with the phases of her physical manifestation. She is often associated with insanity, and her personality changes drastically to reflect the auspices of Garou. She resides in the Aetherial realm of the Umbra, which some believe blends into the penumbral reflection of space. Luna is incredibly important to the Garou, and she blesses them with many gifts. This close tie to Luna is the reason werewolves are sensitive to silver. Luna is also especially fond of the Bastet, who know her in her aspect of Seline. 
-
-629 
 
 Chapter Fourteen: allies and a ntagonists 
 
@@ -24970,8 +23690,6 @@ Although Celestines are created using the Stock NPC rules, a fair amount of plan
 **
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-630 
-
 Alona McCreary (Order #15311115) 
 
 ## **Celestine NPC** 
@@ -25013,8 +23731,6 @@ Celestine – Realm of Pluto
 **Special:** Meros has a test pool of 54 in most challenges. In challenges involving any appropriate skills for the spirit, his test pool is 59. Meros has access to all appropriate gifts. 
 
 Meros is the Celestine ruler of the realm of Pluto. Known as the Wanderer, Meros is beloved by Silent Striders and Galliards, who can empathize with his wanderlust and the tales he tells on his journeys. Meros has learned many secrets in his travels. Those courageous enough to brave the ice-chilled world he inhabits may earn his respect enough to learn them. 
-
-631 
 
 Chapter Fourteen: allies and a ntagonists 
 
@@ -25061,8 +23777,6 @@ When creating any totem spirit, the first step is to determine what type of tote
 - **Totems of Cunning:** Totems of Cunning have become more popular in the Age of Apocalypse as Garou have been forced to change their tactics in the war. These totems focus on trickery and stealth, though there are Totems of Cunning who specialize in waging war in the modern age. While some werewolves feel these totems are untrustworthy, they have found a great deal of purpose in the Garou Nation today. Coyote, Fox, Cuckoo, and Raccoon are all well-known totems of Cunning. 
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
-
-632 
 
 Alona McCreary (Order #15311115) 
 
@@ -25113,8 +23827,6 @@ Caern totems also provide benefits to their followers; however, these are more l
 ## Finishing Touches 
 
 Once your totem spirit has been built, it is time to breathe life into it. These creatures are integral to the existence of Garou, and each should have a unique personality and appearance. Although these NPCs may not come into play every game session, they should make regular appearances within any given chronicle. 
-
-633 
 
 Chapter Fourteen: allies and a ntagonists 
 
@@ -25174,8 +23886,6 @@ Although Narwhal has the potential to be a relatively gentle and benevolent spir
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-634 
-
 Alona McCreary (Order #15311115) 
 
 ## **Sample Pack Totem** 
@@ -25223,8 +23933,6 @@ Incarna Totem of Respect
 **Totem Goals:** Quetzal believes that through honor and respect the Garou Nation may rise in glory. He hopes to foster this belief in other werewolves and inspire others. 
 
 **Special:** Quetzal has a test pool of 14 in most challenges. In challenges involving Dodge, Leadership, Melee, Subterfuge, or Survival, his test pool is 19. Quetzal has access to all Silver Fang- and Theurge-affinity gifts. Quetzal is proud and beautiful: a noble spirit who has the purest of hearts. Although he is a totem of Respect, he looks favorably on warriors and enjoys watching his children overcome their enemies in fair combat. 
-
-635 
 
 Chapter Fourteen: allies and a ntagonists 
 
@@ -25276,8 +23984,6 @@ Clashing Boom-Boom is a single-minded spirit bent on the destruction of the Wyrm
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-636 
-
 Alona McCreary (Order #15311115) 
 
 ## **Sample Pack Totem** 
@@ -25327,8 +24033,6 @@ Incarna Totem of Respect
 **Special:** Sphinx has a test pool of 20 in most challenges. In challenges involving Academics, Brawl, Dodge, Empathy, Investigation, Lore, or Occult, her test pool is 25. Sphinx has access to all Galliard-, Philodox-, and Theurge-affinity gifts. 
 
 Sphinx is strong and cunning, able to beat her foes in combat, either Physical or Mental. She chooses her children from those who excel at thinking on their feet. 
-
-637 
 
 Chapter Fourteen: allies and a ntagonists 
 
@@ -25382,8 +24086,6 @@ Danu is an ancient and powerful totem, once revered by the ancient Celts. She is
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-638 
-
 Alona McCreary (Order #15311115) 
 
 ## Caern Totem Bestiary 
@@ -25433,8 +24135,6 @@ Incarna Totem of War
 **Special:** O’Mighty Dolla’ has a test pool of 14 in most challenges. In challenges involving Awareness, Brawl, Dodge, Intimidation, Security, or Subterfuge, his test pool is 19. O’Mighty Dolla’ has access to all Glass Walker-affinity gifts. 
 
 O’Mighty Dolla’ is driven by greed and need, and by a desire to improve the Garou Nation through finances. His children are Glass Walkers, those who value monetary wealth, and those who are willing to use that wealth for the greater good. 
-
-639 
 
 Chapter Fourteen: allies and a ntagonists 
 
@@ -25490,8 +24190,6 @@ Mi-lo Fo fills his followers with feelings of tranquil peace, and he helps provi
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-640 
-
 Alona McCreary (Order #15311115) 
 
 ## **Sample Caern Totem** 
@@ -25541,8 +24239,6 @@ Incarna Totem of War
 **Special:** Elephant has a test pool of 16 in most challenges. In challenges involving Awareness, Brawl, Dodge, Intimidation, Leadership, or Lore, his test pool is 21. Elephant has access to all Ahroun- and Uktena-affinity gifts. 
 
 Elephant is majestic and powerful, and makes his enemies flee in terror at his sheer prowess. He is one of the sacred animals of Africa and Asia, and he is a popular totem spirit among the Uktena and Children of Gaia. Along with being a proud warrior, Elephant has a deep affinity for mystical powers. 
-
-641 
 
 Chapter Fourteen: allies and a ntagonists 
 
@@ -25604,8 +24300,6 @@ The Age of Apocalypse sees the Wyrm continuing to focus on the spread of destruc
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-642 
-
 Alona McCreary (Order #15311115) 
 
 of the Wyrm can be found in all corners of the earth, and it only continues to spread. For additional information on the function of Wyrm Taint, see **Chapter Eight: Dramatic Systems, Wyrm Taint** , page 384. 
@@ -25635,8 +24329,6 @@ Banes may be created at any spiritual power level, from Gaffling to Celestine, a
 - Any bane with a spirit-rank of Jaggling or higher has the potential to inflict Wyrm Taint on Garou who are within melee range of it. If a Garou is hit by or successfully hits a bane, she finds herself Wyrm-tainted. If this taint is not cleansed, it has the potential to corrupt a Garou (see **Chapter Eight: Dramatic Systems: Wyrm Taint** , page 384). 
 
 - Banes can be defeated and sent into slumber. However, permanently destroying one requires a Heroic Quest, in which Garou must assemble the necessary components for the task and defeat the bane in its home realm of Malfeas. 
-
-643 
 
 Chapter Fourteen: allies and a ntagonists 
 
@@ -25694,8 +24386,6 @@ Wyrm Elementals come in different types depending on the aspect of corruption th
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-644 
-
 Alona McCreary (Order #15311115) 
 
 ## **Stock Bane NPC** 
@@ -25732,8 +24422,6 @@ Fomori NPCs have access to _taint powers_ , a series of abilities that make them
 
 - **Hide of the Wyrm:** With this ability, a fomor possesses supernatural armor granted to her by the Wyrm. This may manifest as a hard carapace over her body or 
 
-645 
-
 Chapter Fourteen: allies and a ntagonists 
 
 Alona McCreary (Order #15311115) 
@@ -25763,8 +24451,6 @@ For every taint power that a fomor possess, she also possesses one _taint compli
 - **Social Pariah:** Pair this taint complication with one taint power. Whenever the formor uses that particular power, the fomor risks suffering a permanent loss in social acumen. After a scene in which she has used that power, she must make a Social attribute + Willpower challenge with a difficulty rating of 12. If she fails this test, her appearance takes on a monstrous mien, clearly marking her as a fomor. 
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
-
-646 
 
 Alona McCreary (Order #15311115) 
 
@@ -25812,8 +24498,6 @@ Jaggling Fomor **Stock NPC:** Rating 4
 
 Joannie Smith is a young college student who was taken over by a bane. She spends her time delving into the lore and myths surrounding the Garou, in hopes of finding additional means of fighting them. She is a remarkably intelligent researcher, and she avoids physical confrontation. 
 
-647 
-
 Chapter Fourteen: allies and a ntagonists 
 
 Alona McCreary (Order #15311115) 
@@ -25857,8 +24541,6 @@ Clementine is a child prodigy who was recruited by Pentex due to her excellence 
 Carl Wright is a middle-aged man who previously made a living as a wrestler. He willingly accepted the bane spirit that now inhabits his body and fused with his soul in exchange for promised wealth, riches, and colossal strength. He is strong and huge, and he works as a bruiser for the Wyrm. 
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
-
-648 
 
 Alona McCreary (Order #15311115) 
 
@@ -25904,8 +24586,6 @@ Alexander is a musical prodigy and socialite, and he uses his abilities and his 
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-650 
-
 Alona McCreary (Order #15311115) 
 
 ## **Stock Fomor NPC** 
@@ -25945,9 +24625,6 @@ Black Spiral Dancers believe the Wyrm’s imprisonment led to severe multiple-pe
 
 Some Storytellers may wish to allow Black Spiral Dancers as player-characters in a nontraditional setting. For more information on how a Storyteller might build such a custom setting, see **Chapter Ten: Storytelling, Crossover Settings: Antagonist Factions** , page 467. 
 
-**
-651 
-
 Chapter Fourteen: allies and a ntagonists 
 
 Alona McCreary (Order #15311115) 
@@ -25985,8 +24662,6 @@ There are no camps within the Black Spiral Dancers, as all members share the sam
 Twisted and hideous, the outward appearance of Black Spiral Dancers tends to mirror their inner depravity. Time spent 
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
-
-652 
 
 Alona McCreary (Order #15311115) 
 
@@ -26029,8 +24704,6 @@ _Your ears transform, growing larger, sharply pointed, hairless, and leathery. S
 ## **System** 
 
 Spend 1 point of Gnosis and a simple action to activate Ears of the Bat for one hour. While this power is active, your ears become large and bat-like, allowing you to fully 
-
-653 
 
 Chapter Fourteen: allies and a ntagonists 
 
@@ -26092,8 +24765,6 @@ Spend 1 point of Gnosis and expend your simple action to fill your mouth with a 
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-654 
-
 Alona McCreary (Order #15311115) 
 
 foul. For the next hour, when you successfully damage a target with a bite attack, she immediately becomes diseased. 
@@ -26138,8 +24809,6 @@ Your Balefire causes your target’s Wyrm Taint to increase two stages, instead 
 
 Your Balefire causes 3 points of aggravated damage per successful use, instead of 2 points. 
 
-655 
-
 Chapter Fourteen: allies and a ntagonists 
 
 Alona McCreary (Order #15311115) 
@@ -26183,8 +24852,6 @@ Angel was once a Black Fury, but she chose to join the Black Spiral Dancers. Unl
 **
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-656 
-
 Alona McCreary (Order #15311115) 
 
 ## **Sample Black Spiral Dancer NPC** 
@@ -26218,8 +24885,6 @@ She was present to see the birth of Green Dragon at the Trinity Hive, and she ha
 Births has been blessed by Green Dragon and gave birth to a child prophesied to play a major part in the Apocalypse. She has a long-standing rivalry with Charles Rex, for he assumed control of the hive she was destined to lead. 
 
 Chapter Fourteen: allies and a ntagonists 
-
-657 
 
 Alona McCreary (Order #15311115) 
 
@@ -26258,8 +24923,6 @@ Cadence is an Elder Black Spiral Dancer Galliard who has survived many years in 
 Rex is the son of a Silver Fang Elder who is highly respected in his sept. As his son grew, he came to resent his father and the fame that the man boasted. The pressures of living up to his father’s expectations were too much for Rex, and he set out to find a different way. In looking to stand out, he found a place where he could make his mark. 
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
-
-658 
 
 Alona McCreary (Order #15311115) 
 
@@ -26301,9 +24964,6 @@ Skin Dancers understand that there is strength in numbers, and that their unity 
 ## **Skin Dancers as an Antagonist Faction** 
 
 Some Storytellers may wish to allow Skin Dancers as player-characters in a non-traditional setting. For more information on how a Storyteller might build such a custom setting, see **Chapter Ten: Storytelling, Crossover Settings: Antagonist Factions** , page 467. 
-
-**
-659 
 
 Chapter Fourteen: allies and a ntagonists 
 
@@ -26357,8 +25017,6 @@ One of the skins sacrificed in your Rite of Rebirth ceremony bonded with you, pa
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-660 
-
 Alona McCreary (Order #15311115) 
 
 normally restricted to another tribe. You can purchase that gift as an out-of-affinity gift. This purchase doesn’t require a teacher to learn. This is an exception to the rule preventing werewolves from learning out-of-affinity tribal gifts. 
@@ -26409,8 +25067,6 @@ Stephen had a blessed childhood as a beloved son of the Shadow Lords. When he ma
 
 Caleigh was once a Child of Gaia kinfolk, who felt that she could take the fight to the Wyrm. Although she is no friend to the Garou Nation, she still fights the Wyrm, and the skins she took to undergo her Rite of Rebirth all came from Black Spiral Dancers. 
 
-661 
-
 Chapter Fourteen: allies and a ntagonists 
 
 Alona McCreary (Order #15311115) 
@@ -26460,8 +25116,6 @@ Pentex is a persistent enemy, and one that the Garou Nation can never hope to tr
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-662 
-
 Alona McCreary (Order #15311115) 
 
 ## Pentex Groups 
@@ -26509,8 +25163,6 @@ Karl is one of the foremost kinfolk among the members of the First Teams. He is 
 ## **Black Spiral Dancers** 
 
 Black Spiral Dancers may work closely with Pentex when their goals align. Pentex often disapproves of the Black Spiral Dancers’ violent urges, while the Dancers feel that they could win the war more quickly if they work directly against Gaia, rather than wading through the red tape that Pentex’s business requires. Despite their differences, Pentex calls on its allies among the Dancers when it needs a strong hand to handle a situation. 
-
-663 
 
 Chapter Fourteen: allies and a ntagonists 
 
@@ -26570,8 +25222,6 @@ Jensen is one of the leading researchers for Section 12. He spends a great deal 
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-664 
-
 Alona McCreary (Order #15311115) 
 
 ## **Sample Pentex NPC** 
@@ -26622,8 +25272,6 @@ Deep in the Umbra exist the most-feared of the Wyrm’s minions: _Nexus Crawlers
 
 Some Theurges believe that these nightmare monsters are not native to this reality, and that they have come from some other place. Although Nexus Crawlers have exhibited some level of sentience, their minds are alien and irrational. Often, even other minions of the Wyrm find themselves uncomfortable in the presence of these creatures, a fact that the Wyrm uses to its benefit. 
 
-665 
-
 Chapter Fourteen: allies and a ntagonists 
 
 Alona McCreary (Order #15311115) 
@@ -26653,8 +25301,6 @@ Nexus Crawler – Jaggling Wyrm Creature
 Nexus Crawlers have the ability to warp reality. For each point of Gnosis it spends, a Nexus Crawler can affect some aspect of reality. For example, spending 1 point of Gnosis allows a Nexus Crawler to shift the color of the sky. Spending 5 points of Gnosis permits a Nexus Crawler to throw its victim into a terrifying alternate reality, complete with dangerous inhabitants. 
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
-
-666 
 
 Alona McCreary (Order #15311115) 
 
@@ -26701,8 +25347,6 @@ Wyrm Creature
 **Special:** Blood Vines have a test pool of 4 in most challenges. In challenges involving Awareness or Brawl, their test pool is 9. When a Blood Vine is destroyed, it releases a pheromone into the air that those with Wyrm Affinity can easily sense. Anyone with Wyrm Affinity within one mile of a destroyed Blood Vine is able to smell the pheromone and follow its general direction to its source. 
 
 Blood Vines are often found in large groups, and they can be formidable foes when they attack en masse. 
-
-667 
 
 Chapter Fourteen: allies and a ntagonists 
 
@@ -26764,8 +25408,6 @@ Blood Vines are often found in large groups, and they can be formidable foes whe
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-668 
-
 Alona McCreary (Order #15311115) 
 
 ## Heart Eaters 
@@ -26791,8 +25433,6 @@ Wyrm Creature
 After making a successful Physical attack, a Heart Eater can poison her target using her Poison Tumors taint power. Additionally, Heart Eaters share the following ability: they can mask their Wyrm-tainted nature by wrapping themselves in the aura of either the Wyld or the Weaver. This power does not completely mask Wyrm Taint possessed by a Heart Eater, but it does overpower it. Garou may still attempt to sense a Heart Eater’s Wyrm Taint by using the gift Sense the Balance. 
 
 Heart Eaters are often used specifically to target kinfolk. They take over the mates or children of Garou, both for the information they may already have about a sept and its defenses, as well as for the opportunity to wreak more suffering before abandoning a Garou to the misery of finding a dead family member, devoured by the Wyrm. 
-
-669 
 
 Chapter Fourteen: allies and a ntagonists 
 
@@ -26828,8 +25468,6 @@ After making a successful Physical attack, a Heart Eater can poison her target u
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-670 
-
 Alona McCreary (Order #15311115) 
 
 ## Skull Pigs and Voodoo Pigs 
@@ -26853,8 +25491,6 @@ Specializations: Brawl, Dodge, Gifts: Ahroun, Intimidation, Survival **Gnosis:**
 **Special:** Skull Pigs have a test pool of 10 in most challenges. In challenges involving Brawl, Dodge, Intimidation, Stealth, or Survival, their test pool is 15. Skull Pigs have access to all Ahroun-affinity gifts. 
 
 Skull Pigs often travel in packs, making them difficult foes. The flesh of the Skull Pig is toxic and dangerous to anyone who bites them. Anyone who successfully bites a Skull Pig is poisoned with a virility rating 15 toxin. For more information, see **Chapter Seven: Core Systems, Health and Damage, Damage Types, Drugs and Poisons** , page 350. 
-
-671 
 
 Chapter Fourteen: allies and a ntagonists 
 
@@ -26887,8 +25523,6 @@ Thunderwyrms pose a unique threat to the Garou, because they are massive creatur
 The Wyrm has many uses for these gigantic beasts. They carve out large sections of earth as secret bases for other minions, and they can be used to destroy even the strongest defenses. The most intelligent of these creatures are even known to create massive labyrinthine lairs that connect to natural cave systems, sleeping with their jaws wide. Many an unfortunate soul has found herself exploring the depth of a Thunderwyrm’s stomach instead of the caves and caverns she expected. 
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
-
-672 
 
 Alona McCreary (Order #15311115) 
 
@@ -26948,8 +25582,6 @@ are able to shift into Crinos form. When in Crinos form, they have the same bonu
 
 War Wolves are used by the Wyrm when muscle is required, but when the full force of Black Spiral Dancers does not need to be brought to bear, or when other creatures may be too noticeable. They use their mangy Lupus forms to appear as wild dogs or neglected pets and accompany other agents on dangerous missions. At their leader’s command, they can instantly shift into their Crinos forms and rain destruction down upon whatever hapless victims have incurred the wrath of the Wyrm. 
 
-673 
-
 Chapter Fourteen: allies and a ntagonists 
 
 Alona McCreary (Order #15311115) 
@@ -26998,8 +25630,6 @@ Zmei have the following attributes and abilities in common:
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-674 
-
 Alona McCreary (Order #15311115) 
 
 **
@@ -27031,8 +25661,6 @@ Shazear is completely immune to detection, mind-reading, or emotion-manipulating
 Shazear is the General of the Dark Brigade. He is a master infiltrator and manipulator, and loves to personally sow chaos in the homes of his targets before sending his minions in to finish the job. He knows the location of Illyana’s resting place, and he has the power to awaken her, possibly learning where their other siblings are entombed as a result. However, he fears that if his siblings were to discover that he remained unbound without assisting them, their vengeance would be terrible. Therefore, he has saved the option to free Illyana and the other Zmei as a last resort. 
 
 In serpent form, Shazear is the smallest of the Zmei, measuring only 40 feet long from tip to tail. His scales are a shimmering grey that reflects light like crystal. 
-
-675 
 
 Chapter Fourteen: allies and a ntagonists 
 
@@ -27074,8 +25702,6 @@ Hunters come in different creeds and castes. Some are born to families with cent
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-676 
-
 Alona McCreary (Order #15311115) 
 
 With the violence inherent in werewolves, those who choose to hunt Garou often band together to find safety in numbers. The Age of the Apocalypse and rising numbers of Lost Cubs have inspired even more hunters for Garou to try to avoid. More people have come to realize that monsters exist, and these humans are becoming increasingly dangerous to the Garou and their cause. 
@@ -27105,8 +25731,6 @@ Those who are truly faithful to their religion, even beyond the zealotry of beli
 - •• Any character with a True Faith rating of 2 or more can immediately identify any Garou, Fera, kinfolk, or Skin Dancers. Upon encountering one of these character types, she is filled with a feeling of uneasiness that recognizably indicates the presence of a supernatural being. This feeling is amplified when she encounters any creature that possesses Wyrm Taint. 
 
 - ••• A person with a True Faith rating of 3 or more is immune to all Mental and Social Garou gifts. 
-
-677 
 
 Chapter Fourteen: allies and a ntagonists 
 
@@ -27144,8 +25768,6 @@ Perhaps one of the greatest threats to the Garou Nation, outside of the Wyrm its
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-678 
-
 Alona McCreary (Order #15311115) 
 
 From state troopers to NSA operatives, these agents have access to all of the power and monetary backing that the U.S. government has at its disposal. 
@@ -27175,9 +25797,6 @@ Special Agent Nathan Linden Project Twilight Hunter
 **Special:** Special Agent Linden has a test pool of 8 in most challenges. In challenges involving Awareness, Stealth, or Subterfuge, his test pool is 13. In addition, Nathan has access to the following gifts: Sense the Balance, Jam Technology, Falling Touch, Marshal’s Vigilance, and Predator’s Insight. 
 
 Special Agent Nathan Linden joined the FBI after college. He was attacked and turned into a vampire ghoul shortly after joining the Bureau, and he discovered what truly lurked in the darkness. After his regnant was destroyed, he was sought out by other members of Project Twilight and was brought into their fold. He has joined an elite team of hunters who search for rogue Garou. 
-
-**
-679 
 
 Chapter Fourteen: allies and a ntagonists 
 
@@ -27231,8 +25850,6 @@ Sister Mary-Elise is the brawn to Father Jonas’ brain, and she spends her time
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-680 
-
 Alona McCreary (Order #15311115) 
 
 ## Vampires 
@@ -27263,9 +25880,6 @@ However, her Wyrm Taint also increases by one stage. Unlike most sources of Wyrm
 If a Garou drinks the Blood of a vampire who possesses a Path of Enlightenment merit, the Wyrm Taint gained from this act does not fade, and it must be removed after two weeks or one game session has passed. Usual cleansing methods, such as the Circle of Gaia’s Cleansing work normally to remove the taint after the time period has elapsed. As an exception to this rule, drinking Blood from vampires on the Path of the Feral Heart is treated as though the vampire did not possess a Path of Enlightment merit. 
 
 Garou and Fera are not immune to the blood bond. If a shapeshifter drinks from the same vampire on three different occasions, she becomes emotionally bound to the vampire’s will and is in her mental thrall. For more information, see **Mind’s Eye Theatre: Vampire The Masquerade, Chapter Seven: Dramatic Systems, Blood Bond** , page 295. 
-
-**
-681 
 
 Chapter Fourteen: allies and a ntagonists 
 
@@ -27309,8 +25923,6 @@ Cosmus has no love for Gaian Garou, and he has worked alongside Pentex on more t
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-682 
-
 Alona McCreary (Order #15311115) 
 
 ## **Sample Vampire Elder NPC** 
@@ -27352,8 +25964,6 @@ Toreador Camarilla Vampire
 Socialite and bon vivant, Shay Stuart is well-known for her poetry. She is a very old vampire; however, she refuses to give her exact age—it’s rude to ask a lady how old she is, after all. Fiercely dedicated to the Ivory Tower, Shay is always looking to enhance the Camarilla’s hold in the world. 
 
 The corruption and denegration of Garou has become an obsession for this elder vampire. Miniluv has come to hate werewolves for their devotion to Gaia and refusal to let the world burn. He has come to think of Garou as his special prey, taking exceptional delight in his varied attempts to corrupt them away from their sacred task. 
-
-683 
 
 Chapter Fourteen: allies and a ntagonists 
 
@@ -27405,8 +26015,6 @@ Although it is rare, some werewolves who fear death seek out a vampire and beg t
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-684 
-
 Alona McCreary (Order #15311115) 
 
 **
@@ -27429,15 +26037,9 @@ Abominations retain much of their appearance from before their Embrace; however,
 
 While Abominations retain both their werewolf and vampiric abilities, the drawbacks are massive. Once the Embrace is complete, an Abomination loses all of her connection to Gaia and to her former tribe. She can still access the gifts she had previously learned, including tribal gifts, but any new ones must be taught to her by a bane spirit. Additionally, an Abomination is fully blood bound to her sire, and she has all of the weaknesses of both vampires and Garou. She retains her tribal weakness and gains the clan weakness of her vampiric sire. 
 
-**
-## **The Embrace** 
-
 When a Garou is Embraced, she undergoes an excruciating change that often lingers for days or even weeks. The spiritual aspect of her personality fights the vampiric blood attempting to invade her body. Garou who are particularly powerful often find the experience blessedly brief, if extraordinarily painful. 
 
 The longer a Garou lingers on the cusp of life and death, the more likely she is to spiral into madness, as the vampiric blood takes over her body. 
-
-**
-685 
 
 Chapter Fourteen: allies and a ntagonists 
 
@@ -27468,8 +26070,6 @@ To create an Abomination, use the same rules for creating standard werewolf play
 - When an Abomination succeeds in damaging a Gaian Garou or Fera within melee range, the target becomes tainted by the Wyrm. If the taint is not cleansed, it begins to corrupt the Garou. For more information, see **Chapter Eight: Dramatic Systems, Wyrm Taint** , page 384. 
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
-
-686 
 
 Alona McCreary (Order #15311115) 
 
@@ -27506,8 +26106,6 @@ Silver Fang/Ventrue Abomination **Stock NPC:** Rating 4
 Karin was Embraced by her father, who was distraught at the thought of his child dying while he never aged. She survived the attempt and has thrived despite her new lot in life. She maintains a hatred for vampires, and she understands that any werewolf who encounters her will shoot first and ask questions later. 
 
 Akar-Neferu now believes that Gaia must already be dead and that her shell must now be destroyed to ease her passing into Duat. The Garou are only prolonging her death throes, torturing her spirit. This Abomination has a secret haven in Las Vegas and makes yearly excursions to disrupt the septs and sow discord. 
-
-687 
 
 Chapter Fourteen: allies and a ntagonists 
 
@@ -27546,8 +26144,6 @@ To create a fae, use the same rules for creating standard werewolf player-charac
 - A fae may choose to select the Gifts specialization (see **Stock Non-Player Character Generation, NPC Specializations, Gift Specializations** , page 612). 
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
-
-688 
 
 Alona McCreary (Order #15311115) 
 
@@ -27609,8 +26205,6 @@ Unseelie Fae Sluagh
 
 Marla is one of the Unseelie fae, a creature that lurks in the dark corners of the night. She is silent and stealthy, and has a knack for getting into places where she shouldn’t be. She isn’t evil by any means, but she eschews the courtly ideals of the Seelie fae. 
 
-689 
-
 Chapter Fourteen: allies and a ntagonists 
 
 Alona McCreary (Order #15311115) 
@@ -27657,8 +26251,6 @@ To create a mage, use the same rules for creating standard werewolf player-chara
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-690 
-
 Alona McCreary (Order #15311115) 
 
 pool of 10. They can spend up to 3 points of Quintessence each turn, and they automatically regenerate 1 point of Quintessence every 10 minutes. 
@@ -27684,10 +26276,6 @@ Order of Hermes Mage
 **Quintessence:** OOOOO OOOOO **Special:** Avery has a test pool of 10 in most challenges. In challenges involving Academics, Awareness, Lore, or Occult, her test pool is 15. In addition, Avery has access all of the Philodox-affinity gifts. 
 
 Avery is a young mage: a member of the Order of Hermes. She is a dedicated researcher, and she specializes in dealing with spirits. Although she doesn’t mean harm, she often crosses the Garou because the Umbra is not her native place, and she lacks the innate connection shapeshifters have with spirits. 
-
-**
-
-691 
 
 Alona McCreary (Order #15311115) 
 
@@ -27743,8 +26331,6 @@ Ruthless and powerful, Leon Storm is a mage of the Euthanatos order who focuses 
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-692 
-
 Alona McCreary (Order #15311115) 
 
 ## Wraiths 
@@ -27777,9 +26363,6 @@ To create a wraith, use the same rules for creating standard werewolf player-cha
 ## **Shapeshifter Souls** 
 
 When a shapeshifter dies, her spirit returns to the cycle of death and rebirth, awaiting its next incarnation. Some Garou choose to avoid this fate, becoming ancestor spirits and guiding their descendants and other shapeshifters from the different Tribal Homelands or other umbral realms. Due to the twin nature of spirit and material that makes up all shapeshifters, they do not become wraiths. 
-
-**
-693 
 
 Chapter Fourteen: allies and a ntagonists 
 
@@ -27859,8 +26442,6 @@ Creed is an angry ghost who hates what he’s become. Although he hasn’t quite
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-694 
-
 Alona McCreary (Order #15311115) 
 
 ## Distant Relations 
@@ -27883,8 +26464,6 @@ Fully prepared, Alexander carefully set down the winding trail. As he neared the
 
 Alona McCreary (Order #15311115) 
 
-*       *       * 
-
 Standing next to a rock formation at the base of the canyon, Grim “Scale Balancer” Grayson wiped beads of sweat from his brow. Removing his eyepatch, he carefully dabbed at the skin surrounding the socket with the cuff of his sleeve. The effort was a futile one, as afternoon heat showed no sign of abating, and the wound that rendered his eye inoperable stung. Forced to abandon his vehicle past the eastern edge of the canyon, the climb to the bottom had left him drenched in sweat. The tactical fetish hammer he carried hadn’t made the descent any easier, but he wasn’t about to be caught without it. The desert was no place for a Get of Fenris, but Grim was there with a purpose, though he hoped to finish his task as quickly as possible. 
 
 Earlier in the week, he had received word that Donnie “Snare Dancer,” a notorious fetish thief of the Nuwisha, had been seen in the area. Grim had been tasked with apprehending the coyote, who had helped himself to a collection of fetishes belonging to the Sept of the Steel Wings. The relics he had stolen were created by the Get of Fenris for their battles against the Cult of Jörmungandr, vampires devoted to bringing about the end of the world. With relations with the Fera in a delicate state following the onset of the Apocalypse, his tribe asked Grim to resolve the situation. Unlike most of the Fenrir Philodox, he was known for his restrained approach, which had earned him some measure of respect. Yet even his patience was running short after spending the past several weeks in what seemed to be a futile pursuit. 
@@ -27904,8 +26483,6 @@ The lean figure before him nodded, bound by primal urge and the laws of Renown t
 Any hope of further conversation ended as the sound of laughter echoed throughout the canyon. A lithe little man emerged from behind the nearby rock formation. “You wolves and your formalities. I bet you haven’t even figured out why you’re both here….” 
 
 Alona McCreary (Order #15311115) 
-
-*       *       * 
 
 Donnie “Snare Dancer” had spent the last several months putting it all together. Coyote had come to him in a vision and warned him of a baleful presence in the lands surrounding the canyon. For centuries, an ancient vampire had slept beneath the sands: a priest who had fallen out of favor with the rulers of the Toltec Civilization to the south. Fleeing destruction, he took the remnants of his followers north, where they fell into a deep slumber. 
 
@@ -27950,8 +26527,6 @@ There are two broad categories of influences: _Elite_ and _Underworld_ . Each in
 ## Influence Specializations 
 
 For every dot of influence that a character possesses, you must choose one category in which to specialize. These specializations help to define the nature of your character’s social network: the types of people who owe her favors and where she wields her subtle control. 
-
-699 
 
 Chapter FiFteen: inFluenCes and equipment 
 
@@ -28019,8 +26594,6 @@ _Kasia is an Athro Fianna with an Elite influence of 4. She wishes to attack Jac
 
 _If Kasia wanted to reduce Jacqueline’s Underworld influence by 2, she would need to spend 6 actions—2 more actions than Kasia possesses in a month. Therefore, Kasia cannot perform such an attack against Jacqueline’s Underworld influence, without help._ 
 
-700 
-
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
 Alona McCreary (Order #15311115) 
@@ -28058,8 +26631,6 @@ Players can work together to boost an influence up to a maximum level of 10. To 
 Boost actions cannot cross influence categories. You cannot spend Elite actions to boost a player’s Underworld influence and vice-versa. In addition, a character gains no benefit from using influence actions to boost herself. 
 
 All actions to boost an influence must be spent within the same month. Boosting a player’s influence lasts until the 
-
-701 
 
 Chapter FiFteen: inFluenCes and equipment 
 
@@ -28109,8 +26680,6 @@ _The workday’s hell when your 9-5 job is something more like 6-12: mountains o
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-702 
-
 Alona McCreary (Order #15311115) 
 
 By expending 1 influence action, you manipulate the system, acquiring expensive (and mostly legal) favors. You can alter government paperwork, “modify” incident reports, detain a human on trumped-up charges, cause a major police effort to investigate a locale or individual, gain a legal (registered) weapon, acquire falsified identification or other paperwork, or otherwise use the system to your advantage. 
@@ -28156,8 +26725,6 @@ By using 1 influence action, you arrange a situation with significant, long-term
 _Those with tremendous pull can shift culture and society on a wide scale, manipulating thousands of individuals through a chain of circumstance that begins and ends with their will. With this amount of influence, you can change the world in a significant and long-term manner._ 
 
 You can choose to have the results of your general influence actions applied to the entire region (typically a large state, a 
-
-703 
 
 Chapter FiFteen: inFluenCes and equipment 
 
@@ -28211,8 +26778,6 @@ By spending 1 influence action, you can smooth over inconvenient or embarrassing
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-704 
-
 Alona McCreary (Order #15311115) 
 
 disappear. Witnesses get paid off, news stories get squashed, alibis materialize, and Veil breaches simply disappear. 
@@ -28263,8 +26828,6 @@ After you’ve chosen the item’s equipment type, you may choose special qualit
 
 Characters cannot use two weapons or receive bonuses from anything but the weapon in their primary hand, unless 
 
-705 
-
 Chapter FiFteen: inFluenCes and equipment 
 
 Alona McCreary (Order #15311115) 
@@ -28309,8 +26872,6 @@ a quality slot. A weapon with this quality sells for three times normal value.
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-706 
-
 Alona McCreary (Order #15311115) 
 
 the weapon burns for 5 full turns, inflicting aggravated damage. While the weapon is on fire, characters wielding it suffer a -2 penalty to attack test pools. 
@@ -28349,8 +26910,6 @@ Unless otherwise modified by its equipment qualities, a _ranged weapon_ requires
 
 - **Automatic:** By expending 6 rounds of ammunition in a single burst, you can spray an area rather than targeting an individual. Choose up to three targets within three steps of each other. When targeting multiple enemies 
 
-707 
-
 Chapter FiFteen: inFluenCes and equipment 
 
 Alona McCreary (Order #15311115) 
@@ -28387,8 +26946,6 @@ with this quality—up to three targets—you must make a separate opposed chall
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-708 
-
 Alona McCreary (Order #15311115) 
 
 **
@@ -28420,8 +26977,6 @@ Unless otherwise modified by its equipment qualities, _protective gear_ , includ
 - **Hardened:** This type of protective gear applies a +3 bonus to your defensive test pools when resisting Brawl, Melee, or thrown weapon Ranged attacks. Further, it applies a +1 bonus to your defensive test pools when resisting firearms Ranged attacks. 
 
 - **HazMat:** This quality indicates that the equipment is specifically designed to shield against a certain type of hazardous environment. When you create this armor, choose one perilous circumstance, such as heat, methane gas, or deep-water pressure. While wearing this gear, you are protected from this type of environmental hazard. (Storytellers should use common sense as to the limitations of this quality.) Note that HazMat gear isn’t designed for combat use. If you are successfully hit with a piercing or slashing attack, such as those from bullets, claws, or swords, the HazMat protection stops functioning until the gear is repaired. 
-
-709 
 
 Chapter FiFteen: inFluenCes and equipment 
 
@@ -28457,8 +27012,6 @@ _Miscellaneous gear_ is non-combat equipment that can be used in other types of 
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-710 
-
 Alona McCreary (Order #15311115) 
 
 - **Streamlined:** This piece of equipment is optimized to perform its function faster than most tools of its type. When using this item for its intended purpose, you can use a simple action to perform a test that would ordinarily take a standard action to complete, or you can finish a downtime action task in half the time the task would ordinarily require. 
@@ -28469,22 +27022,9 @@ Alona McCreary (Order #15311115)
 
 - **Superior:** This piece of equipment gives you a +1 wild card bonus to your test pool when used for its intended purpose. For example, a Superior set of lock picks gives you a +1 bonus when using the Security skill to pick a lock. A Superior computer gives you a +1 bonus when performing any standard Computer skill challenge. You cannot benefit from the Superior quality if you do not have the appropriate skill to use this item. This quality may be applied multiple times to a single item. 
 
-**
-**
-
 Alona McCreary (Order #15311115) 
 
-**
-
 These are some examples of simple equipment that can be found in the World of Darkness. By expending the appropriate downtime actions, crafting, or otherwise taking reasonable effort, a character can acquire one of these items. 
-
-**
-
-**
-
-**
-
-715 
 
 Alona McCreary (Order #15311115) 
 
@@ -28534,8 +27074,6 @@ The act of attuning a fetish involves a period of prolonged meditation, during w
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-716 
-
 Alona McCreary (Order #15311115) 
 
 game sessions, but does not require a downtime action. Once attuned, the werewolf becomes aware of a fetish’s cantrips and qualities. For the purpose of a power’s function, the most recent person to have attuned with the fetish is considered its owner. 
@@ -28564,15 +27102,11 @@ Talens are created according to the following table. Additional information abou
 ||4|19|Complex Quest, DiffcultyRating1|1|4||
 ||5|22|Complex Quest, DiffcultyRating3|1|5||
 
-717 
-
 Chapter FiFteen: inFluenCes and equipment 
 
 Alona McCreary (Order #15311115) 
 
 Sample Talens 
-
-**
 
 _This concoction is a mix of wine and herbs used as part of Ancient Egyptian mummification rituals. Ingesting the talen causes the person who drinks it to be identified by the spirits of the dead as one of their own._ 
 
@@ -28624,8 +27158,6 @@ _This potent drink has become increasingly popular during Midwinter celebrations
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-718 
-
 Alona McCreary (Order #15311115) 
 
 ## Standard Fetishes 
@@ -28645,11 +27177,6 @@ Fetishes are created according to the following table. Additional information ab
 ||3|18|Complex Quest, DiffcultyRating2|1|3||
 ||4|22|Complex Quest, DiffcultyRating4|2|4||
 ||5|26|Heroic Quest, DiffcultyRating2|2|5||
-
-**
-**
-
-719 
 
 Alona McCreary (Order #15311115) 
 
@@ -28715,8 +27242,6 @@ _The Black Furies know that remaining unencumbered in combat is as important as 
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-720 
-
 Alona McCreary (Order #15311115) 
 
 ## Weapon Fetishes 
@@ -28747,8 +27272,6 @@ Weapon fetishes are created according to the following table. Additional informa
 ||4|25|Heroic Quest, DiffcultyRating1|2|4||
 ||5|30|Heroic Quest, DiffcultyRating3|2|5||
 
-721 
-
 Chapter FiFteen: inFluenCes and equipment 
 
 Alona McCreary (Order #15311115) 
@@ -28770,8 +27293,6 @@ To create a vessel suitable for a tribal weapon, its creator must have a weapon-
 
 **
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
-
-722 
 
 Alona McCreary (Order #15311115) 
 
@@ -28836,8 +27357,6 @@ _This sturdy quarterstaff is carved from an unknown dark wood, with an intricate
 ## **Level 4 Weapon Fetish** 
 
 **Created by:** Ronan Blake “Pardons the Sin” **Cantrips:** Bonded, Named **Qualities:** Masterwork, Reach, Trip **Fetish Qualities:** Pacifying, Unbreakable **Attuned to:** 
-
-723 
 
 Chapter FiFteen: inFluenCes and equipment 
 
@@ -28923,8 +27442,6 @@ _The Klaive known as Killer Banes was forged in preparation for dire battles dur
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-724 
-
 Alona McCreary (Order #15311115) 
 
 ## Owl’s Cleansing Talon 
@@ -28996,8 +27513,6 @@ _Forged during the Age of Man, the wielders of Silver’s Promise are destined t
 ## **Level 4 Weapon Fetish (Klaive)** 
 
 **Created by:** Unknown **Cantrips:** Anonymous, Ceremonial, Epic (Honor) **Qualities:** Brutal, Deadly **Fetish Qualities:** Aggravated, Forceful, Painful **Attuned to:** 
-
-725 
 
 Chapter FiFteen: inFluenCes and equipment 
 
@@ -29089,8 +27604,6 @@ _Where this Grand Klaive goes, death has always followed, granting it the name i
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-726 
-
 Alona McCreary (Order #15311115) 
 
 ## Guardian Stance 
@@ -29128,8 +27641,6 @@ or solidified shadow are within the realm of possibility, provided they’re com
 - **Hexing:** Imbuing an item with this cantrip turns it into a weapon capable of delivering a powerful curse. You can use the fetish to make Hexing Attacks, inflicting its qualities with every successful attack. (See **Fetishes: Weapon Fetishes, Hexing Attacks** , page 721). 
 
 - **Named:** The fetish bears an unalterable mark of its identity: either its own name or that of its owner. The specific mark cannot be counterfeited, making the item easily identified. If the fetish is taken from its owner through the gift Taken the Forgotten or a comparable mind-altering power, the owner 
-
-727 
 
 Chapter FiFteen: inFluenCes and equipment 
 
@@ -29170,8 +27681,6 @@ When purchasing qualities for talens, choose from the following list:
 - **Restorative:** You can devote additional talen points to this quality. For each talen point you dedicate, this item heals 1 point of normal or aggravated damage when activated. This quality can only be activated once per hour. 
 
 - **Warded:** When this talen is created, choose a single combat maneuver. When activated, this talen negates the effects of a single successful combat maneuver used against you, but not the damage the maneuver would have caused. When calculating damage, apply any penalties that would normally occur. A user can only benefit from a single use of this quality once per hour, even between different fetishes and/or talens. 
-
-728 
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
@@ -29225,8 +27734,6 @@ When purchasing qualities for a fetish, choose from the following list:
 
 - **Divining:** During creation, the creator chooses a mundane substance or phenomenon, such as water, gold, or radiation. Abstract concepts such as truth 
 
-729 
-
 Chapter FiFteen: inFluenCes and equipment 
 
 Alona McCreary (Order #15311115) 
@@ -29266,8 +27773,6 @@ Hazmat, Impact Absorption, Nondescript, or Secure. The quality chosen cannot be 
 - **Negating:** When this fetish is created, choose a skill, such as Intimidation, Animal Ken, or Occult. When activated, this fetish negates the effects of a single successful opposed challenge of that type used against you. A user can only benefit from a single use of this quality once per game session, even between different fetishes and/or talens. 
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
-
-730 
 
 Alona McCreary (Order #15311115) 
 
@@ -29315,8 +27820,6 @@ When purchasing weapon qualities, choose from the following list:
 
 - **Devouring:** Targets struck by this weapon lose 1 point of Gnosis, Blood, Glamour, or another point of resource appropriate to their creature type. Should a target 
 
-731 
-
 Chapter FiFteen: inFluenCes and equipment 
 
 Alona McCreary (Order #15311115) 
@@ -29363,8 +27866,6 @@ If the item is satisfactory, the spirit still requires some form of chiminage: a
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-732 Alona McCreary (Order #15311115) 
-
 **
 ## **Fetishes and Misuse** 
 
@@ -29389,8 +27890,6 @@ _Rebecca has 2 dots of her Fetish background that are not yet assigned to fetish
 
 **Name: Description: Fetish Type: Created by: Cantrips: Qualities: Fetish Qualities: Attuned to:** 
 
-733 
-
 Chapter FiFteen: inFluenCes and equipment 
 
 Alona McCreary (Order #15311115) 
@@ -29402,8 +27901,6 @@ Alona McCreary (Order #15311115)
 **Name: Name: Description: Description: Fetish Type: Fetish Type: Created by: Created by: Cantrips: Cantrips: Qualities: Qualities: Fetish Qualities: Fetish Qualities: Attuned to: Attuned to:** 
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
-
-734 
 
 Alona McCreary (Order #15311115) 
 
@@ -29426,8 +27923,6 @@ Amy Dances-on-Pidgeons Clark Andrew “Min Carves-the-Path” Cummings Andrew an
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-736 
-
 Alona McCreary (Order #15311115) 
 
 ## Ark Reaper Aron Hoskins 
@@ -29442,8 +27937,6 @@ Christopher Earl Christopher J. Williams Christopher Krug-Iron Christopher Minch
 
 KicKstarter BacKers 
 
-737 
-
 Alona McCreary (Order #15311115) 
 
 Daniel Troncoso Daniel Utecht daniel wright Danielle Johnston, Gillian Twining and James Alston Danielle Roullier Danny Vigilante Darcey W. Darkuwa David “Explodey Boom-Boom” Stegbauer David and Patricia Fowler David C Allen David Mercer David Merriam David N Dow David Peters David S. Ongley David Tuner Dawn Blanchard, Bears the Storm’s Fury Dayton Gray Deathjester Studios Denis McBain Denise Hardin Dennis Appell Dennis Palmero Derek Kolbjornson, Wit of War, Twice Woven Strand, Homid, Get of Fenris, Philodox Derek the Bard Derek Thompson Derrick Joyner Jr. Devin & Linny Dhaunae De Vir Diana Lievsay director of awesome Doc Holliday Doc Paradox Doggybag Domain of Pending Doom Dominic Ciarrocchi Dominic Ribaud Dominik Božiković Don Cleary Doug & Steve Doug Atkinson Doug Cotton Douglas Alexander 
@@ -29456,8 +27949,6 @@ Fights-With-Fierce-Teeth Finland and Joan, of Gaia’s Teeth Fisher of Day’s L
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-738 
-
 Alona McCreary (Order #15311115) 
 
 Hieu “Tony” Nguyen Hiiro Quarasuma Howley McGee Hugh Montgomerie Ian “Howls Beyond the Veil” Sargeant Ian Maxwell Ian Wilson Igor ‘Burning Stare’ Comunale In Memory of Carol O’Bryan Indi Latrani Issar Ivan Zalac Izabel Noel Black J J and Kasi J D Chastain II J. Llewellyn Gravely J. R. Smith J. W. Bennett J.R. DeMello Jaap ‘Ijzeren Gordijn’ L. Jace Rodriguez Jack ‘The Seeker’ Noble James “Ashes on the Wind” Foster James “Shamus” Glass James and Sage James G King James R Cornforth James Schallert James Simons and Ashley Gee James Terry James W Smith II James ‘Walking Disaster’ Cross James Worley Jamie Wilkinson Jane Graugr - NoPointerException Jane Skau Jarok “MoonShadow” Talbot (John “King” Roberts) Jason “Jadasc” Schneiderman Jason & Julia Barnes Jason Andrew Jason Berteotti Jason Brandt Jason Clark Jason Goodwin Jason Lawes-Murphy Jason Orman 
@@ -29465,8 +27956,6 @@ Hieu “Tony” Nguyen Hiiro Quarasuma Howley McGee Hugh Montgomerie Ian “Howl
 Jason ‘Painslayer’ Jason Perez Jason W Brown Jason White Jay Page JAYSON “the14thguest” TURNER Jean-Paul Charpentier Jed Hickson Jeff brister Jeff Jameson Jeff wilson Jeffrey Pikul Jen “Loopy” Smith Jenn & Jon Palmer Jennifer “Zenduck” Lewis Jennifer Brazas Jennifer Fuss Jennifer Fuss Jennifer Hastings Jennifer M. Wolff Jennifer Marks Jennifer P. Wick Jennifer Ramon Jenny Telles Jeremy “Storm of Wrath” Miller Jeremy Nieman Jeremy Norton Jeremy Putman Jericho Johnson Jerry Willing Jess (Echo) Pestlin Jesse Nash Jesse VanSpyker-Maillet Jessi M. Rivera Jessica Dru Jessica Karels Jewel Jhaleen “Pinky” Brightwater Jim “Bleeds for the Weak” Spencer Jim “The Good Death” Weathers Jim Flood Jimi “Dances With Gaia” Hendricks Jimmy “10-96” Chmielewski Jimmy Reckitt Job “Drifter” Mason Joden Redbourne 
 
 Joe “Cetanwakuwa” Carron Joe Borawski Joe Terranova John “Blackjack” Kennedy John “Decker” Pool John “Son of Annwn” McAllister John “Wolfe” Kelley John Christensen John D. Gruber John DiPietro, Jr. - Scribe of Storms John Finkbiner John Morel John Paul Greene John Swinkels John Vescio John Woolley Johnathan Treaus Jonah Pasternak Jonathan “Hunts-Dark-Whispers” Perrine Jonathan “Woodsmoke” Slack Jonathan Felber Jonathan Pam Jonathan W. Jonathan Ware Jonathon Carter “Buzz Kill”, Elder Corax Homid, Alpha of Chicago Jonnathan Leeson-Machen Joppe Jordan “Little Metal Lunchbox” Mason Joseph “Mojo” Narvaez-Jensen Joseph Coons Joseph M. Beach Josh & Stacey Chaney Josh and Ryann Rambo Josh Board Josh DeVaney Josh Evans Josh Woodward Joshua “Matraus” Wagoner Joshua C Goebel Joshua Dixon Joshua Hailey Joshua Sigman JP “Exrandu” Bauer Julien O’Connor 
-
-739 
 
 KicKstarter BacKers 
 
@@ -29486,8 +27975,6 @@ Trebuchet Matt Blank Matt M McElroy Mattheau Fain Matthew Barrett Matthew Dimala
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-740 
-
 Alona McCreary (Order #15311115) 
 
 Michael Jacobson Michael Letsch Michael Romagano Michael Rosenblum Michael Silverlake Michael Smith, Get of Fenris Theurge Michael Stands-Ready Michael Trial by Fire Michael Zanfardino Michel Foisy Michelle Flamm Mike “Wolf Papa” Holland Mike & Aldea Boaz Mike Nash Mike Rilee Mikhail Kerrigan Millman Miranda Graves Miranda Rosenblum Mirgonael Mirko a. mitta Mischief the Ragabash Mizter Mofongo Molly Reed Moor Hound Morgan & Amber Godat MSU Role Playing Association Muçurana de Troca de Peles Muddy Paw Nathan (Shiro) Grainger Nathan and Erin Brown Nathan Marzolf Nathan Pulley Nathan Wetzel Nathan Whitestone Neeters & Scarabus Never Cry - Wendigo Philodox Nicholas D. Dragisic Nick “Tricks the Wyrm” Thompson Nick Brunskill Nicolas Villatte Nicole Porter Nifaust Nikika Giovanni Nilty Nimya no thanks 
@@ -29495,8 +27982,6 @@ Michael Jacobson Michael Letsch Michael Romagano Michael Rosenblum Michael Silve
 No-Verbal-Filter AKA Unfiltered - Corax Odin’s Bane OmNom NomNom Or Oz “Web Memory” Glass Walker Fostern Oubliette Owen “Oswald the Gurahl” Raine ParisRose Patric Thomas Patrick “Gaia’s_Trojan_Horse” Soloman Patrick “Stout” Gerrity Patrick “Yellow Behind the Ears” Hutchison Patrick Brown Patrick Chandler Patrick Collins Patrick Harron Paul Lukis Paul M Penn Davies Penz Strizer Pepper Percival Vincent Peri Llwyn Perry Lyons Pete Houtekier Pete K. Pete Woodworth Peter C Pherell Archer Phil Merrow Philippe “Sildoenfein” D. Phillip Gleason Phillip Hazlet Piggs Boson Piotr Piegat Pip Padden Porl Bowdler Praetor Canis Praxidikae Pumchu Qaletaqa Yas Mohingen Queen Moon-Moon Quinn “Once Bitten, Twice Shy” Werner R.J. Miller R’a.T.S. 
 
 Raina Wolfe Rainsong Ralph C. Lacy IV Randall Crawford Randy (Marphos) Burkhart Randy A Duncan Jr Raven Michelle Meyers Ravnos Phantom Ray Heyberger Raye Weaversong Rebecca Catan Rebecca Stoner Rebecca Talldeer / Glade’s Fury Reclaims that Which was Lost Red Bull Remwald Librod Renee Ritchie Reuben Ria Surface Richard Dold Richard May Richard Starkweather II Richard van den Heever Riley Crowder River Linthicum Rob Paul Robb Stone Robert C. Haas Robert Dowsett Robert Duff Robert Eichler ROBERT L SWAN Robert Norred Robert Tucker Roberto Hiroshi Kina Filho Robert-Sean Harley Robin MacAllister Roger Karoll Rohel Terrazas Rolf Bradley ‘Brawls-with-Bear’ Ron “Liza Lover” Edens Ron Martin Rory Chambers Rory Hughes Rosa Annasdottir, Fenrir Skald (Katie Harwood) Roshaun Heslin Ross Dencker Rowan Artemis 
-
-741 
 
 KicKstarter BacKers 
 
@@ -29510,8 +27995,6 @@ The Nikki Monstr The Players of Horizon The United States Army The Wolf who sing
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-742 
-
 Alona McCreary (Order #15311115) 
 
 Vladimir “Sascha Kilrov” Dzundza 
@@ -29522,15 +28005,7 @@ Wes Divin Wesley A McKeown Whiskey, Desiree and the Sept of the Vailed Valley Wh
 
 Wise in the Ways of Beast and Man Wolfen Dancer www.malkavianmadnessnetwork. com Xanny Peters Yi Sparrow “Carries Sorrow’s Burden” Zach Greggs Zachary Thomas Tyler, Uktena Galliard Earth Guide Zarker Zexuswolf Zin Raziel Zoe Cain 
 
-**
-**
-
-743 
-
 Alona McCreary (Order #15311115) 
-
-**
-## A 
 
 Abominations, 686 Appearance, 685 Creating NPCs, 685 Organization, 685 Player-Characters, 685 Weakness, 685 
 
@@ -29568,8 +28043,6 @@ Arcadia Gateway, **600** , 602. _See also_ Deep Umbra Mechanics, 597
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-744 
-
 Alona McCreary (Order #15311115) 
 
 Arcanum, the. _See_ Hunters, Arcanum Archetypes, 178 
@@ -29598,8 +28071,6 @@ Background Descriptions, 193. _See also_ Allies, Alternate Identity, Ancestors, 
 
 Backgrounds, 192 Character Creation, 192 Kinfolk, purchasing, 363 Losing, 192 Shared, 192 
 
-Banes, 643 
-
 Baptism of Fire, 542. _See also_ Rites 
 
 Bastet, 137 Alternative Forms, 140 Appearance, 140 Auspices (Pryio), 140 Breeds, 137 Cat Breeds, 139 Form Benefits, 140 Gifts, 247 Merits, 311 Organization, 140 Weakness, 141 
@@ -29626,8 +28097,6 @@ Appearance, 652 Creating, 656 Gifts, 653 History, 48 Merits, 653 Organization, 6
 
 Black Tooth, 55 Blinding Attack, 343 Blood Vines, 667 
 
-745 
-
 Index 
 
 Alona McCreary (Order #15311115) 
@@ -29637,8 +28106,6 @@ Bone Gnawers, 74 Appearance, 76 Auspices, 75 Breeds, 74 Gifts, 217 History, 74 M
 Breed, 33. _See also_ Affinity Homid, **33** , 180 Lupus, **33** , 180 Metis, **33** , 181 Overview, 33 Broken Lands, 604 Examples, 605 Fixing, 605 Bunyip history, 54 Burst of Speed, 343 
 
 ## C 
-
-Caern, 553. _See also_ Shard Caern Africa, 562 Asia, 560 Attributes, 569, **572** Bawn, 570, **573** . _See also_ Septs Challenge Mound, 568. _See also_ Septs Defenses, 569, **573** Destroying, 570, **577** Europe, 565 
 
 Generating, 569, **572** Geography, 568 Great Caerns, 554 Hall of Heroes, 568. _See also_ Septs Heart, **568** . _See also_ Septs North America, 555 Rating, 569, **572** Shard Caern, 571 South America, 558 Totem, 632. _See_ Totem, Caern Waystation, 568 
 
@@ -29655,8 +28122,6 @@ Character Concept, 178 Character Creation, 175 Background, 192 Quick-Start Guide
 Climbing. _See_ Movement, Advanced Collective Packs. _See_ Pack, Organization Combat, 339. _See also_ Mass Combat Actions, 339 Initiative, 339 Rage Rounds, 339, **341** , 378 Round, 339 Turn, 339 
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
-
-746 
 
 Alona McCreary (Order #15311115) 
 
@@ -29708,13 +28173,9 @@ Dark Umbra. _See_ Deep Umbra, Dark Umbra
 
 Dart Behind, 345 
 
-Death, 351 
-
 Deed names, 410 Remembrance names, 103 Deep Umbra, 597 Custom Realm, 602 Dark Umbra, 602 Geography, 597 Mechanics, 597 
 
 Defensive. _See_ Totem, Bonuses 
-
-Delirium, 18, **382** Amnesia, 383 Chart, 383 Definition, 24 Effects, 384 History, 38, **43** Recordings, 383 
 
 Democratic Packs. _See_ Pack, Organization 
 
@@ -29725,8 +28186,6 @@ Derangements, 328 Belief, 331 Creating, 328 Destruction, 330 Incapacitated, 330 
 Difficulty Rating, 334 
 
 Disarm, 343 Disgraced moniker, 424 Dishonorable moniker, 425 Disruptive Players, 486 Intentional, 488 Negative Metagaming, 487 Overly Competitive, 487 Rules Lawyers, 487 
-
-747 
 
 Index 
 
@@ -29794,8 +28253,6 @@ Firearms skill, 189 First Change, 360 Mechanics, 361
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-748 
-
 Alona McCreary (Order #15311115) 
 
 Flaws, 321. _See also_ Derangements Adding, 301 Character Creation, 177, **205** Overview, 301 Removing, 302 Repeated, 302 
@@ -29848,8 +28305,6 @@ Gift Affinity. _See_ Totem, Bonuses
 
 Affinity, 209, **210** Character Creation, 177, **204** , 209 Familiarity. _See_ Familiarity Fera, 209, **243** Focus effects. _See_ Focuses Gaze and Focus. _See_ Gaze and Focus General, 212, 213, **263** General, Chart, 212 Kinfolk, 363 Ladder, 210 Learning, **209** , 210, 211 Level 6, 615 Line-of-Sight, 214 Physical Attacks, 215 Rank, 197 Tribal, 209, **215** Using, **214** Using above Rank, 214 Glabro, form. _See_ Forms, Glabro 
 
-749 
-
 Index 
 
 Alona McCreary (Order #15311115) 
@@ -29899,8 +28354,6 @@ Interlude. _See_ Time
 Intimidation skill, 189 
 
 Investigation. _See_ Downtime Actions, Examples Investigation skill, 189 
-
-750 
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
@@ -29960,8 +28413,6 @@ Mental attribute. _See_ Attributes, Mental Merits, 301 Adding, 301 Affinity, 204
 
 Metamorphic Plague, 61 Metis. _See_ Breed, Metis 
 
-751 
-
 Index 
 
 Alona McCreary (Order #15311115) 
@@ -29971,8 +28422,6 @@ Mind’s Eye Theatre, 16
 Mokolé, 616 
 
 Monikers, 424 
-
-Greater, 424. 
 
 _See also_ Branded, Disgraced, General, Hunted, Ronin, and Champion 
 
@@ -30028,13 +28477,9 @@ Pocket Realms, 589. _See also_ Penumbra
 
 Project Twilight. _See_ Hunters, Project Twilight Prophecy of the Phoenix, 50 
 
-Props, 705 
-
 Psychic Numina. _See also_ Hunters, Project Twilight Punishments, 529. _See also_ Litany 
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
-
-752 
 
 Alona McCreary (Order #15311115) 
 
@@ -30076,8 +28521,6 @@ Resources, 198 Overtaxing, 199
 
 Resources background, 198 Beyond Your Means, 388 
 
-Rite of Acceptance, 368, 510, **546** . _See also_ Rites 
-
 Rite of Accomplishment, 546. _See also_ Rites 
 
 Rite of Accord, 542. _See also_ Rites 
@@ -30089,8 +28532,6 @@ Rite of Badger’s Burrow, 540. _See also_ Rites
 Rite of Contrition, 543. _See also_ Rites 
 
 Rite of Furrowed Earth, 541. _See also_ Rites 
-
-753 
 
 Index 
 
@@ -30122,13 +28563,9 @@ Rite of Wounding, 547. _See also_ Rites
 
 Rock, Paper, Scissors, **333** ,334. _See_ Challenges 
 
-Rokea, 169 
-
 Alternative Forms, 172 Appearance, 171 Auspices, 170 Breeds, 170 Form Benefits, 172 Gifts, 260 Merits, 315 Organization, 171 Weakness, 173 
 
 Roleplaying, 16 Definition, 359 
-
-Ronin, 510 Moniker, 424 Rank, 416 
 
 Round. _See_ Combat, Round 
 
@@ -30165,8 +28602,6 @@ Sept of the Hollow Heart, 558. _See also_ Caern, Surviving
 Sept of the Last Breath, 556. _See also_ Caern, Surviving 
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
-
-754 
 
 Alona McCreary (Order #15311115) 
 
@@ -30209,8 +28644,6 @@ Spirit Pact, 200 Spirits, 620. _See also_ Stock NPCs Celestine, 628 Gafflings, 6
 Staking. _See_ Pierce the Heart 
 
 Threats, 576 
-
-755 
 
 Index 
 
@@ -30280,8 +28713,6 @@ Changing, 69 Definition, 32 Kinfolk, 362 Overview, 69
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
-756 
-
 Alona McCreary (Order #15311115) 
 
 True Faith, 677. _See also_ Hunters, Inquisition 
@@ -30350,15 +28781,11 @@ Wraiths, 693 Creating NPCs, 693
 
 Wyld, 26 Origin Myth, 42 
 
-757 
-
 Index 
 
 Alona McCreary (Order #15311115) 
 
 Wyld Packs. Wyrm, the, 642 _See_ Pack, Organization Creatures, 665 Wyrm, 26 Wyrmfoe, 523 Origin Myth, 42 Authority, 524 **665** Renown, 524 
-
-Wyrm Affinity, 386, 643, **665** . _See also_ Wyrm Taint 
 
 Wyrm-Tunnels, 606 Closing, 606 Examples, 606 
 
@@ -30377,9 +28804,6 @@ Youngling moniker, 426
 Zmei, 674 History, 59 
 
 XP. _See_ Experience Points 
-
-**
-**
 
 Alona McCreary (Order #15311115) 
 

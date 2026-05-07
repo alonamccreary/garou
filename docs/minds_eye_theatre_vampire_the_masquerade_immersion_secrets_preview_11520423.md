@@ -5,8 +5,6 @@ World of Darkness: Berlin Preview Edition
 **
 All materials contained in this packet are protected by United States copyright law and may not be reproduced, distributed, transmitted, displayed, published or broadcast without the prior written permission of By Night Studios, LLC. 
 
-1 
-
 Immersion Secrets 
 
 ## Credits 
@@ -60,8 +58,6 @@ Visit White Wolf online at http://www.white-wolf.com/
 
 Visit By Night Studios online at http://www.bynightstudios.com/ 
 
-2 
-
 Mind’s Eye Theatre: Vampire The Masquerade 
 
 ## Berlin Teaser Introduction 
@@ -71,8 +67,6 @@ The foundation of live-action roleplaying is a healthy community where players f
 We are sharing three of these essays with you here at **World of Darkness Berlin** as a special preview, to thank you for sharing this convention weekend with us. The full version of **MET: Immersion Secrets** contains a total of 15 essays; the planned publication date is June 2017. 
 
 ## Table of Contents 
-
-3 
 
 Immersion Secrets 
 
@@ -105,8 +99,6 @@ The OK Check-In performs several functions in a game’s safety culture:
 ## The Missing Player 
 
 While some LARPS are incredibly flexible and can adjust their direction immediately after a participant’s departure, players and Storytellers in other MET LARPs may feel as though this absence interrupts the game. Preparing for this possibility before game begins, and having a comfortable exit for the player prepared in advance, is a necessity. If we 
-
-4 
 
 Mind’s Eye Theatre: Vampire The Masquerade 
 
@@ -148,8 +140,6 @@ In almost any space, it should be possible to offer at least a few chairs in a c
 
 During this process, it is important to establish that no one should pressure the distressed person to talk about the reasons why they needed time. While wanting to help is natural, this dialogue may increase the anxiety the person may be feeling. If there is no immediate problem to solve 
 
-5 
-
 Immersion Secrets 
 
 or urgent medical situation, then allow the person to speak on their own time. Distressed players do not have to justify their lack of comfort. Assistants can communicate that they are willing to listen, but they should also offer other choices, like finding the person’s friends or a Storyteller. 
@@ -184,9 +174,6 @@ Both **Mind’s Eye Theatre: Vampire The Masquerade** and **MET: Werewolf The Ap
 
 Koljonen and Brown have presented together and separately on safety and calibration in LARPs at various conferences and conventions worldwide. 
 
-**
-6 
-
 Mind’s Eye Theatre: Vampire The Masquerade 
 
 ## Ritualizing the LARP Experience 
@@ -205,8 +192,6 @@ In game studies, scholars often refer to the mental and physical space of games 
 
 When engaged in liminal play through the lens of the character, the fictional reality allows participants some measure of freedom from responsibility for their incharacter actions, which is called _alibi_ . For instance, because the social contract for MET games often involves accepting that adult or “dark” content will emerge, LARPers often use the alibi of “in-character does not equal out-of-character” in order to distance their own actions from those taken during play. From the perspective of ritual theory, alibi is a way to delineate the difference between experiences that transpire within the liminal phase from those outside of it. 
 
-7 
-
 Immersion Secrets 
 
 Unfortunately, the social contract of alibi is not always sufficient as a means to transition smoothly between these states. Players can experience bleed, where emotions from their characters spill over into their mundane lives and vice versa. _Bleed-in_ occurs when aspects from the outside world affect in-game experiences, such as in-character romances developing due to out-of-character attractions, out-of-character disputes impacting in-character rivalries, and so on. Similarly, bleed-out happens when in-character emotions affect players out-of-character. Bleed is neither inherently positive nor negative, although players can perceive bleed as good or bad. For example, a player experiencing a sense of greater confidence after playing an influential role in a Vampire: The Masquerade LARP might consider such emotions “positive bleed.” Alternatively, a participant facing the dissolution of a friendship due to an in-character rivalry might consider this experience “negative bleed.” 
@@ -221,8 +206,6 @@ Certain group behaviors can intensify the potential for long-term bleed. For exa
 
 **
 **Figure 1:** _Diagram of the relationship between the social contract, magic circle, alibi, and bleed. Image by Mat Auryn._ 
-
-8 
 
 Mind’s Eye Theatre: Vampire The Masquerade 
 
@@ -247,8 +230,6 @@ Workshop play increases the transparency of the fiction, as players externalize 
 4. _Debriefing:_ Additionally, LARP groups can formalize the return phase through structured and informal _debriefing_ . Structured debriefing is a facilitated form of storytelling after a LARP, during which each participant is encouraged to share moments from the game that elicited strong emotions. Other players are discouraged from commenting or interrupting during this sharing process. The debrief practice tends to be serious in tone and focuses on emotional content, such as bleed. Debriefing is distinct from the _war story_ practice, during which players enjoy telling informal narratives about the game, often in a humorous or excited tone. Both practices help participants process the experience and transition to mundane life, but debriefing makes space for players to discuss the more complex and confusing emotions that may arise from bleed. Game critiques are discouraged within debriefing spaces, as are accusations toward players due to their characters’ actions. 
 
 5. _Direct Communication:_ When problems arise due to bleed or other game-related conflicts, mature direct communication between players – whether moderated 
-
-9 
 
 Immersion Secrets 
 
@@ -288,8 +269,6 @@ Brown, Maury and Benjamin A. Morrow. 2015. “Breaking the Alibi: Fostering Empa
 
 Dystopia Rising. 2016. “OK Check-In System.” _YouTube_ , December 5, https://www.youtube.com/ watch?v=W3EMLaJSfaE&t=2s 
 
-10 
-
 Mind’s Eye Theatre: Vampire The Masquerade 
 
 Harviainen, J. Tuomas, and Andreas Lieberoth. 2011. “The Similarity of Social Information Processes in Games and Rituals: Magical Interfaces.” _Simulation & Gaming_ (April 10, 2011). 
@@ -311,9 +290,6 @@ Montola, Markus, and Jussi Holopainen. 2012. “First Person Audience and Painfu
 Turner, Victor. 1995. _The Ritual Process: Structure and AntiStructure._ New York: Aldine De Gruyter. 
 
 van Gennep, Arnold. 1960. _The Rites of Passage._ Trans. M. Vizedom and G. Caffee. Chicago, IL: University of Chicago Press. 
-
-**
-11 
 
 Immersion Secrets 
 
@@ -344,8 +320,6 @@ Few players consider the out-of-game consequences of rumor-mongering. Players ca
 Storytelling is supposed to be a rewarding task, allowing you collaborate with the players in your **Mind’s Eye Theatre** game to create a shared story. When players focus on negative out-of-character aspects of game, that takes away time and energy from collective story-building. If the potential for players to air their grievances online on public venues exists, you essentially become “on call” for crisis management. Our community has lost many energetic Storytellers due to burn-out caused by social media negativity. 
 
 **Example:** _Your_ **Mind’s Eye Theatre: Werewolf The Apocalypse** _chronicle just had a combat-heavy game session. Several players meet up afterwards at a local restaurant in order to socialize. During this time, some grieve for the characters that died, while others try to piece together why so much PC death occurred. Rather than consider that misinformation may_ 
-
-12 
 
 Mind’s Eye Theatre: Vampire The Masquerade 
 
@@ -380,8 +354,6 @@ As the saying goes, “An ounce of prevention is worth a pound of cure”. You c
 A safe space is an environment that allows your players to voice their concerns without judgment. They may be emotionally invested in the **Mind’s Eye Theatre** game, and thus have strong feelings about what is going on and how they (and others) are being affected. Thus, a safe space must also allow players to be able to express those emotions without judgement or repercussions. 
 
 That said, there are a few things that a safe space _is not_ . First, it is not a place where players can expect to be placated. They may have strong convictions about what course of action you should take as a Storyteller—you are in no way 
-
-13 
 
 Immersion Secrets 
 
@@ -418,8 +390,6 @@ such as “I heard,” “I noticed,” or “I saw.”
 ## Why is this a Problem? 
 
 This question prompts your players to share their perceptions and opinions about what they observed. (“I think/feel this is an issue because….”) 
-
-14 
 
 Mind’s Eye Theatre: Vampire The Masquerade 
 
@@ -467,8 +437,6 @@ Keep your players informed about the expected response time for inquiry emails. 
 
 You have multiple avenues through which to continue conversations with your players. If both of you are comfortable discussing the topic solely through email, by all means do so. Sometimes, one or both parties may find it easier to communicate verbally. In those cases, feel free 
 
-15 
-
 Immersion Secrets 
 
 to discuss the matter over the phone, by video chat, or in person. Afterwards, send a summary email to the player to recount the discussion. This practice not only ensures that both parties are on the same page, but provides documentation to prevent any “he said / she said” down the road. 
@@ -496,8 +464,6 @@ Disciplinary issues need not be made public to the whole **Mind’s Eye Theatre*
 Our players are one of our best resources for identifying ways to help improve our Mind’s Eye Theatre LARPs. It is important for us to guide them to ways that they can constructively share their ideas or voice concerns. They can become our greatest detractors, but also our greatest advocates. If your players know that there are multiple ways to share feedback and that their voices will be heard, they are more likely to tell others within the MET game to use these tools. 
 
 **Jessica Karels** has over 15 years of experience in developing and supporting gaming communities. She held a number of global administrative positions in One World By Night (Admissions, Marketing, and Head Coordinator) before founding The Hidden Parlor in late 2015. She uses her code-geek skills to make web applications to streamline the adminstrative side of networked games. There is no truth to the rumor that she’s really a dragon in human form, even though she has a hoard of shiny things and gamer books (including a signed copy of _The Shining Host_ — the MET rules for **Changeling: the Dreaming** . 
-
-16 
 
 Mind’s Eye Theatre: Vampire The Masquerade 
 

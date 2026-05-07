@@ -38,8 +38,6 @@ Arne stands and wanders closer to the moot-fire, and sees the old storyteller ta
 
 Garou once I was, and my voice may not hold out in this chill.” Arne smiles. The man’s voice would carry through a blizzard. The Galliard arranges himself on the rock, pulls a chunk of wood from the fire, and scratches a glyph into it. Arne squints through the smoke and recognizes the “bear” glyph. He cocks his head in confusion, and then hears a nearby Garou hiss, “Gurahl.” He holds the charred wood above his head for the sept to see, and his voice harmonizes with the wind and crackle of the fire: “Let me tell you a story.” 
 
-• • • 
-
 The fire blazed skyward, and Krieger Wyrmfoe saw the moon bathed in its light. _Luna is awash in blood tonight_ , he thought, _as am I._ Then he lifted his head towards her and let out a howl of victory. He raised his arms towards the burning glade in triumph. In his right hand, he clutched a handful of teeth. In his left, he hefted the severed head of his foe. Tonight, and from now on, Krieger was immortal. Tonight, he had beaten the Death-Bear. 
 
 He strode away from the glade. His weary, bloodied body slowly slipped into its human skin. Krieger found he was limping slightly; the bear’s teeth had nearly severed his left leg at the knee, but he was almost completely healed. The minor cuts and bruises over the rest of his body were already closing, but the scar that would form on his leg would win him glory. He would wear it with pride. 
@@ -142,8 +140,6 @@ The beast stood higher than many of the trees in Krieger’s home sept. The chil
 
 By the time Krieger had recovered enough to give the anthem of war, the Gurahl’s claws had done their work. Blind with rage, Krieger tore into the bear’s flank, just as his packmates appeared from the night to join him. Krieger smelled children’s blood from the 
 
-**
-
 sand, Garou blood from the creature’s claws as it slashed Stone-Softens’ gut open, but something was missing. He released his grip on the bear and jumped back, barking for his pack to do likewise. 
 
 He had scarcely begun to give the order when one of the bear’s paws swatted him, casually, as one might flick snow off one’s shoulder. The mighty Silver Fang Ahroun found himself flung nearly a quarter mile, landing headfirst in a sand dune. Shaking himself, he raced back. 
@@ -183,8 +179,6 @@ Krieger Wyrmfoe and the Death Bear
 upon him. He pulled his uncle’s corpse from the sacred earth, opened its mouth, and squeezed the Gurahl’s heart over it. 
 
 The last bit of blood from the heart of the ChildSlayer dripped into his mentor’s mouth. Somewhere nearby, the owl screeched. But there was nothing Owl or his servants could do. 
-
-• • • 
 
 Brings-Life-to-the-Old-Tales paused. The night had become utterly silent. The wind hadn’t gusted since he began. The listeners huddled together, some with lips quivering in rage. The Child of Gaia Galliard who had begun the tale of the Gurahl had tears on her cheeks. Arne stared at the fire, without a thought, only the picture in his mind of Krieger trying to raise his mentor from the grave. 
 
@@ -246,8 +240,6 @@ Werewolf Storytellers Handbook
 |_Chapter Six: Odds and Ends_|_204_|
 
 Contents 
-
-**
 
 _[The art of the novel] happens because the storyteller’s own experience of men and things, whether for good or ill — not only what he has passed through himself, but even events which he has only witnessed or been told of — has moved him to an emotion so passionate that he can no longer keep it in his heart._ 
 
@@ -617,8 +609,6 @@ Not everything has to be shackled to the **Vampire** mythology, you know.
 
 Introduction 
 
-**
-
 _A tremor ran through the body of the terrifying creature, followed by another and another, until it was shuddering violently. After a minute a young female wolf was standing among the people in the clearing._ 
 
 - _“That’s Lena from Tambov,” someone said in Sasha’s ear,_ 
@@ -823,8 +813,6 @@ Not all those cubs survive. Some are lost to the routine problems of infant mort
 
 Overall, there is about one Garou per 500,000 people in areas relatively hospitable to werewolves. That’s presumably one-fifth the number of vampires and maybe twice the number of mages, for those looking for quick comparisons, but keep in mind that the different sorts of supernatural beings favor different environments. Vampires flourish in the midst of places that are painful and dangerous for werewolves, and vice versa. Mages cluster in their own communities, pursuing aims that seldom make sense to werewolves and in general staying out of werewolves’ way, just 
 
-**
-
 as sensible werewolves usually avoid hassling magicians unnecessarily. Unless you’re running the World of Darkness as farce, the supernatural communities don’t all share a block in some residential suburb, and indeed are likely not aware of each other at all except in the vaguest terms: “It’s good not to go stirring up trouble there, because you get trouble back.” 
 
 ## _The Implications_ 
@@ -970,8 +958,6 @@ So how many Garou holidays are observed? Hundreds, although most werewolves show
 ## _Introducing Religion_ 
 
 Too many avenues exist to adequately cover the introduction of religion into a storyline. The key is to use spirituality as a device for adding drama, flare, and depth to a story, rather than making oblique comparisons that come off as cliché and cheesy. It’s a Storyteller’s responsibility to understand, and help her players understand the beliefs that drive a particular character. Also impor- 
-
-**
 
 ## _An Often Thorny Subject_ 
 
@@ -1438,8 +1424,6 @@ acknowledgement of a lifetime of achievement and service — that’s Rank Five.
 As such, the attainment of Rank Six has nothing whatsoever to do with rules — it’s not about accumulating enough Glory, passing a certain kind of challenge or anything like that. It’s a matter of personal judgement on the Storyteller’s part. The existing guideline is quite simple: If you have to ask yourself if a character is worthy, he’s not. If there’s any doubt in your mind whether or not he has surpassed the mighty deeds of even the greatest Garou elders, he hasn’t. Only when there’s absolutely no question of the character’s legendary status should you consider letting him strive for the ultimate Rank. 
 
 The story of a character (or a _pack_ !) attaining Rank Six is, to be honest, quite possibly the most epic story you could possibly tell. Very little compares in terms of scale; even the esteemed Silver Pack is outranked by an elder of this magnitude. You may want to forgo the actual challenge to rise in Rank for such a story; after all, considering the nature of the deeds a character must have undergone to be worthy of consid- 
-
-**
 
 eration, any challenge might well be anticlimactic. If you do choose to make a challenge part of the process, make it truly memorable; a raid into the heart of Malfeas, the task of learning one’s own genealogy back to the days of the Impergium, or other such nighimpossible tasks. Break out your book of old fairy tales — this is where the mountains of glass, redirecting of rivers, and similar astonishing feats come into play. 
 
@@ -2037,8 +2021,6 @@ Not all _hengeyokai_ welcome the new arrivals with the same degree of enthusiasm
 
 The Hakken have little use for their cousins and would prefer to see the Stargazers kept on the margins of the Courts, if indeed they must belong at all; some argue that the Stargazers cannot be trusted to defend the Courts, considering their history with the Garou Nation. Since the Stargazers joined, Hakken have goaded each other into ever-greater displays of prowess and noble correctness, setting an impossible standard 
 
-**
-
 for werewolves unfamiliar with Beast Court ways. Every court with Hakken elders hosts very complex games of intrigue behind the scenes, with efforts to maneuver the Stargazers into situations where they must become disgraced. The Hakken would be perfectly happy to see the Stargazers wander elsewhere, anywhere else but the Courts. 
 
 The Hakken’s caution is doubled among the Khan, who have heard the ancient stories of other tribes of Bastet being slaughtered in the Wars of Rage. Though they are willing to accept new allies to fight alongside 
@@ -2048,8 +2030,6 @@ their own dwindling numbers, the tigers are a proud, proud race. Similarly, the 
 And the Kumo, it’s said, await the chance to welcome their new neighbors… properly. 
 
 Chapter One: The World of the Garou 
-
-**
 
 _Once again I lost myself in the moment, in the everlasting now of my wolf-life. It’s as though I live with a separate notion of time when I’m a wolf, in a perpetual present renewing itself constantly, and I have no concept of tomorrow or yesterday, no sense of a time other than the very night of my transformation. My whole memory is tied to the physical, the tangible objects of my desire. My only future is the hunger I feel that causes me to stalk._ 
 
@@ -2565,8 +2545,6 @@ Details matter when the characters are at home, too. How close is too close to s
 
 • **Werewolf** concepts provide neat fictional explanations of many real things. **Werewolf** is a game about hidden truths. There are forces at work that people (and most animals and plants) don’t know 
 
-**
-
 about. So you have a great deal of freedom to say “this aspect of the game world really accounts for this interesting thing I found in history or current affairs.” 
 
 One of the key features of an animistic world is that things exist on several levels. You as an individual person are yourself, and also a manifestation of the spirit of your community, and of your tribe, and of humanity. You partake of the spirit of your environment, sharing some part of your soul with the life and land and air and water around you. Other sorts of identification may also come into play. This means that an explanation based on something working a particular way because it’s part of one group doesn’t rule out the truth and relevance of explanations based on the thing belonging to other groups as well. 
@@ -2852,8 +2830,6 @@ While there are no hard and fast rules for roleplaying spirit encounters, the fo
 • **Don’t Be Afraid to Set the Scene** — Take a few minutes to place your characters in the proper context. Describe the surroundings in which the encounter takes place. Use words that create a landscape appropriate to your spirit. Once you’ve done that, your players should be ready to listen to what your spirits have to say. 
 
 Chapter Two: The Battlefield 
-
-**
 
 _“If we ever meet again, Hazel-rah,” said Dandelion, as he took cover in the grass verge, “we ought to have the makings of the best story ever.”_ 
 
@@ -3145,8 +3121,6 @@ The first story is a test for everyone involved. The characters are facing their
 
 A major caveat of this method is not to try everything on the list in one story. Pick and choose ele m e n t s that work nicely together, or create a nice contrast (how about 
 
-**
-
 characters to see if the concepts they dreamed up will stand against the rigors of roleplaying, and to see if those concepts are appropriate to the chronicle. The Storyteller is testing moods, themes, ideas, his own characters, and his storytelling and gamemastering abilities. The first story needs to have effort poured into it — it is, after all, the measuring stick by which every other story in the chronicle will be judged. 
 
 ## _Length and Breadth_ 
@@ -3399,8 +3373,6 @@ If ever there was a place for cinematic combat, this is it. Dramatic speeches ar
 
 During a long chronicle, a pack of Garou can make enemies in high places fairly easily. Powerful Wyrm- 
 
-**
-
 ## _Running the Apocalypse_ 
 
 While a final battle on such a grand scale is hardly necessary to have an exciting conclusion, it is admittedly hard to imagine the stakes any higher. What do you do if the characters decide to invade Malfeas and cut out the heart of the Wyrm? Or, what if you wish to bring the Final Battle raining down on their heads? 
@@ -3436,8 +3408,6 @@ You should have some questions for the players, as well, notably, “How did I d
 You may wish to take a break from Storytelling for a while. One of the other players might like a turn in the director’s chair, anyway, perhaps with a different game. Take the opportunity to participate in a chronicle, probably with some new appreciation for what both the players and the Storyteller must do. 
 
 Chapter Three: The Chronicle 
-
-**
 
 _Though the hero may win the day, it is his terrifying opponent who gives vitality to these tales. Monsters and dragons come in all shapes — and can, of course shift shapes at will… Evil may enter the world in the guise of a single creature, but its family multiplies quickly, and there is never an end to the trials of a true hero._ 
 
@@ -3965,8 +3935,6 @@ falsely represent their products, selling fake crab and other items as the real 
 
 • **King Breweries and Distilleries:** By secretly altering alcohol contents and launching an aggressive and successful ad campaign, King snares devoted new 
 
-**
-
 customers each successive generation. Even though the company publicly denounces underage drinking, most ads don’t feature anyone over 22 years of age. 
 
 • **Magadon, Incorporated:** After acquiring two other Pentex subsidiaries, Magadon is second only to Endron in size and profits. A giant in the pharmaceutical industry, Magadon has also expanded into cosmetics and medical supplies. Magadon’s sales tactics are aimed at young women in particular; products include diet pills, breast implants and so-called “permanent makeup” chemicals. 
@@ -4076,8 +4044,6 @@ While the fallen do indeed count the hopelessly insane and monstrously malformed
 Thus the subtlety of the Wyrm is perennial. Gaian Garou that fall to the Thrall of the Wyrm do so more often than not without even realizing what has happened. By the time they have danced the Spiral it is far too late. Rising from the mire and muck of a Hive’s pit, the misbegotten prodigals of Gaia’s Fangs embrace the whole of the Tellurian with new vision and enlightenment through the oily membrane that the Wyrm has slathered upon their souls. In some cases, entire packs fall to their own rage or pride, or in some cases, a combination of both. The fate of the White Howlers was a fate forged in subtlety, manipulation, pride and deceit. Corruption from within rather than from without is a formula that works for the Wyrm, and it is a weapon that the Black Spiral Dancers employ at every opportunity. 
 
 It is important to convey the horror of such a weapon when using the Black Spiral Dancers in a **Werewolf** chronicle. Planting the idea in the players’ minds that any werewolf, any pack, represents a potential for service to the Wyrm is vital to the horror represented by the fallen tribe. A character with the Allies Background, for example, might find that when she calls on a former pack mate that they are not at all what they once were and that they are, in fact, something much, much more. A character with the Nightmares Flaw may have recurring night- 
-
-**
 
 mares centered on her involvement in the complete massacre of the men of a colonial New England hamlet and the unnatural violation of the girls and women of the town as she laughs and watches. It may be revealed later to the character that one of her early American ancestors fell to the corruption of the Wyrm and betrayed the Kinfolk he was sworn to protect. 
 
@@ -4421,8 +4387,6 @@ This scenario sort of reverses the “New Neighbors” story seed. Here, the DNA
 
 Chapter Four: The Adversaries 
 
-**
-
 _In the middle of the journey of our life I came to myself within a dark wood where the straight way was lost._ — Dante Alighieri, _The Divine Comedy_ 
 
 ## _Werewolves in Historical Settings_ 
@@ -4639,8 +4603,6 @@ The war between the Uktena, Wendigo, and the European Garou finally ended with t
 
 Amidst this chaos, the Wendigo and the Uktena fought to protect their remaining caerns from the 
 
-**
-
 encroachment of European settlers and other werewolves. All the while they needed help to stop the Storm Eater, which was powerful enough to remold the entire Penumbra of the American West into a storm of its own creation. The desire to stop the Storm Eater won out in the end. 
 
 The struggle to win the West was one of epic proportions. Mix all the regular trappings of the West, outlaws, gamblers, gunfighters, and a horde of Storm Umbra twisted monstrosities and you’ve got a lot of material for a chronicle. **Werewolf: Wild West** covers this period in a detail and provides a good basis for adapting any time period to **Werewolf: The Apocalypse** . 
@@ -4692,8 +4654,6 @@ When the great stock market crash of 1929 occurred, it sent the world economy sp
 ## _World War II_ 
 
 It’s hard to understand today what World War II was like, although watching the first twenty minutes of _Saving Private Ryan_ isn’t a bad way to get in the mood 
-
-**
 
 for a chronicle set in the war. Hitler isolated England and rained terror and death down upon its citizens. Fascist governments ruled Europe with an iron fist. Stalin ground the bodies of Russian soldiers under the wheels of the German blitzkrieg in the hopes of slowing it down. These madmen took mass slaughter and raised it up a notch to genocide. May no one ever have to experience anything like the concentration camps again. Africa was in flames as the Axis fought the Allies. Japan ran over the rest of Asia. The United States remained caught up in isolationism until a Japanese sneak attack on Pearl Harbor destroyed the entire Pacific fleet. No one knew how the war would end, and the Axis could have won. 
 
@@ -4796,8 +4756,6 @@ As the Wyld unleashes its vengeance, hurricanes the size of the Atlantic form an
 The Garou may disintegrate into the predictable rounds of blame and recriminations… or they 
 
 Chapter Five: Breaking the Mold 
-
-**
 
 them back? How do their employers deal with spirit magic and real magical Gifts? As the werewolves rediscover the past, they may gain weaknesses to silver, but they also regain Gifts and fetishes. Also, no one said that the Wyrm and its lovely servants ever went away. 
 
@@ -4956,10 +4914,6 @@ The War of Rage may never have taken place. All of the Changing Breeds could be 
 Werewolves could be immortal. They may never age once they reach maturity, only finding death through battle. Garou could also continue their fight as spirits long after their bodies have fallen. 
 
 As Storyteller, you could increase the power level of all werewolves. Detect Wyrm could be a free 
-
-**
-
-**
 
 ## _Kami: Gaia Made Manifest_ 
 
@@ -5208,8 +5162,6 @@ inaudibly. He understands any language and can telepathically communicate his wa
 
 ## **Rage:** 4; **Gnosis:** 8; **Willpower:** 10 
 
-Health Levels: OK, OK, OK, -1,-1,-2,-2,-5,-5, Incapacitated 
-
 **Attack:** Branch Swat (Str + 1 bashing damage) **Bans:** Substance Ban (plastic), Thankless 
 
 **Image:** Arbina is a large maple tree with broad limbs and a wide-spreading crown of leaves. She makes her home in the Piedmont region of South Carolina where she provides shelter for small animals and numerous species of birds. 
@@ -5372,8 +5324,6 @@ The next session still stands out in my memory as one of the most intense rolepl
 
 **MASTER:** Would you sacrifice yourself to save a pack of wolves? 
 
-**LUCAS:** Yes. 
-
 **MASTER:** How about a family of humans? **LUCAS:** Yes. 
 
 **MASTER:** I turn the question to Mr Whitman. **WHITMAN:** No and no. 
@@ -5395,8 +5345,6 @@ Werewolf Storytellers Handbook
 **MASTER:** So the enemy is merely… misguided. **LUCAS:** Yes. 
 
 **MASTER:** Does that give us the right to kill them? Are you saying the Black Spiral Dancers are just ‘misguided’? 
-
-**LUCAS:** Um. Yes. 
 
 [By this point, I think he was trying to save his position on his father.] 
 

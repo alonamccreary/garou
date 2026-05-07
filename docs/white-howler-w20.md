@@ -1,9 +1,4 @@
-**
-**
-**
-**
-**
-By Jess Hartley 
+
 
 ## Credits 
 
@@ -33,8 +28,6 @@ Check out White Wolf online at http://www.white-wolf.com/ Check out the Onyx Pat
 
 **
 ## Table of Contents 
-
-**
 
 I have spoken of the history of my people, but that is much like telling the shape of a thing without speaking of its nature. We are more than our past, more than our present, more than whatever it is that will come upon the dawn. We are White Howler, and to know us is to know of our duty, our ways, our minds, and our hearts. 
 
@@ -583,9 +576,6 @@ Likewise, wood, leather, clay, stone, and bone were the most common materials fo
 
 Amongst the Garou of Caledonia, iron and obsidian blades would have been highly prized by those who preferred to fight with crafted weaponry. Armor, used as much for decoration or intimidation as for protection, would have been largely leather, with bone or thinly sheeted iron or bronze plates. Werewolf jewelry would likely have mirrored that of their Kinfolk: metal inset with gemstones, bone, or glass taken from their defeated 
 
-**
-## Coins 
-
 Despite having the metalworking technology to do so, Caledonians of this period did not mint their own coinage until well into the ninth century A.D. Their British neighbors to the south, however, began minting gold, silver, and bronze coins in the first century B.C. (mostly through their interactions with the Romans) and those Caledonii nearest to the southern borders adopted coin usage earlier than their northern cousins did. 
 
 Tribes that had sufficient interaction with the Romans or other trade-focused cultures were more likely to use coins in their interactions with them. In general, however, the pastoral economy vastly relied more on barter and trade within local communities on a day-today basis, rather than a coin-based internal economy or coin-focused economic industry with outsiders. 
@@ -1040,8 +1030,6 @@ _**White Howlers**_
 
 ## Rite of the Sacred Tattoo 
 
-**
-
 ## Rite of Sacred Art 
 
 ## Level Three 
@@ -1390,10 +1378,6 @@ of information, from Roman camps, Fianna caerns, and neighboring tribes’ settl
 
 _**White Howlers**_ 
 
-**
-**
-##  
-
 |Bruised|||
 |---|---|---|
 |Hurt|–1||
@@ -1424,10 +1408,6 @@ You woke on the river bank, body healed, but mind full of curiosity about the my
 **Roleplaying Hints:** You constantly look for meaning in the world around you, for signs and portents that others are too blind to see. You spend a great deal of time in the Umbra, seeking whatever elusive tidbit of wisdom might come from speaking with the spirits just beyond the next hilltop. Others often think you are slightly addled, but in truth, you have only so much time, energy, and attention. How much of that does something as mundane as eating, sleeping, or hunting truly deserve? 
 
 **Equipment:** White quartz pebbles, doe-skin bag 
-
-**
-**
-##    
 
 ##  
 
@@ -1469,9 +1449,6 @@ _**White Howlers**_
 **
 **Name: Breed: Homid Pack Name: Player: Auspice: Philodox Pack Totem: Chronicle: Tribe: White Howlers Concept: Eilish Elkdaughter** 
 
-**
-##    
-
 ##  
 
 ##  
@@ -1504,16 +1481,6 @@ _**White Howlers**_
 **
 **Name: Breed: Homid Pack Name: Player: Auspice: Galliard Pack Totem: Chronicle: Tribe: White Howlers Concept: Farwalker** 
 
-**
-|Bruised|||
-|---|---|---|
-|Hurt|–1||
-|Injured|–1||
-|Wounded|–2||
-|Mauled|–2||
-|Crippled|–5||
-|Incapacitated|||
-
 1 - Cliath 
 
 ## Monstrous Protector 
@@ -1533,12 +1500,7 @@ You do not travel far from your homelands to pursue those who would do your peop
 **Equipment:** Fang Dagger 
 
 **
-
-**
 **Name: Breed: Homid Pack Name: Player: Auspice: Ahroun Pack Totem: Chronicle: Tribe: White Howlers Concept: Monstrous Protector** 
-
-**
-##  
 
 ##   
 
@@ -1659,9 +1621,6 @@ _**White Howlers**_
 
 ##  
 
-**
-##    
-
 ##  
 
 ##  
@@ -1671,12 +1630,6 @@ _**White Howlers**_
 ##  
 
 ##  
-
-- **O O O O O O O O O O**  
-
-- **O O O O O O O O O O**  
-
-- **O O O O O O O O O O**  
 
 ##  
 
@@ -1700,9 +1653,6 @@ Strength(+2)_____ Strength(+4)_____ Strength(+3)_____ Strength(+1)_____ No Stami
 
 Difficulty: **6** Difficulty: **7** 
 
-**
-##  
-
 ##  
 
 ##  
@@ -1710,10 +1660,4 @@ Difficulty: **6** Difficulty: **7**
 ##  
 
 ##  
-
-**
-**----- Start of picture text -----**<br>
-
-**
-**----- Start of picture text -----**<br>
 

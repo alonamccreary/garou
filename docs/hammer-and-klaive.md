@@ -24,18 +24,9 @@ http://www.white-wolf.com; alt. games.whitewolf and rec.games.frp.storyteller
 
 PRINTED IN CANADA. 
 
-2 
-
 Hammer and Klaive 
 
-_4_ 
-
-**
-## _Contents_ 
-
 _Legends of the Garou: The First Klaive 4 Introduction: Wards & Weaponry 12 Chapter One: Objects of Worship (Fetishes in Society) 18 Chapter Two: Born in Vulcan's Fires (Fetish Creation) 40 Chapter Three: Pieces of Spirit (Sample Fetishes) 60 Chapter Four: Power Embodied (Legendary Fetishes) 110_ 
-
-3 
 
 Contents 
 
@@ -55,8 +46,6 @@ instead they called us out and told us to be ready for a fight, unless we liked 
 Eventually the prattle gets past my bullshit tolerance level, and 1 snap back out, "Alex, if you break my eardrums, I'll break your testicles. And right now, your rabbiting has pushed these things onto very thin ice. So I'd start working on shutting up, or guarding your nads. Now have I made myself perfectly clear?" I've never understood why this threat still works on us types. When we shuffle up to our big size, we ain't got any material worth speaking about anyway, and yet you try it on any boy with a fur on him and he still goes a little wobbly around the edges. The two-legged ones anyway, the dogs seem to get the whole idea about swapping bodies better, or maybe they're just not so worried about the threat. 
 
 Either way, it works a right trick on Alex, giving my ears some blessed respite and giving Little Oliver a giggle. Despite the name, Oliver's a girl. The name was given to her when she used to hang around pubs and 
-
-5 
 
 Legends of the Garou: The First Klaive 
 
@@ -89,8 +78,6 @@ Firetooth spoke, as he recoiled in horror. "Claws in the Still Night, tell me, c
 
 Hammer and Klaive 
 
-6 
-
 Claws in the Still Night had his heart made heavy, as did they all, but only he was brave enough to speak and act, "Look!" He pointed to the bushes and the trees and the silence. "Not a bird chirps around us. No insects scurry back and forth. No scaled or furred animals scurry in the grass, nor will even the snake come and lap at her blood. They know as we do — A blasphemy has been committed here. 
 
 "But!" He continued, his eyes filled of tears and heart made hard with resolve. "If we do not act now, many more will be committed. Gaia gave us noses to track with, so let us track. She gave us minds to be cunning with, therefore let us be cunning. And She gave us claws to strike with, and as such, let us avenge." And all his pack raised their heads and howled, for he spoke truth. 
@@ -116,8 +103,6 @@ And the Glade Child took Wind-Howl away to a river, where she washed herself cle
 The Glade Child spoke first, her words soft. Shame tinted her white cheeks pink. "I'm sorry I didn't do anything earlier." She whispered, "But I was scared. There were many of them, and only one of me." 
 
 Wind-howl looked at her with fury in her eyes. Rage tinted her cheeks red. "Six days." Her voice trembled and shook, and the anger of the Gaia poured 
-
-7 
 
 Legends of the Garou: The First Klaive 
 
@@ -147,8 +132,6 @@ So Wind-howl took her and made the Glade Child into the shape of a sword, using 
 
 She rose from the river, and again became as a warrior. And now armed with the First Klaive, she strode back toward the glade where she had been tortured. 
 
-• • • 
-
 I finished the tale and looked around a bit. Didn't notice that Alex's and Oliver's clappers hadn't left me since I did. Since no one was talking, I lit up a fag and waited. The Gytrash would be here soon, and then it would all come down to how well I could bluff. 
 
 Except, of course, the puppy dogs weren't about to let me enjoy a nice quiet cigarette. Alex broke the silence, "And?" 
@@ -166,8 +149,6 @@ Except, of course, the puppy dogs weren't about to let me enjoy a nice quiet cig
 That detail never fails to get the same reaction every time. They looked bloody appalled. 
 
 Hammer and Klaive 
-
-8 
 
 Oliver spoke up for the first time, "But... that's horrible, it is! She's raped for six days, escapes, and then there's no revenge or nothing, just she gets murdered? What's the point of a story like that? Don't rely on a klaive with a Glade Child in it?" 
 
@@ -196,8 +177,6 @@ the wall. "Still out there to be found, I suppose. You hear a lot of people talk
 Alex and Oliver got right to it. Being the uppity trouble-making bastard that he is, Alex went straight to Crinos. Really bloody bright in the middle of a city, but I weren't expecting the old bill to come snooping around in an old warehouse at this time of night. And if they did, we weren't planning on staying in London much longer anyway. Little Oliver showed some subtlety, being content with that strange bulked up human type. I just stuck in the threads I had on already. To pull this trick off, I was gonna need my brains and tongue around me, and staying human is usually the best way to approach that. 
 
 Gytrash arrived right on cue, letting the gates make that wonderful old creak big iron doors usually do on the twelfth chime of the clock. They're a big mob, eight of them all told. Although I expected that they'd probably have five of them stand back if we did get fighting. What Alex didn't understand is that the Gytrash aren't a dishonorable bunch, quite the opposite, what got us into this mess was that I stuffed up on my honor. What I was planning was also pretty dishonorable, really, but my idea of honor is picking the right fights, so this didn't bother me one bit. I stood well out front, about three yards from the other two, 
-
-9 
 
 Legends of the Garou: The First Klaive 
 
@@ -230,8 +209,6 @@ Adam opened his mouth a little, pondering. Eventually, he looked to his pack for
 
 "Likewise, Adam." Adam started yelling out to his pack, but I waited until they'd all left before I breathed a sigh of relief, only to have to deal with Alex's 
 
-10 
-
 Hammer and Klaive 
 
 Godforsaken screeching some more. He'd shifted back down to his usual ugly face to do it. 
@@ -245,9 +222,6 @@ blood over something as petty as this. She's better than that."
 And I left them both there. I knew they'd find me again, so I wasn't too worried. Went for a walk along the Thames and looked at the moon shining on the water. Sometimes when I do that, I think I can see the fire in the moonlight and the blood in the water. Sometimes, I even think the silver ripples are a blade, as beautiful as a Glade Child's name, and I reach out to take it. 
 
 But it's always only moonlight and water. 
-
-**
-11 
 
 Legends of the Garou: The First Klaive 
 
@@ -263,8 +237,6 @@ Fetishes can be so easy to forget, aren't they ? Gifts are the most noteworthy s
 But fetishes are the most prized and useful tools of Garou society. They are objects of art, elaborately decorated with drawings, carvings and glyphs that tell the story behind the tool's purpose, its owner, and its creation. An archaeologist finding these would be thrilled at the treasure trove of cultural information they would represent. 
 
 Fetishes are more than just the magic swords and wands of the werewolves. They don't exist in a vacuum, occurring spontaneously. They shape and are shaped by their culture, and are as much a window into their 
-
-13 
 
 Introduction: Wards and Weaponry 
 
@@ -341,8 +313,6 @@ stances, told by a Fianna who hates the Silver Fangs and knows, unlike his packm
 
 **Chapter One: Objects of Worship** examines the fetish's role in Garou society, in regards to each tribe, how different auspices favor different fetishes, and the politics of owning and passing on fetishes. Fera societies are also discussed, and the diseased grasp of the Black Spiral Dancers' upon their holy tools is also touched upon. 
 
-16 
-
 Hammer and Klaive 
 
 **Chapter Two: Born in Vulcan's Fires** takes an indepth look at the preparation that goes into the creation of a fetish, a process that can take years in some cases, This chapter also presents a set of optional rules for fetish creation, which the Storyteller and group may adapt if in the mood for a more drawn-out but detailed rules set forfetish creation. Finally, Chapter Two touches on some more unusual sorts of fetish design. 
@@ -362,9 +332,6 @@ _Magic and Religion_ by Andrew Lang likewise takes a strong look at the subject 
 _The Encyclopedia of Religion_ , edited by Mircea Eliade. Not only is this a fine resource for a whole host of issues in **Werewolf,** but volume 5 contains a fantastic section on the topic of fetishes, with extensive discussion of how they operate within societies. 
 
 _The Ultimate Encyclopedia of Mythology_ by Arthur Cotterell and Rachel Storm. Yeah, it's a coffee table book. It's also an excellent coffee table book filled with many, many mythological figures and objects from six different geographical locations. Better yet, it's filled to the brim with great pictures of statues and artifacts and pictures of weapons being hurled about in great wars. If you want visual or mythical inspiration, this is a great place to go. Not a few fetishes in Chapter Three were inspired by the pictures and words in this book. 
-
-**
-17 
 
 Introduction: Wards and Weaponry 
 
@@ -393,8 +360,6 @@ Depending on the stories surrounding the fetish, such visible badges of renown m
 
 Chapter One: Objects of Worship 
 
-19 
-
 its liberation. ("Is that what I think it is?" "Yes.") A Theurge who carries with her a fetish she created shows her wisdom every second it can be seen. 
 
 In short, a fetish is a visible, tangible symbol of the values the Garou hold in the highest esteem, and without such reminders, even an adren or an athro can be occasionally overlooked. (Until, of course, they choose to remind the overlooking individual of _why_ they are held in such high regard....) In fact, often those of such high rank are held in suspicion. If they really are so wise, why haven't they bound a friendly spirit to assist them in fetish form yet? If so glorious, why hasn't one been taken in battle? If so honorable, why can't they even handle a friendship with a small spirit? 
@@ -420,8 +385,6 @@ As a result, while fetishes do act as a status symbol within urban septs as well
 One aspect of urban-designed fetishes is that a surprisingly large number of them tend to be designed with human religious beliefs in mind. This happens for multiple reasons. 
 
 Hammer and Klaive 
-
-20 
 
 The first of these is camouflage. Objects disguised as ordinary tools or everyday items do not draw nearly so much suspicion, and if crafted well can pass the closest of mundane inspections without anything amiss. After all, it's not the object that is important, but the spirit inside it. So a set of Sanctuary Chimes may have the glyphs of Gaia and Luna hidden among fish designs and crosses. If the spirit does not object, no harm is done, and the fetish passes inspection much more easily. Garou often take advantage of the human tendency to focus on symbols they recognize before seeing ones they don't. 
 
@@ -486,8 +449,6 @@ Choosing the right person to receive a fetish is usually influenced by the wishe
 
 The largest group in current werewolf society is also a disproportionately large number of fetish users. Just as 
 
-23 
-
 Chapter One: Objects of Worship 
 
 tools are primarily a human institution, so are fetishes commonly a homid institution. This is partly straight biology (lupus grow up without the opposable thumbs necessary for most tool use) , but it's largely cultural. After all, a lupus Garou can easily shift to Homid, Glabro or Crinos to use a tool or (with somewhat more difficulty) just, shift their paws into hands. It's the familiarity with tools, rather than the ease of using them, that makes fetishes primarily the domain of homid Garou. 
@@ -525,8 +486,6 @@ Where Ragabash do value stealth is in the actual design of the fetish itself. If
 ## _Theurge_ 
 
 Almost the archetypal fetish user, a Theurge may well have any type of fetish. Weapons, fetish drums, no matter what the fetish is, the Theurge is expected to be the one to make it. As the auspice considered the rightful creators of fetishes, Theurges can often 
-
-24 
 
 Hammer and Klaive 
 
@@ -682,8 +641,6 @@ Despite all the large statues and webs, the smallest of the Changing Breeds does
 
 The most curious of the Fera have a fetish culture that on the surface seems similar to that of the Garou. Fetishes are regarded as the personal property of the 
 
-29 
-
 Chapter One _:_ Objects of Worship 
 
 Bastet owning them — hardly surprising given how individualistic the cats are — and the fetish is highly decorated and prized. But where the Garou see fetishes as spiritual artifacts, the Bastet see them as magical objects. Understanding the profound difference between the Garou and Bastet cultures is largely understanding the difference between the terms "magical" and the term "spiritual." 
@@ -718,8 +675,6 @@ The bear-folk are a wounded people, and so is their fetish culture. As a result,
 
 Hammer and Klaive 
 
-30 
-
 Supposedly, before the War of Rage, the Gurahl had a fetish culture the equal of any other Breed. The bears' generous nature with spirits allowed them to make great weapons and devices of legend. But when the War of Rage came, and the Gurahl took the brunt of it, the vast majority of these fetishes were either stolen or destroyed. Worse yet, the makers of these fetishes were destroyed, and thus the knowledge of how to create them was lost. 
 
 And that knowledge has never been regained. The tiny population of Gurahl means that a werebear aspiring to create a fetish simply doesn't have the chance to find an elder with the knowledge necessary to receive proper guidance. The only options she might have are to wildly experiment (and thus have sporadic success at best) or learn what little she can from a Gurahl parent or grandparent, if she has one. 
@@ -745,8 +700,6 @@ Once the fetish's level has been determined, the Storyteller may permit the play
 But remember that this rule effectively makes Mnesis two Backgrounds in one; if it fulfills all the duties of regular Mnesis _and_ is a source of free fetishes, it's rather unbalanced for the cost. Use this aspect sparingly, if you choose to use it at all. 
 
 Chapter One: Objects of Worship 
-
-31 
 
 example, if a massacre of Fera (though rarely Garou) were to occur in a swamp, then a Mokole might create a weapon to commemorate this and leave it hidden there. These fetishes are then brought forward by later dragons to more powerfully illustrate the story of the area (the Gumagan combine this with traditional song line storytelling to amazing effect). They also occasionally find practical use. 
 
@@ -788,8 +741,6 @@ Apart from designating those with many fetishes as master thieves (and therefore
 
 Chapter One: Objects of Worship 
 
-33 
-
 The exception to this rule is the Ratkin Blade Slave (or Warrior) aspect, which religiously creates fetishes of its own — Pain Daggers. Knives similar in function to Garou klaives, Pain Daggers are exceedingly personal objects of worship, frequently decorated with delicate carvings and drawings. Curiously, this means that many Blade Slaves don't buy into the status of those with many stolen fetishes. After all, if someone stole their Pain Dagger, they'd murder the bastard for doing so, not praise his cleverness. Others cheerfully accept a doublestandard, furtively guarding their Pain Daggers while dumping a klaive into their pile of loot — if the Garou were as serious about such things as they were, then the klaive wouldn't be in their loot, would it? 
 
 Other than the Pain Dagger, Ratkin fetishes tend to be wildly varied. The creatures of chaos either fully appreciate the irony of using Weaver techno-fetishes in their aims or they just really don't care. As a result, fetish pistols are happily employed alongside bone pointing, until they bring out the sacred projectile flying circular saws. Then it _really_ gets chaotic. And messy. 
@@ -823,8 +774,6 @@ And the Black Spirals do innovate, to a degree that would impress a (perverse an
 More uses for this fetish were discovered when they realized it was possible to break off splinters from 
 
 Hammer and Klaive 
-
-34 
 
 the Sadism Stick and use them to stake smaller animals with similar results. Soon, they took to torturing their victims by sticking splinters into rats, lizards or other small, burrowing animals. Then, after delicately opening the victim's stomach, they would simply insert the animal and stitch the victim back up. This torture was particularly effective against Garou, who would continuously heal the damage done and remain in wonderful agony until such time as they died of starvation or the animal found their skin (or another potential exit point) and removed itself. 
 
@@ -862,8 +811,6 @@ Banes don't need a hell of a lot of convincing to enter a fetish. In terms of fe
 
 Chapter One: Objects of Worship 
 
-35 
-
 point in forcing a Bane into a fetish when it will happily agree to do so for, perhaps, a simple taboo informing the user of just _what_ sort of suffering it would prefer to inflict, 
 
 At the same time, forcing a Wyld or Weaver spirit into a fetish would be just the sort of twisted logic the Black Spirals would adore (effectively turning the enemy back against itself), but the dangers are too great to ignore. Cursed fetishes work against the Spirals as surely as against anyone else, and in the end, they're a headache that no amount, of irony is worth. The Spirals recognize that, like any good kidnapper, they need to offer the carrot of eventual release, and as such, they usually only force enemy spirits into talens rather than fetishes. Sometimes they just kill the spirit after they use the talen, but more often they let it go to tell others about the ordeals it suffered, thus informing other spirits that they too will be let go. Spirits with such expectations require less torture than those without. 
@@ -893,8 +840,6 @@ To the Garou Nation, war is a very simple endeavor aimed directly at making the 
 By contrast, the Hengeyokai recognize two types of war. In "High War," there are limitations voluntarily accepted by both sides, making war into a pure demonstration of military might, rather than the actual practice. While soldiers most definitely die in High War (which is far from bloodless) the boundaries of acceptable actions are placed to avoid unnecessary death and bloodshed. This form of war is seen as honorable. The other form of war, called "Low War" recognizes no rules or boundaries. Any may be harmed, in any way possible. All that matters is the destruction of resistance from the enemy. This form of war is not seen as honorable. 
 
 Since generally human weapons are less deadly than the natural weaponry of the Hengeyokai, they are seen as the natural province of High War. Much honor is attached to them, and indeed the warriors of the Eastern shifters can frequently be seen proudly carrying such weapons. But by binding a spirit of war into one, they become more deadly than natural claws. This is doubly dishonorable — it not only disregards the honor of High War but falsely pretends to possess it. Fetish weapons are therefore inherently dishonorable, and someone who would proudly wear one (such as a Garou proudly wearing a klaive) indicates a sneering at the very concept of honor. 
-
-36 
 
 Hammer and Klaive 
 
@@ -942,8 +887,6 @@ When the stated date comes, the Zhong Lung places the fetish within his own dwel
 
 Hammer and Klaive 
 
-38 
-
 amongst all his other possessions. Often, the Zhong Lung makes non-fetish duplicates of the object and also places these in the room. The fetish is only distinguishable because it is placed somewhere notably incongruous. A set of wind chimes may be placed in a location that is clearly inaccessible to any breeze, or a wall hanging could clearly break the basic notions of _feng shui_ . The visitor should come, talk politely, find the fetish and leave with it, without mentioning it once. Those who ask where the fetish is are told it isn't ready yet, and will be ready in a month's time. Even worse than this is thanking the Zhong Lung for the fetish. Doing so invites the Zhong Lung to take the fetish from your hands, blow the spirit out from it, and break it in front of you, before bidding you a good journey home. While it is considered most proper to simply leave without comment, it is acceptable to thank the Zhong Lung for his hospitality instead. 
 
 The "future favor" is never forgotten, though. And with the Zhong Lung's generation spanning memory, those favors can be very far into the future indeed. It isn't rare to have a messenger approach and inform you that you owe the descendant of Chu ao Cheh a favor done for your great-great-great-grandmother. Rather uncommon, to be sure, but not rare. 
@@ -972,8 +915,6 @@ The Stargazers retain most of their tribal fetish culture, which is shockingly l
 
 Chapter One: Objects of Worship 
 
-39 
-
 **
 _The LORD said to Moses, "Speak to the Israelites and get twelve staffs from them, one from the leader of each of their ancestral tribes. Write the name of each man on his staff. On the staff of Levi write Aaron's name, for there must be one staff for the head of each ancestral tribe." ... The next day Moses entered the Tent of the Testimony and saw that Aaron's staff, which represented the house of Levi, had not only sprouted but had budded, blossomed and produced almonds._ 
 
@@ -986,8 +927,6 @@ Before you can make a fetish, the first question you need to answer is: "What is
 And inevitably, the taste these fetishes have is sour indeed. 
 
 Chapter Two: Born in Vulcan's Fires 
-
-41 
 
 Fetishes cannot be boiled down to such simple formulas. Many Garou see someone else carrying a fetish, and then try to make the same one, with a quick and ugly failure the result. They do not know the processes behind the scenes. No one sees the dances employed, or hears the words sung. These admirers do not know the sacrifices offered. In short, they don't know how it's done. After they try, they quickly work out that the recipe doesn't work. There's some elusive quality, a process that is not working. In a way, the method by which Garou teach the Rite of the Fetish is a disservice, because it's not a single ritual, but one eternally redefined, mutated, and adapted in order to create different fetishes. (And even, indeed, the same type of fetish.) 
 
@@ -1017,8 +956,6 @@ The first way to approach creating a fetish or talen is by examining the fetishe
 
 Hammer and Klaive 
 
-42 
-
 **
 The aid of a sept in this research is crucial. An elder Theurge who takes the time to instruct would-be fetish makers can be a godsend, providing a wealth of experience and knowledge in the best ways to approach the project: Which spirits would be best suited to do what you're attempting to do? How would you go about finding them? What tactics would work best toward convincing it to bond with the object? 
 
@@ -1031,8 +968,6 @@ leads can turn up useful information regarding approaches to fetish design. Such
 But sometimes the most useful supplies of information about fetish design are, surprisingly, Kinfolk, Having the ties to both human society (in the case of human Kinfolk) and Garou society, a good Kin network can ask around to find out about similar successful fetishes both within and even outside the sept. They can be open and up front with the creator (not usually a luxury one gets with Allies and Contacts), and can both discuss what the creator is trying to do and make common sense suggestions about how one might go about it. Many Kin are also excellent crafters, and although spirits tend to prefer vessels created by the fetish-wielder's own hand, a singular level of craftsmanship will make up for that personal touch. Some Kin have even been entrusted with the secrets of 
 
 Chapter Two: Born in Vulcan's Fires 
-
-43 
 
 forging klaives and other silver fetishes (a hazardous process for Garou), and these smiths might offer a perspective that many Theurges would miss. 
 
@@ -1068,8 +1003,6 @@ The first of these is that, for the most part, the creator is on his own. The de
 
 Hammer and Klaive 
 
-44 
-
 But fine, that's what the character signed up for. Anyone who sets out to wildly experiment is going to relish the surprise he gets when it all shapes out, however it does. But this leads to problem number two: finding a spirit with the same adventurous spirit. It's hard enough trying to convince a spirit to bind itself into a tiny object, sacrificing its freedom to serve you. But convincing it to agree to an experiment in which it doesn't even know what it will be doing is even more difficult. This is one of the reasons there are a number of "routine fetishes," such as those listed in the **Werewolf: The Apocalypse** main rulebook and in chapter three of this book. Even these aren't necessarily easy or formulaic to make, but both the Garou and the spirit have a fair idea of what is happening. Trust can be more easily formed and disagreements dissolved when both parties understand exactly what is happening. 
 
 Purely wild experimentation has the difficulty of going against the grain of animistic philosophy. There are a number of unwritten rules that influence how the spirit world works, but the main thing to remember is that spirits prefer tasks, homes, territories and even methods of amusement that they would consider "appropriate." A fox-spirit isn't the most appropriate match for a pistol, but it might consider entering a bow that's painted in bright colors that match its coat. It isn't the best spirit to call on for accuracy, but it might help a weapon strike from unexpected directions, emulating the fox's ability to surprise prey with a quick pounce. And if the Garou doesn't suggest anything of this nature, but simply asks it to get in the pistol and see what happens — well, the fox-spirit isn't really going to be convinced that it's the right spirit for the job, or that it will be able to express its vulpine nature through the resulting fetish. 
@@ -1093,8 +1026,6 @@ game and they're the stars, after all! But then, of course, the Storyteller ends
 First of all, hammer out exactly what the fetish is and does. Remember that only the most powerful of fetishes possess multiple powers, all others have one very specific purpose. A sword that bursts into sunlight upon contact with a vampire, doing double aggravated damage to it would be very powerful, but could conceivably still only be Level Four, especially if it acts as a regular sword to all other enemies. A sword that lights up with sunlight at any time, and does double aggravated damage to vampires when lit is definitely Level 5, because of its multiple powers. Add in the ability to do aggravated damage to creatures other than vampires and you're almost in the field of a legendary fetish. 
 
 Also consider the object itself and any care it might need. A razor-sharp leaf is a very cool concept for some games — it'd fit right into many hengeyokai games — but does the leaf maintain its hardness when it isn't activated? Does it need to be kept pressed to ensure that it isn't ripped? How should the owner care for the fetish during "downtime"? 
-
-45 
 
 Chapter Two: Born in Vulcan's Fires 
 
@@ -1124,8 +1055,6 @@ The Level of the fetish is not always important. If the character is creating th
 
 • If a fetish has enough versatility to be of use in a variety of situations, then it's probably Level Three or above. Fetish weapons at this level begin to have useful effects that make them often preferable to claws and teeth (such as the Fang Dagger) while non-weapon fetishes have uses that are universal enough to see a lot of use. (The Baneskin is a good example here. Track ing down one specific spirit is sometimes useful, but Garou run into Banes enough to make a Baneskin highly 
 
-46 
-
 Hammer and Klaive 
 
 attractive.) Creating and bearing a fetish of this level will earn you admirers seeking advice. 
@@ -1152,13 +1081,9 @@ The problem with commission work is that it will generally cost quite a lot. If 
 
 Chapter Two: Born in Vulcan's Fires 
 
-47 
-
 how well you want it made. The reason things in retail outlets cost so little is that they're factory made — getting just one is expensive. And while Garou or Fera may not demand money, it's almost certain there will be some sort of _quid pro quo_ involved. You might get something of a cost break if you're commissioning your work from someone related to you via a Background (particularly Kinfolk, Allies or Mentor). As a way of guiding their charges, some Mentors help out by making the physical object for a fetish, just as their mentors may have done so for them in the past — others may insist that their young charges do the work themselves, but they'll at least try to arrange for proper instruction. This doesn't mean that the Mentor won't ask for something in return, but since half the point is the character's education, it will be a much cheaper price. 
 
 And finally, you can go it alone and make it yourself. This has a whole host of advantages. Spirits tend to prefer a fetish made by the owner-to-be, because the creator has invested more in it and is 
-
-**
 
 can incorporate the decoration right from the beginning and craft a beautiful object as is. There's no risk of discovery from ugly influences, and you don't risk an artist forcing his own unwelcome interpretation on the object. There's only one drawback, even if it's a fairly large one — you need to know how to make it. A lot of good solid Craft ability is a must for going down this road, but the rewards for such effort mean that many would-be fetish creators work hard to improve their ability here. Some even begin to think it's part of the job description: You're not a fetish creator unless you create the fetish, every last bit. 
 
@@ -1196,8 +1121,6 @@ At the other extreme, the Wendigo purify themselves in total solitude and though
 
 Chapter Two: Born in Vulcan's Fires 
 
-49 
-
 Wendigo ties the prospective fetish to a branch on a tall tree with a long rope, then ties one of her hands at the other end. (Many make this easier by having someone else tie one end of the rope to their hand in advance.) When the sun fully sets, they slowly lower themselves and hang from this branch by the wrist, allowing the strain upon their body to focus their mind. As the sun rises, all pain washes from their body, and they cut the rope above the fetish and let them' selves fall. In this rite, the goal is the purification of the mind, not the body. 
 
 ## _Optional Rule: Preparing Oneself_ 
@@ -1225,8 +1148,6 @@ The arguments for making a spirit quest is mostly if the fetish creator doesn't 
 ## _Optional Rule: Contacting the Spirit_ 
 
 **System** : As with the Rite of Cleansing, this can be handled using the rules for the Rite of Summoning ( **Werewolf: The Apocalypse** , p. 161). Storytellers should probably not offer bonuses for this Rite; it's very 
-
-50 
 
 Hammer and Klaive 
 
@@ -1256,8 +1177,6 @@ This is what begins the majority of the Rite of the Fetish. The spirit denounces
 
 Chapter Two: Born in Vulcan's Fires 
 
-51 
-
 response, the creator attempts to prove the object's worthiness by words alone ("I sent this mighty blade hurtling from the heights of a great waterfall, and it has endured without a mark upon it! You are wrong, great spirit, this is worthy of your attention!") or by adding sweeteners to the deal. ("I still think you are wrong, but would you perhaps agree were I to ensure this warhammer was held by none but Ahroun like myself? You know that _true_ warriors will treat you with proper respect.") The spirit can also initiate negotiations and suggest ideas, ("It's a pathetic whistle. Besides which, I've still got business in destroying the cluster of Banes eating away at the Glade Children over to the east, and I couldn't do that if I was trapped in that whistle. Perhaps if someone else agreed to do it....") 
 
 The tussle continues back and forth with the ritualist praising the spirit and commending the object to it, and the spirit in turn denouncing it and insulting the ritualist. (Often very personally — some types of spirits, particularly wolverine-spirits, can be impressively scathing and/or crude!) This continues until finally, something occurs to break the cycle. 
@@ -1285,8 +1204,6 @@ relieved and joyous ritualist has earned themselves a lot of Wisdom.
 • Call to Duty (Level Two Philodox Gift, **Werewolf** , pg. 140) may be used as a supernatural edge within the Rite. A successful use of this Gift drops the difficulty of the Rite by one. However, unless the ritualist spends two Gnosis, they must know the name of the spirit they intend to use in the fetish. This Gift does not allow the Philodox to simply say "Get in the fetish;" that sort of thuggery tends to earn a welldeserved ass-kicking from the spirit. 
 
 • Clever persuasion can work to convince the spirit to enter a fetish, but then, that's exactly what the Rite of the Fetish is. Not a few spirits just ignore anything the ritualist says—Gnosis talks, and bullshit walks. Nonetheless, a well delivered speech or song can reduce the difficulty of the roll by one. The roll is 
-
-52 
 
 Hammer and Klaive 
 
@@ -1362,8 +1279,6 @@ Fetishes have incredible personal meaning to their wielder. For the creator, thi
 
 Without a doubt the most commonly named fetishes are weapons. Almost without exception, every fetish weapon among the Garou carries a name. Fetish weapons find a very powerful place within the Garou heart; they speak to the primal nature of the Garou as Gaia's Warriors, and once they've been used even once, few can resist seeing it as a living thing in its own 
 
-55 
-
 Chapter Two: Born in Vulcan's Fires 
 
 right. Hence, it's a rare day Garou talk of "a klaive," at least when referring to a specific klaive. They instead hear of Wyldburn, the Dragonblood Sabre and Balmung. A fetish's name may take almost any form, whether direct and to the point (such as the Black Spiral klaive Gutripper) or innocuously poetic (such as the House Wise Heart klaive Maidensong). Some fetish names may seem somewhat coarse (the Bone Gnawer fang dagger "Rusty's Shiv"), but there is always an undercurrent of respect. If a fetish knife possesses a name like "Smiley," it's likely a dark-humor reference to the sort of ear-to-ear smile that happens not along the face, but along the neck. 
@@ -1395,8 +1310,6 @@ But it is this advantage that makes it also exceedingly hated by many groups. Fo
 Nonetheless, the practice is still in use among some groups, primarily among some Children of Gaia septs and the Glass Walker camp known as City Farmer. Even then, most of the Children denounce it, as does half the City Farmer camp. 
 
 For their part, most spirits bound within a spiritbirthed fetish don't seem to mind, and remarkably few are cursed. Those who use the technique champion 
-
-56 
 
 Hammer and Klaive 
 
@@ -1436,8 +1349,6 @@ One unusual situation is that there genuinely _isn't_ much variation in how the 
 
 Chapter Two: Born in Vulcan's Fires 
 
-57 
-
 **Werewolf** universe remains the same for all the Changing Breeds. Each shapeshifter may take a different approach to placating the spirits, or may pursue different spirits to create different fetishes because of the different tasks they are called upon to perform. These variations in roles and societies certainly mean that a fetish has a different social significance among each shapeshifter society. But the actual way in which they are created remains remarkably similar among all of the Changing Breeds. 
 
 There are two theories that surround this basic truth. The first is that there is a single origin of the Rite of the Fetish, that one of the Changing Breeds came up with the idea and it has since spread to all the others. 
@@ -1465,8 +1376,6 @@ Generally, this is a good technique. Most spirits do appreciate the decorations 
 Perhaps the greatest problem this technique has is that, after a while, there's simply nowhere left to decorate and the fetish can quickly begin to look, in a word, tacky. Smart creators begin to replace decorations rather than simply add constantly. 
 
 Hammer and Klaive 
-
-58 
 
 ## _Cursed Fetishes_ 
 
@@ -1504,8 +1413,6 @@ The rite varies highly depending upon the breed performing it and the human cult
 
 **System** : The Rite of the Peacock is a Level Two Rite. The ritual is handled with a Charisma + Rituals roll, difficulty of the fetish's level + 3. If the roll succeeds, the fetish will not become cursed for at least one month, regardless of anything else. In _extreme_ circumstances, the Storyteller may say the level of abuse the fetish is subjected to overrides the power of this Rite. 
 
-59 
-
 Chapter Two: Born in Vulcan's Fires 
 
 **
@@ -1524,8 +1431,6 @@ tribe or auspice. However, there is a certain social stigma that comes from usin
 Auspice Fetishes are, more than any other type, tools of the trade. They are never fashioned for werewolves of other auspices, and are loaned out only between packmates, and then almost always temporarily. Using a fetish specific to another auspices is, to many Garou, one of the first warning signs that a werewolf is going to try to renounce his own auspice. Fera are only rarely able to adapt auspice fetishes, with a few obvious exceptions (Gurahl; Nuwisha and Ragabash fetishes; and so on). 
 
 Chapter Three: Pieces of Spirit 
-
-61 
 
 Tribal Fetishes are probably the most jealously guarded of the various sorts, as they are as much links between tribemates that reinforce the tribal society as they are spirit tools. Again, a werewolf might lend a tribal fetish temporarily to a packmate of a different tribe in times of need, but the practice is frowned upon. Werewolves take pride in their tribes, and in the unbroken chain between ancestors and descendants. Keeping tribal fetishes in the tribe's hands is simply a manner of showing the proper respect. Obviously, only under remarkable circumstances should a Fera have a fetish that closely mimics a Garou tribal fetish. 
 
@@ -1568,8 +1473,6 @@ The Sextant works by tracking the spirits within stars, much in the same way a s
 ## Level One, Gnosis 6 
 
 Few Garou like being lied to. Many Garou love this fetish, A small golden earring bound with a servant of Falcon, the Truth Earring acts as a fairly reliable lie detector when activated. Should the wearer be lied to, the earring vibrates softly. All rolls made to try and deceive the wearer through speech or sound are made at +3 difficulty. The earring does not warn against visual deception. 
-
-62 
 
 Hammer and Klaive 
 
@@ -1618,8 +1521,6 @@ During the day, however, the disk goes black as a starless night and filters the
 An Eye of the Night can be activated once per scene. 
 
 Chapter Three: Pieces of Spirit 
-
-63 
 
 ## _Fifty-Yard Rattler Rope_ 
 
@@ -1691,8 +1592,6 @@ This exotic fetish takes the form of abullwhip with small nuggets of gold bound 
 
 The Whistle Call is a small wooden whistle, often lacquered, carved with glyphs, or decorated with beads. Within it is bound the spirit of an infant mammal, a bird-spirit, or a wind-spirit. Once activated, the whistle may be blown to instantly inform the user's entire pack that she is in trouble. Though the whistle does make a noise, the pack does not need to hear the noise to 
 
-65 
-
 Chapter Three: Pieces of Spirit 
 
 understand the message. With a second activation and "sounding," the whistle can communicate its exact position to the user's pack. 
@@ -1743,8 +1642,6 @@ In game terms, in the first turn after the Time Piece is activated, everyone wit
 
 Hammer and Klaive 
 
-66 
-
 isn't holding the Time Piece has a dice pool one lower than normal for all rolls. The second turn subtracts two dice, and so on to a minimum dice pool of one die. This continues for as many turns as the user's successes on the activation roll. After this, time suddenly speeds up once again and all penalties are removed. 
 
 This fetish may be activated only once per day. 
@@ -1781,8 +1678,6 @@ Often travelers seem to be capable of taking the weather along with them, moving
 
 Chapter Three: Pieces of Spirit 
 
-67 
-
 **
 When activated and tied in a knot, the cloud string can ensnare the weather in a local area. The weather can then be dragged to wherever it is needed. For example, by stringing an area in the middle of a drought, the Garou could lead the hot weather into a flooded valley and help dry up the rain. Conversely, by snagging a rainstorm, a Garou alleviate drought or put out forest fires. The main difficulty with this is speed— The Garou must walk with the string, not drive or otherwise travel quickly. 
 
@@ -1801,8 +1696,6 @@ cases, no weather may be brought to or taken from the areas. However, in most ca
 One of the stranger types of fetish, claw carvings take the form of tiny glyphs etched into a Garou's claws and spirits bound into the glyphs, something like a minute scar fetish. Claw carvings can only be used in Crinos form; the claws of Glabro and Hispo are not large enough for the glyphs to carry power. A set of claw carvings is almost universally a war fetish, but not always. 
 
 • Dueling Claws (Level One, Gnosis 5) are a rarity, but viewed favorably by most tribes. Designed for warriors who repeatedly enter battles where the death of the other combatant would not be preferable, the Dueling Claws are bound with the spirit of any infant animal and are marked "Story," "Honor" and "Claw." When activated, the claws automatically do one health level of unsoakable damage, but cannot do any more than that, regardless of the attacker's Strength or successes on the attack roll. However, they also leave bright red wounds when- 
-
-68 
 
 Hammer and Klaive 
 
@@ -1831,8 +1724,6 @@ Since the whole tune must be heard for this to have effect, the haunting drum is
 When played, the fetish rolls its own Gnosis against a target number of the victim's Willpower. Every day after they have been blinded, the victim may roll Perception against a difficulty of how many successes the fetish gained. Once they get one success on this roll, their senses return to normal. 
 
 • **Silent Drums** (Level Four, Gnosis 7) The Silent Drums are a simple fetish with a very unusual history. Silent Drums are always made in sets of two, and take 
-
-69 
 
 Chapter Three: Pieces of Spirit 
 
@@ -1863,8 +1754,6 @@ Fertility fetishes are somewhat rarer than talens, but they certainly exist in n
 All fertility charms are bound with the spirit of an animal associated with fertility. Rabbits are a common and popular choice, but so are bull-spirits and goatspirits. The elders who try to press these fetishes on the younger generation claim that they have an aphrodi- 
 
 Hammer and Klaive 
-
-70 
 
 siac effect as well, but this may well be purely psychological, if it is at all true. 
 
@@ -1906,8 +1795,6 @@ Scar fetishes are one of the most widespread and variable forms of fetish, popul
 Scar fetishes are unique in that they are bound into the flesh of the fetish owner. The owner is rarely, however, the creator, because they are mostly bestowed upon a great warrior to commemorate surviving a wound that leaves a powerful scar. Most commonly these fetishes are awarded following a victorious battle, mind; warrior cultures such as the Changing Breeds for the most part do not celebrate their losses, Some scar fetishes are decorated with tattoos that draw attention to and highlight the scar. Some sample scar fetishes are described below. 
 
 • **Wyrm Scars** must be made from a scar dealt by a minion of the Wyrm. (To the frustration of some shapeshifters, the blows of a normal Fera or Garou never work for this.) It is then bound with a wolf or dog-spirit, or the spirit of any other animal who employs smell as one of their primary senses. When activated, the fetish acts as a constant _Sense Wyrm_ gift, and this lasts for a week from activation. When this scar detects a Wyrm presence, it itches in a distinct and powerful way, a way cannot be confused with a normal itch. Although useful, a Wyrm Scar can be a pain in the ass to activate in any environment other than purest wilderness, and are not common in the modem day. Most urban areas are permeated with Wyrmish energies to varying degrees, and a werewolf can be plagued with an itching scar for days without ever meeting so much as a fomor face to face. A Wyrm Scar is Level One, Gnosis 6. 
-
-72 
 
 Hammer and Klaive 
 
@@ -1951,8 +1838,6 @@ The Glass Walkers coined this ages-old talen's current name, but around many old
 
 Chapter Three: Pieces of Spirit 
 
-73 
-
 When struck with an activated SenseDep Dart, the victim is unable to act in the following turn. 
 
 ## _Vision Pool_ 
@@ -1985,8 +1870,6 @@ must roll Willpower (difficulty 4 + the number of Garou with activated warpaint)
 
 Hammer and Klaive 
 
-74 
-
 When confronted by a Fenrir wearing Tyr's Blood, his opponent must make a Willpower roll (difficulty 7) or flee the battle; this roll need be made only once. 
 
 • **Ghost Camo** (Gnosis 7) is the most common warpaint used among the Glass Walkers. It takes the form of classic green and brown camouflage facepaint but is applied to the entire body. While wearing Ghost Camo, the Glass Walker blends into the slightest cover available. If the wearer's in plain sight, the warpaint won't help, but if she is in shadows or partially concealed, trying to spot her requires a Perception + Alertness roll at difficulty 9. When the wearer makes an attack or some other over action, she becomes clearly visible, but should she find cover afterwards, the talen remains active, allowing for the possibility of repeated quick "stab and hide" attacks, or deadly rains of gunfire without being spotted. The Glass Walkers bind raccoon-spirits into their warpaint. 
@@ -2006,8 +1889,6 @@ extra die to any roll made to execute a pack maneuver (Werewolf, pg. 212). This 
 • **Dead Paint** (Gnosis 8) is worn all too often by the Wendigo in these final days. It is only created in the aftermath of a tragedy, for it must be made from the blood and tears of Wendigo or Wendigo Kinfolk unjustly murdered. ("Unjustly murdered" does not include those slain in fair battle, nor those executed for crimes they committed.) Any spirit that witnessed the murder may be bound into the paint. (Often, the spirit 
 
 Chapter Three: Pieces of Spirit 
-
-75 
 
 used is the ancestor-spirit of the recently deceased.) Once worn and activated, the wearer is instinctively directed toward the murderer. They have no sense of how far away the murderer is, only in what general direction they must go. In large environments such as cities, the paint's signal alone may be too vague to find the murderer. Still, it works as an excellent lead and also fills the wearer with anger and sorrow when confronted with the murderer, bestowing a +1 bonus to all rolls to successfully strike them- This talen lasts for as long as needed, until the murderer is killed, 
 
@@ -2053,8 +1934,6 @@ Grass Darts are an amazing talen mostly in that they can be created remarkably q
 
 Hammer and Klaive 
 
-76 
-
 **
 quickly after learning the Rite of the Fetish or the Rite of Spirit Awakening. In addition, metis frequently develop the knack of making them quite lethal indeed. 
 
@@ -2069,8 +1948,6 @@ However, some metis take the trick even further. Using the Gift: Create Element,
 Level Two, Gnosis 5 
 
 Just as homids sometimes develop simple fetishes to help them survive better in an unfamiliar wilderness environment, some lupus devise these fetishes to help them or other wolf-born Garou adapt to the strange world of humans a bit better. A Traveler's Charm usually takes the form of a small pebble that the lupus swallows. While the pebble is in the Garou's system, she is immune to motion sickness or similar ailments caused by riding in vehicles, can digest even the greasiest, spiciest human food without difficulty, and receives no penalties to her Perception checks for background pollution (even of the noise pollution variety). The downside to the Traveler's Charm is that it must be retrieved and ingested again after it passes through the system, but few lupus are as appalled by the thought as their homid packmates tend to be. 
-
-77 
 
 Chapter Three: Pieces of Spirit 
 
@@ -2118,8 +1995,6 @@ The fetish allows for instant communication with a spirit no matter how far away
 
 It is, however, decidedly useful for a number of purposes. The Glass Walkers adore using spirits to act 
 
-78 
-
 Hammer and Klaive 
 
 as intelligence sources on a battlefield, and co-ordinate their assaults from a spirit "eye in the sky." Many Theurges find these fetishes a helpful aid to making other fetishes by allowing a spirit in the Umbra to speak its mind about an object the Theurge is preparing with no extra effort on their part. Others still find it a fantastic security device, left activated and hidden in a room to issue dread warnings to any who should enter. In all uses, it is a favored tool of many Theurges in all tribes. 
@@ -2159,8 +2034,6 @@ Level Five, Gnosis 7
 One of the more dreaded tools at the disposal of the Half Moons, a questing collar (also derogatorily known as a "slave collar") is a fetish designed to judge the untrustworthy and to enforce the right of law. To make one, a heavy iron collar is bound with any spirit with the capacity to kill large numbers of people if need be. The Questing Collar is rare in modern times, as the trial by fire that it enforces is harsh by anyone's standards. 
 
 A Philodox, who publicly charges the accused with a trial to overcome places the questing collar around an offender's neck. This trial may go some length toward the Philodox's or his sept's personal interests, but this is expected. Simply being issued with a collar is a considerable blow to one's Honor, since it is a clear sign that she is not trusted. Wearing a questing collar strips away 4 temporary Honor. However, if it is generally felt that the collar has been unfairly employed, and the accused completes her set quest, she may well earn back that Honor and some Glory besides. Those who are seen as deserving of the collar, however, take much longer to earn back the trust their people have lost in them. 
-
-79 
 
 Chapter Three: Pieces of Spirit 
 
@@ -2210,8 +2083,6 @@ Furthermore, the spirit within the fetish is loosely bound enough by this rite t
 
 These days, Bloody Bandages have fallen out of favor, mainly because the war has become so constant. But when the Garou actually have times of peace and can plan their battles ahead of time, Ahroun often take the time to prepare this most useful of tatens. 
 
-80 
-
 Hammer and Klaive 
 
 The effect this talen has is quite desirable — when activated, the talen restores a number of health levels equal to the number of successes rolled on the activation roll. If this takes the warrior above perfectly healthy, then he gains an extra number of health levels above the normal ones. These additional health levels are lost first and then are not healed in battle. 
@@ -2256,8 +2127,6 @@ Between the wisdom of every Mother and Crone on the planet, it is possible that 
 
 This entry represents a plethora of different liquids, herbs, and other cures to a variety of childhood woes from the flu to whooping cough even to childhood cancer and leukemia. Generally, Black Fury cures tend to mirror modern science, but can often 
 
-81 
-
 Chapter Three: Pieces of Spirit 
 
 deviate. Very few Black Furies probably know of any technique that has a chance of curing cancerous conditions, but there might be one somewhere in the world who does. (Storytellers may wish to assign a level to such powerful talens, having them purchased or created as fetishes but only working once before being discarded.) More common ailments, even life threat' ening ones, can generally be treated with these talens and such treatment often has fewer side effects and shorter recovery times than modern medicine. (Although the spiritual cost of such ensures that nonBlack Furies will not see the benefit of it outside of exceptional circumstances.) In all cases, the talen rolls its own Gnosis to cure diseases. Non-life threatening illnesses are difficulty 4- Terminal illnesses that can be cured by modern medicine are difficulty 6. Diseases that are otherwise incurable are difficulty 9. 
@@ -2289,8 +2158,6 @@ Level Three, Gnosis 7
 An old favorite among the Bone Gnawers of Central Park, NYC, and often dubbed "The Moldy Grail," the Ever Meal has since been copied in several other major cities throughout the world. Made from a garbage can bound with a spirit of fertility or a prey animal's spirit, (frequently grain or cow-spirits are employed), the Ever Meal isn't carried around and owned by a single Bone Gnawer but is shared by all who use it. Often the spirit in an Ever Meal asks for a taboo requiring a brief prayer before use, to ensure its reputation as something beyond a shared resource. 
 
 To make use of the Ever Meal, the Bone Gnawer either throws an empty food container into the Ever Meal, or picks up one already put within it. She then activates the fetish, and whichever container she's holding is suddenly refilled. The state of this food is surprisingly good, though always cheap: Drinks are always generic cola, but it's cool and has ice. Burgers tend to be pretty basic, but are nice and hot. The box from an expensive gourmet pizza isn't going to be filled with anything more upscale than a standard delivery supreme, but it's nonetheless quite tasty. Each food 
-
-82 
 
 Hammer and Klaive 
 
@@ -2335,8 +2202,6 @@ As such, wiser Children of Gaia make their Peace Pipes to reduce the smoker's Ra
 During the Dark Ages, it was popular for a noble to have a cup made from a unicorn's horn. Such a cup would be proof against any poisons a would-be usurper might deliver. Needless to say, the genuine article was somewhat hard to fine — rhinoceros horn was the closest one could get — and many nobles died drinking from cups that they thought were "unicorn horn." However, the Children of Gaia were quite capable of creating a reasonable facsimile, and often did so to protect those rulers they approved of from murder. 
 
 The Pure Vessel is a cup made from softwood, with a single glass bead set at the lowest point of the interior, A spirit sent from Unicorn herself is bound into the cup, and when activated it will shake violently should 
-
-83 
 
 Chapter Three: Pieces of Spirit 
 
@@ -2386,8 +2251,6 @@ Employing one of these fetishes is not for the weak of heart, because it almost 
 
 One of the most treasured fetishes of the tribe, the Shining Band bestows upon the wearer the gift of prophecy. Made from a single thin band of gold, the Shining Band tequires elaborate preparation and must embody both the male and female aspects of creation; it must be made by a woman and first worn by a man. Into the molten gold must be melted an object of the 
 
-84 
-
 Hammer and Klaive 
 
 past, an object of the present, and an object of the future. Finally, but no less importantly, it must be touched by a bird, a fish, a hare and must be left in a wheat field for one day and one night before finally having a spirit bound into it. The empowering spirit can be the spirit of any of the animals that touched it: bird, hare or fish. 
@@ -2435,8 +2298,6 @@ The Get of Fenris have little time for those who would deceive them, and this fe
 
 Some not-so-forthright leaders have made fake Torches and used them. Suffice it to say that those discovered employing such devious tactics are never trusted again, if they are suffered to live at all; this is a display of weakness that the Fenrir find highly infuriating. 
 
-86 
-
 Hammer and Klaive 
 
 ## _Spirit Skin_ 
@@ -2477,8 +2338,6 @@ If the arc of light hits, it does no damage. But for the rest of the scene, the 
 
 Chapter Three: Pieces of Spirit 
 
-87 
-
 ## _Personal Umbral Digital Assistant (PUDA)_ 
 
 Level Four, Gnosis 8 
@@ -2513,8 +2372,6 @@ The Slug is a talen bullet that is both heavy and shot at a low velocity, but is
 
 There is also a rarer pistol fetish version of this talen, which, instead of improving accuracy, simply doubles the weight of the bullet after it's fired. It is rated Level 4, Gnosis 8, but bestows no accuracy or range bonus and does double damage, as if it were a ranged Fang Dagger. Like the Fang Dagger, it is good for one shot only per activation. 
 
-88 
-
 Hammer and Klaive 
 
 ## _Red Talons Empty Water_ 
@@ -2546,8 +2403,6 @@ An early fetish created by the Red Talons, probably dating all the way back to t
 The Dead Rock is a small smooth pebble scratched with the glyph for "Desert" or "Wasteland" on it, and bound with a salt-spirit. Once activated, it is buried in the ground in the center of a field. Within the day, the plants closest to where the rock was buried die. Every following day, more crops die, extending further and further out from the rock. It is possible that some tales of crop circles are in fact the results of this fetish being used, since the pattern caused is roughly circular. 
 
 Every day after being planted, the talen rolls its own Gnosis against difficulty 7. If one or more successes are achieved, then the circle of spoiled crops increases ten yards. This continues until a failure is rolled. Note that the Dead Rock cannot tell the difference between crops and natural plants, so a particularly troublesome rock might eventually need to be dug up again. 
-
-89 
 
 Chapter Three: Pieces of Spirit 
 
@@ -2590,8 +2445,6 @@ Finally, each Midnight Lightning klaive never does any visible damage. Though th
 One of the more visually arresting fetishes among the Garou, the Storm Gauntlet is one of the symbols of a Shadow Lord's authority and of Grandfather Thunder's approval. The Storm Gauntlet is slightly oversized (and if activated changes size to fit the Garou's paw during shifts), made from iron and bound with a Stormcrow. Grandfather Thunderhimself sends the Stormcrow bound to such a Gauntlet and only ever sends one when he is convinced of the worthiness of the recipient. Commonly he sends those who would make one of these gauntlets on a quest that in some way furthers his ends. 
 
 Once a Stormcrow has been sent (and this does not ensure the successful creation of the fetish, only a permission to try), the Storm Gauntlet can be created. Even when not activated, the Storm Gauntlet is a frightening thing to behold. Any who wear the Storm Gauntlet receive three temporary Honor for owning the Storm Gauntlet. (They will, however, lose four temporary Honor should they lose ownership of it.) Lightning crackles across the iron in pulsing white 
-
-90 
 
 Hammer and Klaive 
 
@@ -2650,8 +2503,6 @@ Created from hardened leather, the Message Tube is a small, simple letter holder
 
 According to one Egyptian legend, the sun god Atum fired sunbeams as if they were arrows. Though the 
 
-92 
-
 Hammer and Klaive 
 
 **
@@ -2676,8 +2527,6 @@ In game terms, the Brooch works fairly simply. When activated, the Silver Fang's
 The word of the righteous shall be as law, and the actions of the Silver Fangs will ring out with the divine right of kings. Falcon's tribe has held their might and leadership over the years — not by tradition, but with the blessing of Gaia, Luna and Falcon. And while the grand klaive remains the greatest symbol of office, the Crystal Javelin retains great popularity in many quarters, particularly among the descendants of the Roman Silver Fangs that walked among the Patrician families. 
 
 Despite the name, most of the fetish is made from wood, but the head is made from a transparent substance. The spearhead need not be crystal; some fetishes boast heads of pure diamonds while others are 
-
-93 
 
 made of glass.) Into this is bound a Lune. When activated, the Lune fills the head with her moonlight and it turns to silver, causing it to do unsoakable aggravated damage to Garou and many Fera. Much like grand klaives, some are bound with a second spirit, in this case nearly always a spirit of Rage or war. (Those with a second spirit bound into them do aggravated damage to anything, and are Level Five, Gnosis 8.) 
 
@@ -2716,8 +2565,6 @@ The Soldier's Bag is bound with the spirit of any predatory animal. Wolves are p
 Uktena and Wendigo fetishes enjoy popularity among both tribes in most cases. They are arranged by the tribe among in which they find the greatest popularity, but both tribes have been known to share their 
 
 Hammer and Klaive 
-
-94 
 
 fetishes with the other (though clearly these represent only those secrets the Uktena are _willing_ to share). 
 
@@ -2761,8 +2608,6 @@ According to Mayan legend, after Hurakan flooded the world he created four men f
 
 With one activated portion, a creature with two health levels can be constructed. Portions can also be mixed together and activated at once to create Larger creatures, each portion allowing for two health levels. The **Werewolf Storytellers Companion** has statistics for various animals, which can be used as a guide for these creations. Animals created with Maize Paste 
 
-95 
-
 Chapter Three: Pieces of Spirit 
 
 appear entirely natural rather than as creations of a thick goop; once activated the animals possess fur, scales or feathers, natural-looking eyes and all the usual traits associated with living beasts. The animals remain active for the duration of the scene or until destroyed, at which point they dissolve into a fine powder of dried cornmeal that is quickly blown away. 
@@ -2805,8 +2650,6 @@ After this, the storm gets no worse, but further successes may call up other env
 
 One of the most common fetishes among the Uktena and Wendigo are medicine bags. A very simple fetish, medicine bags are small leather or cloth pouches filled with specially treated crushed plants. Neither the bag nor the plants are in themselves the fetish, but rather both of them together hold the spirit. Should 
 
-96 
-
 Hammer and Klaive 
 
 ## _Hey, Where are the Stargazer Fetishes?_ 
@@ -2840,8 +2683,6 @@ What's worse, players have this funny way of taking weapons from the dead bodies
 If your players are adamant about using the spoils gleaned from fallen Black Spiral Dancers and equally adamant about cleansing the fetishes so that they suffer no inconvenience, place the burden of effort on them. Have them describe what they want to do, detailing exactly how they intend to replace or cleanse the spirit within so that it's faithful to a Gaian bearer. If their plans sound reasonable, you can build a story around the possibility, making them work for their rewards and rewarding them for being more proactive. Everyone wins. 
 
 Chapter Three: Pieces of Spirit 
-
-97 
 
 Each point of Willpower spent allows the victim to resist the urge for an hour, 
 
@@ -2885,8 +2726,6 @@ Any werewolf who meets the Kin wearing this amulet will instantly know her to be
 
 An Amulet of Kinship can be crafted of any materials, but usually bears the glyph of the affiliated tri be. An ancestor-spirit or spirit associated with Honor empowers the fetish. 
 
-98 
-
 Hammer and Klaive 
 
 ## _Klaive Hammer_ 
@@ -2927,8 +2766,6 @@ Level Three, Gnosis 7
 
 Crafted during the height of the Ajaba/Simha war, these broad-bladed spears are potent weapons in most situations, but absolutely lethal against Simba. A Lionslayer Assegai does Strength +2 aggravated damage, and can be thrown as a spear. If the bearer strikes a Simba and activates the spear, however, the weapon digs into the wound much as a fang dagger would, doubling its damage dice. The recent tenuous peace between the two groups and the establishment of the Ahadi, however, has made the Lionslayers an unwelcome relic of an ugly time, and few Ajaba carry them in public any more. Still, most of the Lionslayer Assegai have not been destroyed, but rather hidden away as insurance against another Simba attack — or, in some cases, as preparation for the owner to exact a final, secret bit of revenge. 
 
-99 
-
 Chapter Three: Pieces of Spirit 
 
 ## _Ananasi_ 
@@ -2964,8 +2801,6 @@ The most difficult part of this fetish is creating the web itself. Since it need
 A strange talen most often employed by the Hatar, the Ananasi who side with the Wyrm, the Glass Walkers coined the Psychotrope's common title — the spiders use a word of their own language to describe this foul device. A large steel spike attached to a bladder full of liquid, the Psychotrope is imbued with a Bane of fear. The spike is bound with the spirit and then crafted into a trap that allows the spike to jab out and stab its victim. (It is occasionally employed as a weapon, but most commonly is worked into traps.) 
 
 When this occurs, the victim's body and senses are warped and altered by the Bane-powered drugs, causing him to hallucinate and subjecting him to physical phenomena such as sudden sweats, cramps and pains. The overall effect is harrowing. The talen rolls its Gnosis against a difficulty of the victim's Perception _+_ Enigmas (difficulty 6). Every success removes one point of Willpower from the victim. Once reduced to zero Willpower, the victim falls prey to the hallucinations spawned by the talen and the Storyteller should feel quite free to describe scenes in warped and incorrect ways. Willpower lost to this device is regained normally. Once one point of Willpower is regained, the hallucinations do not end, but can be seen through 
-
-100 
 
 Hammer and Klaive 
 
@@ -3019,8 +2854,6 @@ Perhaps the simplest fetish among any of the Changing Breeds, the Favor is made 
 
 Chapter Three: Pieces of Spirit 
 
-101 
-
 Corax's own feathers, plucked from their body in Corvid form and then worn in their hair while in human form. It is bound with a bird-spirit (which need not be a raven), and when activated allows the Corax to employ Corvid-only Gifts in Homid form. 
 
 ## _Ultimate Shiny_ 
@@ -3060,8 +2893,6 @@ The Sliver cannot be employed as a dagger, despite its appearance and constructi
 The name "Sneeze" is fairly recent for this quite old talen, but the name has spread. It comes from a Corax in Chicago who dubbed the talen a "Ditchu" or "Ditch you." The name sounded like a sneeze, and now everyone simply calls it a Sneeze. Despite the flippant name, this is a seriously useful talen and that aforementioned Corax has a very well considered name for it — it is designed with the express intent of ditching those who would try and hurt the Corax. 
 
 Sneeze is not exactly made from glamorous stuff — it's dirt. But this dirt is bound with a skunk spirit, and after the Corax activates and blows it into his opponents' faces, the dust automatically causes blindness and their eyes to sting furiously, rendering them helpless for a single turn. It's not much, but it's enough to give the Corax a crucial edge in the combat... or more commonly the chance to fly like hell. A single dose can blind up to three opponents. 
-
-102 
 
 Hammer and Klaive 
 
@@ -3105,8 +2936,6 @@ These fetishes were at the height of their popularity in older times, when a lad
 
 Chinese myth speaks of wondrous "as-you-will" items that change their size and shape at the bearer's command. The most famous of these is the as-you-will cudgel of Monkey from _Journey to the West_ , but the 
 
-103 
-
 Chapter Three: Pieces of Spirit 
 
 Kitsune have adapted the principle to many tools that are not weapons. One example is the jacket (or kimono, or other loosesleeved garment) with as-you-will sleeves. These garments are always of the highest quality, durable and elegantly embroidered, and bound with a monkey-spirit. 
@@ -3140,8 +2969,6 @@ To throw the Boomerang, roll Dexterity + Athletics, difficulty 6. Each success g
 Level Four, Gnosis 8 
 
 The Mokole remember much; it's their job. But there just aren't enough of them to have been everywhere in every time. Inevitably, there are big gaps in the Memory of Gaia in many different places. However, the Echo of Ages can help fill in those gaps. 
-
-104 
 
 The Echo of Ages is a golden bell, inscribed with small runes carved around the edge. Into this bell is bound the spirit of a turtle. Many different Mokole have experimented with the size and design of the bell and have found that almost any configuration can work — one unusually fashion-conscious urban Mokole wears hers as a tiny bell hung on a black choker. Most, however, are considerably larger. 
 
@@ -3184,8 +3011,6 @@ Talens are often fairly easy to create. The Blood Blade is a sharp exception. On
 When activated, the blade's effects last for a single scene. The blade does Strength +2 aggravated damage, and strikes at difficulty 5. Once the scene is ended and all opponents are defeated, however, the blade dis- 
 
 Chapter Three: Pieces of Spirit 
-
-105 
 
 solves into bone dust and a small splatter of blood, a tangled garble of clues even to DNA testing. But to most Nagah, this isn't a bug, it's a feature. The blade is designed as an assassination weapon, allowing the user to slip in, kill their target, and then dispose of the weapon instantly. 
 
@@ -3230,8 +3055,6 @@ It works simply enough. A small charm necklace bound with a light-spirit, the ta
 The Ratkin tend to be rather proud of the ir know 1- edgc of the underground world. That said, they're still fallible. They get lost, especially in unfamiliar territory. A map really comes in handy, but the places Ratkin go don't tend to have maps. So they make their own. 
 
 The Automatic Map is a blank sheet of paper, bound with an insect-spirit of any kind. When activated, the map begins to start drawing upon itself in charcoal. It lays out the entire cavern or tunnel structure around the Ratkin for a radius of one mile, including any structural damage or blockages. However, it does not map anything animal or human inside the caverns, so it can't be used to track where people are. It's designed purely for the purposes of navigation. Once activated, the effect is instant, so if the Ratkin moves out of the radius, he'll need to reactivate the fetish. When the fetish is activated after the first time, the charcoal on the page blows off like dust first. Clever Ratkin have employed this effect to blow charcoal into an enemies face, which works about as well as you 
-
-106 
 
 Hammer and Klaive 
 
@@ -3283,8 +3106,6 @@ The Lightrock is fairly self-explanatory: It's a large rock bound with either a 
 
 Chapter Three: Pieces of Spirit 
 
-107 
-
 One downside is that Lightrocks are easily destroyed, since they're obvious targets and not ever held by the Rokea. Defending a Lightrock can be an important priority in some battles. Once activated, they remain lit for one full day and one full night. 
 
 ## _Ripper Blade_ 
@@ -3325,14 +3146,10 @@ The Balance Charm is small and made of metal, inscribed with a Yin Yang on both 
 
 Hammer and Klaive 
 
-108 
-
 **
 nent level. At the end of the scene, the wearer loses all but one temporary point in each category, exhausted from the stress of bearing so much internal energy. If the character has no temporary points left 
 
 in any category, however, she gains a temporary point so that she still has one temporary point in each category. Balance is maintained. 
-
-109 
 
 Chapter Three: Pieces of Spirit 
 
@@ -3354,8 +3171,6 @@ By contrast, there are no consistent laws or preconceptions that apply evenly to
 In short, legendary fetishes are the cases that the Garou (or Fera) cannot solve. They are what happens 
 
 Chapter Four: Power Embodied 
-
-111 
 
 when the standard logic of fetishes breaks down and becomes something other. They are things that could shape the destiny of the entire Garou Nation, if not the Apocalypse. They are not to be used lightly. 
 
@@ -3385,8 +3200,6 @@ On the other hand, there have been a hell of a lot more Garou heroes who've had 
 
 Hammer and Klaive 
 
-112 
-
 extreme, the will of a spirit that decided to intervene in a most spectacular way, forcing itself into an object and creating a fetish purely of its own volition. In short, Garou shouldn't rely on this method for finding legendary fetishes any more than they should rely on lucky meteor strikes to coincidentally annihilate their foes. 
 
 Needless to say, any legendary fetishes introduced in this manner are entirely under the control of the Storyteller. 
@@ -3412,8 +3225,6 @@ The most commonly accepted understanding of this myth is that the "madness" is i
 Finally, there are many prophecies among the various tribes and septs of great weapons that will be created during the days before the Apocalypse. Most of these have a strong celestial or environmental aspect, with many criteria placed upon where, when, and how this legendary fetish will be created. A good example exists among an English Fianna sept that continues to hold that: "Facing the darkest of days, the hero stands in the chill winds encircled by rock. He gazes heavenward to observe Luna's fullest glory and the sole eye of Mitanu, Nerigal, Zarok and Lu-Bat. With three sigils held above and four verses held within, the hero takes a sword for the Wyrm's heart from the hands of Rorg and Eshtarra." 
 
 In many ways, this myth resembles that of the epic quest. Here, however, it is not the efforts of the pack or Garou that produces the fetish but rather the forces at work around them. They are but conduits for the incredible forces of nature, Gaia and the spirits. Despite the widespread nature of such prophecies, this is not a sure-fire way to be responsible for the creation of a legendary fetish. They tend to attract _many_ different packs with similar ambitions, so a lot of competition for the honor occurs. These prophecies tend to be wildly interpretive and vague, so it can be hard to get right, and you almost always only get one go at it. Finally, a disturbing number of them are simply false and have no power behind them beyond the words themselves. 
-
-113 
 
 Chapter Four: Power Embodied 
 
@@ -3444,8 +3255,6 @@ Other worthwhile questions to ask here include: Who will want it? Who will be af
 Though it's an obvious point, there are three parts of a story in which you can introduce a legendary fetish: At the beginning, at the end, or somewhere in 
 
 Hammer and Klaive 
-
-114 
 
 the middle. Where you place the introduction of the legendary fetish will affect the form of the story and the role of the legendary fetish within that story. 
 
@@ -3484,8 +3293,6 @@ By contrast, allowing the enemy to stand a chance against a legendary fetish und
 
 One potential way in which this can be achieved is a two-pronged attack by the forces of the Wyrm. As the pack is armed with the Knotted Thread (see below) 
 
-116 
-
 Hammer and Klaive 
 
 the forces of the Wyrm are falling repeatedly in direct battles. They simply can't stand up to the might of this legendary fetish. But then, as they fall away in direct battles, they begin to employ new strategies to start winning back ground. Assassination attempts begin on the pack, particularly whoever holds the legendary fetish. Pentex comes to the fore, not with First Teams, but with teams of lawyers repossessing the houses of Kinfolk, claiming ownership of the land on which the sept sits. The Wyrm begins trying to possess members of their enemy with Banes, and using them to attack the sept from within. Encourage the players to come up with strategies to nullify the enemy again and again, then assert a new offensive. Make the players sweat a little — do these guys ever quit? 
@@ -3505,8 +3312,6 @@ And yet it has been possessed throughout the ages, sometimes by the Black Furies
 **The Fetish** : As described, the Knotted Thread is a rope knotted in upon itself. Anyone who holds it holds the severed fate of millions who have lived and passed on, and may command them fittingly. By untying one knot, whoever holds the fetish may unleash the spirits of an unknown number of dead souls upon their opponents. After activation, the user immediately spends one point of Gnosis (in addition to any spent activating the fetish) and rolls 8 dice at difficulty 7. For every success, a dead soul is summoned and does a number of unsoakable aggravated health levels of damage equal to the number of successes rolled to one opponent. (So if five successes are rolled, five opponents suffer five health levels of damage.) After this, another point of Gnosis is expended and all dice that succeeded are rolled again, difficulty 7. The same effect then occurs, after which the dice that succeeded on _that_ roll are rerolled and another Gnosis point expended, and so on until no dice succeed. The user may not choose to end the effect and stop spending Gnosis. Like Pandora's Box, once opened it may not be controlled. 
 
 Chapter Four: Power Embodied 
-
-117 
 
 If at any point a botch is rolled, then all the dice rolled in the botch are considered successes and do their damage, but do so entirely randomly to both opponents and friends alike. Worse still, this does not end and all dice are then rerolled as if they had been successes, and all rolls following this will attack randomly too. 
 
@@ -3531,8 +3336,6 @@ And finally, the Babel Center has no particular security against the Umbra. Once
 Yet despite these problems, the Babel Center is also the most incredible intelligence post in the world, if you can work it out. There is a way to know where every signal is, and where every door goes. It's not a logical comprehension, nor even an instinctual one. Homid, metis and lupus Garou are all on equal footing in trying to understand how the Babel Center works. 
 
 To attempt to find a specific sense of a location in the Babel Center, the player rolls Perception + Enigmas. Finding a very general location (for example, a Near Realm or the Umbra of a specific city) is difficulty 5. Trying to find a specific location that is somehow unique in the Umbra (such as a caern) is difficulty 7. Trying to find a specific location that is like all others (such as a specific room in an apartment block in downtown Manhattan, or an upstairs office in a factory in Scar) is difficulty 9. If the character doesn't care which sense is found and only wants to experience a specific location, the difficulty drops by two. The more successes, the clearer the sense. 
-
-118 
 
 Hammer and Klaive 
 
@@ -3564,8 +3367,6 @@ The legend says after this, Inihue took the Sword of the Sun and with it slaught
 
 The time limit also creates the possibility for a "race against time" chronicle with a difference. In this scenario, the Sword of the Sun is stolen and must be 
 
-119 
-
 Chapter Four: Power Embodied 
 
 **
@@ -3586,8 +3387,6 @@ Supposedly, only the Shadow Lord and his line were ever allowed to touch the Ham
 When activated (at difficulty 8), anyone struck by the Hammer must make a Gnosis roll (difficulty 7) or suffer the effects of the curse the Hammer conveys. Those who do not have Gnosis have no way of resisting the curse. Within a week of being struck, the victim 
 
 Hammer and Klaive 
-
-120 
 
 begins to bleed from the ears, nose and anus, blisters begin to grow upon the victim's feet and hands, boils erupt elsewhere, and random piercing pains push through the victim's stomach. From then onwards, the afflicted victim loses one health leve1 that can never be regained unless the curse is lifted. There is no way known to lift the curse, and it has never been lifted once in history. 
 
@@ -3617,8 +3416,6 @@ Finally, you can play the First Klaive up as the almost literal Holy Grail for t
 
 **Story Hooks** : The First Klaive is probably the perfect object of a 'Search for the Holy Grail' storyline, in which the players' pack dedicates itself to finding the First Klaive. There's no desperate rush (at least at first) but the rewards of finding it are so incredibly high that it pushes aside other goals. If you do this, then there's a lot of logic in employing the First Klaive as a 
 
-121 
-
 Chapter Four: Power Embodied 
 
 red herring, because no weapon can possibly live up the legend surrounding it. If it's going to be an anticlimax, then make use of it. Play up the legend in the early stages of the game and then, once it is found, make it brutally clear how misguided those legends are. Your trouble here will be finding a way to reward the players for their efforts even as you pull the rug out from underneath them. One way this could be done is to shift the focus of the chronicle slightly, by giving them an enemy, (who still needs to be defeated after the weak First Klaive is found) or a charge (who needs to be helped in some way). 
@@ -3644,8 +3441,6 @@ So Strikes-with-Lightning found six young girls, and brought them to a lake and 
 However, the Chariot's effects are considerably powerful. By driving the Chariot around an area in a circle, the area within that circle is blessed with fertility. Any plant life within the area grows at five times its normal rate for a year, becoming incredibly fertile and abundant. This does not exhaust the soil. Animals likewise grow in number, though to not quite the same extent. And finally (and most importantly to the Garou), any pregnant Kin or Garou within the circle at 
 
 Hammer and Klaive 
-
-122 
 
 the time of the Chariot's activation have a 50% chance of giving birth to Garou, a very large increase from their normal chances of 10%, 
 
@@ -3688,14 +3483,9 @@ From there, however, it's all downhill. "Disease" is exactly that; the bearer be
 
 Hammer and Klaive 
 
-124 
-
 In the hands of the Garou, the book could be introduced to one of the players as a tempting lure or a tale of damnation as the rest of the pack tries to find a way to save them, perhaps too late. Or, it could be secretly owned by someone within the sept, their dark secret. If so, why have they kept it to themselves? 
 
 Finally, the question of Rytolthoka also could be answered. Where is it? Is it a real place in the physical realm? Does it now exist only in the Umbra? Perhaps, given its history, it exists in the Atrocity Realm, Any of the stories involving the Book might end up in Rytolthoka. 
-
-**
-125 
 
 Chapter Four: Power Embodied 
 

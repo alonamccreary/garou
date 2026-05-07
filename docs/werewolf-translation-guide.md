@@ -483,8 +483,6 @@ Though the rules of human socialization seem foreign to the wolf-born, they have
 
 Deeply connected to the soul of the world, the wolfborn are born part of a litter of cubs. The young werewolf soon develops heightened mental capacities—able to reason faster and perform cognitive leaps beyond the abilities of 
 
-**
-
 Spirit Magics 
 
 ## Spirit Magics 
@@ -1065,8 +1063,6 @@ _12, and Essence 25. Finally, Eddy determines that the Nexus Crawler is allergic
 
 ## nexus crAWler 
 
-**Rank:** 4 **Attributes:** Power 12, Finesse 12, Resistance 8 **Willpower:** 18 **Essence:** 25 **Initiative:** 18 **Defense:** 12 **Speed:** 34 **Size:** 8 **Corpus:** 13 **Influences:** Corruption •••, Insanity •• 
-
 **Numina:** Blast, Discorporate, Fetter, Gauntlet Breach, Materialize, Warp Reality 
 
 **Ban:** Nexus Crawlers are allergic to pure logic. Reciting a specific logical or mathematical proof (different for each Nexus Crawler) causes the spirit to lock up in fear, preventing it from applying Defense against any attacks. 
@@ -1112,8 +1108,6 @@ The main possessed that show up in any **Apocalypse** game are fomori, which are
 **Twisted Senses:** As the Crescent Moon Gift: TwoWorld Eyes. On a success, the fomor can also see werewolves for what they are. The fomor can always detect servants of the Wyrm without a roll. 
 
 **Unnatural Strength:** Increase the fomor’s Strength by 
-
-3. 
 
 **Voice of the Wyrm:** Spend a point of Essence and roll Presence + Performance vs. victim’s Resolve + Primal Urge. On a success, the victim loses half his total Essence points. The fomor can also use his tongue as a weapon in close combat, dealing +1 lethal damage. 
 
@@ -1366,6 +1360,4 @@ Name: Stalks-the-Truth Player: Bryan Chronicle:
 Virtue: Hope Auspice: Irraka Vice: Lust Tribe: Iron Master Concept: New Journalist Lodge: 
 
 ## ATTRIBUTES 
-
-**
 

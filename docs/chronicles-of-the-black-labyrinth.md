@@ -1,10 +1,6 @@
-**
+
 
 ## : 
-
-**
-
-**
 
 being a compilation of narratives and documents from many sources in various times and lands, collected by divers hands and exhaustively annotated for the further enlightenment of neophytes and initiates. 
 
@@ -98,13 +94,9 @@ I came to the decision to publish at this particular time when, while watching t
 
 Egbert Reeve, RedBletter Press San Francisco, 1970 
 
-**
-
 eponymousIn 1735, Lord Alfred Craven publishepy Chronicle of the Black Labyrinth, the which was progenitorpresented to ofKing the Georgedsinve lume younmanuscript **w** hold. Theform avowedbeforeintentionits publication,of this work,was to expose a vast network of intrigue and conspiracy directed at the British royal line in particular and the cultural integrity of the English nation in general. Lord Craven, a retired warhorse and self-styled scholar, had spent most of his career defending the crown against Charles Edward (the “Old Pretender” who sought to reclaim the throne for the Stuart line) and was grievously wounded in the first Jacobite uprising some twenty years before. The first half of Craven’s work is a masterpiece of circular reasoning which rivals many modern paranoiac tractates, interlaced with specific accusations against many members of the king’s court and the Parliamentary government, presented in the Grand Inquisitorial style. This conspiracy, which Craven calls the Black Labyrinth, stretched across the British Isles and beyond, implicating most of Europe as well as the American colonies, and was described in such a way as to render any response which might be made to it an admission of guilt. Pinpointing the source of the conspiracy in Scotland, he does not stop there; the second half of the Chronicle works its way backward through history, tracing the unbridled malice of the Scots and their co-conspirators to the actions of dark supernatural entities whose origins are lost in the mists of prehistory. 
 
 While he did not see it himself, Craven had, by virtue of his persistent and utterly thorough researches, uncovered a mystical tradition unparalleled in Western occult phiTo those schooled in the psychology of C. G. Jung, its central tenet is strikingly familiar; one must identify and confront one’s Shadow, the dark, rejected aspect of one’s personality, then embrace it and reconcile with it, thus obtaining inner balance and strength. 
-
-2 
 
 ## The Chronicle of the Black Labyrinth 
 
@@ -115,8 +107,6 @@ The compiler of the present volume came across a pirated copy of the Chronicle o
 Trying without success to establish a branch of the Pretanic Order (as the brotherhood of the Wyrm is known) in New York, the compiler turned his gaze westward, where keen minds were gathering in search of truth. In San Francisco he met Mr. Egbert Reeve, whose yearning for spiritual illumination and independent publication business have made the modern edition of the Chronicle of the Black Labyrinth a reality. Mr. Reeve is not only a good friend but a kinsman as well; his name is derived from the Gaelo-Pictish Redb, an ancient heritage he shares with the compiler. Without his keen interest and kind assistance, along with the generous resources of his RedBletter Press, this volume could not have been. , 
 
 Frater I*I, Keeper of the Dark Orb and Gazer into the Abyss San Francisco, 1968 
-
-**
 
 b 
 
@@ -130,8 +120,6 @@ u< <8ov~ ATi6@ Y, A az Lo Von Br XV RNC Nar oN y> iNO :
 
 THE EPOCH OF CALAMITY 
 
-**
-
 The contents of this chapter are taken from the British Museum Harleian MS 3859, sometimes referred to as “Nennius’ History of the Britons with appendices,” but commonly known to modern scholars as the British Historical Miscellany. The latter title is the most appropriate, for it is nothing more than a hodge-podge collection ofdocuments with no attempt at inventory or categorization, and contains, among other things, Latin orations, part of a sermon by St. Augustine of Hippo, and an obscure Scythian geography. Acquired by the Harleian Library in 1729, it has been dated to the latter half of the tenth century and attributed to the scriptorium at St. David's. The original Chronicle of the Black Labyrinth ends with a very garbled version of the following account, which Lord Craven probably derived from second- and third-hand translations, having been denied access to the Harleian Library because of his impolitic vehemence. Frater I*I has endeavored to produce a readable modern translation, but the decayed and worm-eaten condition of much of the manuscript resulted only in the fragmentary text below. 
 
 Our narrator, Titus Germanicus, was a centurion stationed at Corstopitum (modern Corbridge), along Hadrian's Wall sometime around 200 AD. His efforts to push the frontier farther north no doubt result from Emperor Septimius Severus’ desire to see the Roman border surround the entirety of the British Isles. 
@@ -139,8 +127,6 @@ Our narrator, Titus Germanicus, was a centurion stationed at Corstopitum (modern
 The Germanic origin suggested by Titus’ surname (and mentioned later in the document) is unusual, as citizenship was not extended to non-Latin freemen until the edict of Caracalla, some years later. 
 
 The Legate to whom these letters are addressed was Caius Estulitius Incitatus. 
-
-7 
 
 ## Chapter One: A Centurion’s Letters 
 
@@ -164,8 +150,6 @@ The Legate to whom these letters are addressed was Caius Estulitius Incitatus.
 
 [T]hough he carries himself with all the self-possession of a civilized monarch, he refers 
 
-8 
-
 ## The Chronicle of the Black Labyrinth 
 
 to his people only in a detached, sad sort of way; I surmised that the ruling families of Pictdom had held power for so long that they had become insulated, cut off from the rank and file of their subjects. I also suspect some degree of inbreeding among the rulers, also common with savage aristocracies. 
@@ -176,11 +160,7 @@ to his people only in a detached, sad sort of way; I surmised that the ruling fa
 
 [A]nd there it is, Legate. This will of course be my last missive for some while, but my next communication should be of the best tidings; soon we shall drive the Celtae into the sea and redraw the Roman border to encompass all of Caledonia! [T]itus Germanicus, Centurion, CVIIIth Cohort 
 
-**
-
 Chapter One: A Centurion’sion’s L Letters 9 sis J, only two10 completlete letters of » Germanicu.icus. TON ThesetheyareuJeret scleral nei T posted to Rome, itit is unlikely Rise SRY that Germ ha ve carried them witr h him mtointo the ae RAN RON Pieslands. le is Frater . they were somehow pres fiSoH \\BS YSAY ; NNaikAt: aNW * sere rac r retrieved by -yilagie unaaniN Vasva : Thoughnanceed compiler.anicus= beliefis se: by Nenniusd by the psddiff erence in » NN : aw S aecondition between ther {jo hile the \s AX)ie ANA:fy uateKY \ RY:t~ two lettersinitial' had beeumn andcopiediedintot laterin Kaveaboiatahe manus follows. W filumi“yhNW ESNAY A.a“yy fi na. tedesnainitialrrativeleletteris inin Germanichemf each theoryandparagricus’ theT naowaphrrativeleftnuscript thaunfinis.ainished), thawas“erredfoldedthe followod into: N\AS&AN N\ iN NG E tethe back cover of th e MS , probablymfor hand,later inclus. ion as an fa“ap ASNSERNSN i DENSae 6 Pendix.sag RS ARS | cei a . NY ANY a oe ih What fo 9é may have indee. ies of letters to NYARIA;iis iN: NYAD\ANYVauhiyil, iit \) nyVeaeveoe Y),:be RY:VaAsV3goe Incitationcitatusung,nswered.but.llowsthown; wiedecayepersoMor. naldande‘journal k;likely,frliagmentaryJ beguntheseorn: se otes, asafragnstatefrom sinentslePave:ssiwhic isecom{ichsource queshe in_: . ot NY WM , Germanicustended to wrtite his. report backba to Rome5 upon his, tr.umphant _ ANRW 4 WA £ ‘4 =ilk AWN REN ) 4 i \ eavining Eboracum,nl, we passeed the ruinin **s** ¢of f ththe Tower WASawx SANKNAN rsi)NK \ ofF Trajan 7c ances piassed betw **e** en Brennusweand hissis "4 SAAYS Wa +} NES ere wasas furt ing. Late ’ a Wee ree. ur part> 7 a little of the r, a Cymric> relate i d AW. Ns **S** iVHy{ **\** men,that— and ° Strange who, orhadesto r q1 himvdleaditie accusatosatorily,hated“Sou net“ye tmnnatindhav ” AI,‘eN\(:SSYSSthy)YSSN} j ANNSNi4 us‘ m,Brennusan d they ucsha Il remember. TSASNSA~~AENS a; y‘ 4 eesvs esf ge rag‘ , [...]ove coun trysici side Je isis beautifulbez btmin ies SparSpartan star **k** rness. Vast ‘ rollingThefieldsvat heathe r stre tch bene ath the gray, skies;face itlie ills rollently inin s, in; othe rst h eyy jutjut atodd angles SSNLEANSESSSS Sf ve. ’ B: \k| \N4" -with tteacherous yg **l** ysomebare plaro **c** ek.7 asked|; Bren nus i . | “ [ worl ] but UE t hink no t that the la rock riled ou see **i** t now. When Writs SAY for Ny aesBE AASWN 3 le ff **ir** stst cameland a was alw alkeed. for th thames; had not \ yet-t Gd divide he earth was p ulling bac k her mantle Nest VPAM\\ } oOmy Tivided thehunt=edt_ reindeer, bisison and nhammo Ni areas RASSSASANS) \\\\“\\ the plains.‘ a an!! For 1 eople,le KesQaSN‘ oN\\ i.My ve **an** dice,our andmema wkories nos **t** ,retch mn-tch ckba farthermine. th anis anyrou melc even "imagine! SSSeSSSANNe j hills,“Whenand lushtheforestsoceanssts coveredrose,se, wetmuchwereof.drivetheivencoucountrysback side.into: tMyhe weAS! owm totem, the Lion, flourished here, as well as eer. las the red d : SAN wiild boar, and ma ny other animals, wtho becam e extinct as 8;es the wildern ess dieted: ” YNN AN les rR)iy filehe sq ualolor of: thesse folk isis deplorablbl **e** .. They» havre no proper dwellings,ings, but l **i** veve mosstly in ea tthen mou nds. I ha— 
-
-10 
 
 The Chronicle of the Black Labyrinth 
 
@@ -194,11 +174,7 @@ This next portion appears to have been written immediately after the event it de
 
 [...] overturned, showering sparks and spilling embers onto the side of the tent, which became an instant sheet of flame. Swiftly grabbing my [...] “—filthy little savages have played us for—” then was cut short with a wet tearing sound [...] flashing swords in the firelight, glistening faces of men crying out in pain and fear, growls of huge [...] blood and more blood as my gladius bit deeply [...] away with a handful of greasy matted fur, then turned |...] face out of a nightmare, tiny piglike eyes blazing sickly green with fury, surmounted by great batlike ears notched from many battles; but the mouth was the worst, opening at an awkward angle, almost sideways, splitting the face vertically, jaws which sprouted fangs not in natural rows but every which way [...] low and bubbling in the back of its throat, slavering a viscous drool which caused the ground to smoke where it dropped [...] see over its bent leathery shoulder, Brennus, oddly transformed [...] feral burning gaze 
 
-**
-
 | 
-
-11 
 
 ## Chapter One: A Centurion’s Letters 
 
@@ -212,13 +188,7 @@ This next passage was obviously written later, under less turbulent conditions, 
 
 “Think not that you — you Romans, | mean — are the first to try to invade this land. Before you came the Celtae, there were waves of them, each more drunken and boisterous than the last. Do not misunderstand me — we Picts lived in peace with the Celtae, and none can match the songs we sang:togethétBut the numbers of people were growing, and the amount of land shrinking/We made warwith our[btethten,][and][ fought][ hard][to][ hold][our] lands, but there were just too many, and we were drivefrifto the higher lands. “Mayhap there is justice of a kind in this. For you see, when we Picts first came here, pursuing the track of the woolly rhinoceros and mammoth, there were others before us, others whom we drove back just as we have been driven. Listen close, for you may find grim humor in this: these folk were smaller than us, with strange and alien faces, less than human, like lizards or serpents. They had been here even before the coming of the icewalls, and dwelt in underground burrows, just as my own folk have come to do. When the Celtae came, we allied ourselves with the serpent-folk against them;,.when the Roman legions marched upon us, we joinedthe Geltae.in répellingthem. | , “You see? The world imoves in ditcles, just as the-Vermis swallows its own tail.” The Pict’s talk of serpents beneath the earth awoke in me mémories of some halfforgotten tales from my own youth. The comment made back at Trajan’s Tower now filled me with unease. | imagined the very hills around us huddling closer, listening. 
 
-12 
-
 The Chronicle of the Black Labyrinth 
-
-**
-
-13 
 
 ## Chapter One: A Centurion’s Letters 
 
@@ -230,10 +200,6 @@ vigilance of us Picts. In any case, they made their way over the Grampian mounta
 
 “Then, out of the lands of Damh Brugh, Crom Cruach and Moch Maugh"®, came the reports — the omens. First, there were many stillbirths among the cattle, and the bodies of the calves were twisted and hideously undeveloped. Then, it was said, goats began to drop kids with three, five or seven legs, three eyes, or two heads. Things without faces which kicked once then suffocated. My grandfather, who was king at that time, sent men into those lands to investigate. What they told upon their return would shrivel the heart of all Pictdom. 
 
-**
-
-14 
-
 The Chronicle of the Black Labyrinth 
 
 their parents, but many were abandoned torthe barren places. That was a mistake. While any normal newborn would have died of exposure héfore the next sunrise, these monsters drew strength from the evil Pestes who presided over their birth. They survived, and grew into lean hard fomori, many of whom yet roam these lands. They found allies in the serpent-folk, and among those Picts whose hearts had already been eaten out by Pestes. As the forces of evil grew, the birth-plague spread from those lands to their neighbors’, until there is not a village in all of Pictdom which has not suffered this horror. 
@@ -244,19 +210,9 @@ their parents, but many were abandoned torthe barren places. That was a mistake.
 
 Chapter One: A Centurion’s Letters 
 
-15 
-
-**
-
-16 
-
 The Chronicle of the Black Labyrinth 
 
 and pushed its bulk through the entrance [...] not thé-sleekAdble wvelf-heads I once saw running through thetrees-Where-Pgrew up, bua twisted bat-eared monstrosity, like those that attacked us at the eamp{[...] through its slavering jaws, it barked something that sounded like “Come!” [...] down still more narrow slick-walled passages, resounding with a droning whining wail [...] into a hissing crowd of glowing eyes bobbing in the pitch blackness [...] now almost deafened by that wailing sound [...] with a touch as cold as ice. My [...] clenched tight with fear and [...] coiled about my heart, constricting until I felt sure it must burst [...] suddenly, a single tiny flame, no larger than a candle’s [...] could see that the nerve-wracking wail was coming from a half-dozen hollowed thighbones, through which air was being forced from a large glistening bladder or stomach-sack [...][“JHAAA-KAKAKAKAKKENNNGH! AHAAYII! FEEEEEBAK!” and still thevhissing [...] [“] ULLOQOOOGHMOOLLAGH! BAASH! BAAASH! BAASH-KAYEEEAAGH! [“] [...] lighting up Brennus’ face, battered and bruised almost beyond recognition, only inches from mine [...] inside my head, “AHAI BASHKAAI!” Then, in an oily, seemingly familiar tone, “Remember whose man you are, Titus Germanicus! Remember the mission that brought you here! [“] [...] streams of blood, rivers of blood, flowing into a vast wine-dark ocean of briny gore[...] days? Or only hours? I can scarcely see what I am writing, and I know not why | continue is) 
-
-**
-
-**
 
 Lord Craven's original Chronicle of the Black Labyrinth made extensive use of Scottish lore and legend, as derived from the medieval compilation Fabulae et Cantae Scotti, which is believed to have been assembled some time in the twelfth century. Much of what Craven quotes is nothing more than common fairy tales which Frater I*] has deemed of little relevance to the present volume. Also, any example of harshness and brutality among Scottish custom is cited as a means of furthering the blatantly inflammatory purpose of Craven’s work. His tenacity in digging up any form of slander and insult against the Scots is to be admired, however. The following quote from the Roman poet Prosper adorns his original title page, and is especially interesting in light of the ophidian revelations of the previous chapter’s document: 
 
@@ -270,17 +226,9 @@ An ye gae doon to Damburrow toon
 
 Yer breech-cuff cinch up ladde or lasse For theyre sure to comme ‘roon Up frae under the groon ‘Aslythin lyke snaykes thrw the grasse...! 
 
-19 
-
-**
-
-**
-
 Craven's Chronicle dwells at great length upon a descendent of Richard III’s, one Edmund, Duke of Edinburgh, Laird of Roxburgh, Selkirk and Peebles (these latter holdings were eventually usurped from him by a malicious Scottish noble, presumably of a non-Pictish line). Apparently, upon assuming his title, Edmund quickly degenerated into a somewhat inept schemer and conspirator, a “horvide little manne, with a heart as blacke as his kettle.” Craven refers to Edmund almost exclusively by the name with which he is known to history, Edmund the Black Adder. Though Craven states that Edmund was burned by the Witchfinder General without any legally acknowledged progeny, Frater I*I notes that the Blackadder family name recurs throughout British history, until the bloodline was finally terminated on the fields of Europe during the First World War. Another portion of Craven’s historical scholarship is worth noting, for it demonstrates the preternatural vitality and fortitude of the Pictish families that interbred with the serpent-folk Brennus described in the previous chapter's document. Responding to accusations that captured Scottish border reivers were being tortured and executed in inhumane ways, one John Carey writes to Lord Burghley in 1596: 
 
 “and my good Lord, for your honors better satisfaction, that it was not so barbarouslie nor butcherlie don as you thinck it to be, it should seeme your honor hath been wrongfullie enformed, in sayinge he was cutt in manye peeces, after his death — for if he had bene cutt in many peeces, he could not a lived till the next, which themselves reported he did — which shewes he was not cut in verie many peeces!””* 
-
-20 
 
 The Chronicle of the Black Labyrinth 
 
@@ -310,13 +258,7 @@ Within a week the foundations for the church had been laid. But when the mission
 
 “Why didn’t you tell me that we had begun building on the swampy bog?” “Because you hadn’t. ’Tis fine ground for building.” 
 
-**
-
-22 
-
 ## The Chronicle of the Black Labyrinth 
-
-**
 
 Furious, the missionary returned to the new church, there to pray for guidance and the strength to persevere. So loudly and vigorously did he pray that all the village could hear him and his clacking rosaries well until nightfall. 
 
@@ -326,39 +268,21 @@ When morning came, all the folk banded together and marched out to the church, b
 
 And so it remains to this day. It is now referred to as “Damburrow Pit,” and legend states that any who dare to stay nearby as night falls might yet hear the Latin mutterings of that missionary, now somehow changed, burbling up through the foul murky waters: “Pater noster, qui es in Malfea, Vermis Magnis est tuum nomen....”4 
 
-23 
-
-**
-
 24 The Chronicle of the Black Labyrinth 
 
 child. I quickened my pace, hoping to take up her task and spare her any further exertion in her delicate condition. 
 
 Equipped with only a short dull kitchen blade, she hacked away at one of the low twisted trees of the area. The lowest branch, some two and a half feet above the ground, she had removed at about a foot away from the trunk, a task which must surely have taken her the full day’s work alone. Now she diligently worked to sharpen the remaining stump, pausing often to test the point with her already chafed and reddened thumb. and As I drew near, she seemed to find some satisfaction with the completion of her task, tossed away the kitchen knife. Then she faced the tree with a look of firm resignation set into her cherubic features, and, grasping the trunk with white-knuckled hands, pulled herself onto the protruding limb with such sudden force that the sharpened point must have passed completely through her womb. her | imagine that some wordless cry must have passed my lips as | leapt forward. Grasping around her chest, I tried to lift her up and back, off of that impaling branch. She swore at me in her strange highland tongue, and twisted in my arms. Angling herself anew, she clawed her hands into the bark ofthe tree and heaved once more, nearly dragging me off my feet. This time the wooden stake emerged from the transfixed fruit of her gender and pierced my own side as well. 
 
-**
-
 Chapter Two: Fabulae et Cantae Scotti 
 
-25 
-
-**
-
-**
-
 Book Il: 
-
-- 3 en 
 
 - we (oIN tang.“ 
 
 - ae 
 
-%, 
-
 THE EPOCH OF CONSUMPTION 
-
-**
 
 Legends of the Black Monk are to be found throughout Europe, and are ascribed to nearly every century of the Medieval era. In researching these legends, Frater I*1 has come to the conclusion that the person described in this chapter’s document has served as a role model for many clergymen throughout history, whose quest for truth led them beyond the fold of the decadent and hypocritical Christian faith. The greatest accumulation of Black Monk legends occurs in England at the beginning of the fifteenth century; there are many place-names throughout the British Isles that echo with his impact. Prof. MacLish was of invaluable assistance in positively identifying the Black Monk as a Scotsman of Pictish descent, who around 1400 set out to spread his faith across England and Europe. The author is indebted as well to Prof. MacLish’s anonymous source for obtaining a copy of the following document, which specifically links the Monk to Gilles de Rais, the historical source for the legend of Bluebeard, which parallels the legends of the Black Monk in many ways. 
 
@@ -370,21 +294,13 @@ Second, the reference to the so-called Phallum Vermiculum, an artifact of darkes
 
 Chapter Three: The Trial of the Black Monk 31 Faeli( n the Name of the Lon, Amen. ah co May the Lod grant me the strength and fortitude to harkEAS} withwarn futureclarity andreaders,directionif indeedupon iteparchmentLod haththese ordainedword's whichsuchplacetribula~shall tion for any coming generation, of the unrepentant and barefaced Evil which stands exposed in te following pages. Herrin is contained the transcripts of the ecclesiastical trial of, and confessions extracted from, one Friar Louis fe Fif! now known in the lore of good Ghristian fotk as the Black Monk, who entered Cor professed to entep the service of the Lov in his twentieth twenty-fiveScotiand yearsyearhe tro as athe traveling byoads sealof Europe, d the from Franciscanthe mist-chok Ord **e** d Shormoors overa fixed abode,tohis theexploits desolateweremo **un** tainknownpeaksto our of Garpathia. Holy Mother As a Ghcd, lowly brobu **t** herin ofverno littlewhose time he had acquired an almost legendary status among thepeasantry thigh villages hepassed. In the beginning he was regarded as a healer and a most holy man, for he was seen to do no more than case the suffering of thepeople[by] cleansing the diseased and comforting the troubled. In addition, he also offered att orphans and the children of fallenparents, taking them with him and claiming toplace them in monasteries or welt-favored households. In time, however, tt came to be seen that his “miracles” were no more than the _preludes of terrible curses: the diseased whom he had appeared to cure were (ater stricken with even worse afflictions, often spending years upon their deathbeds, and those whose troubles he dispelled were revisited with a tenfold host of misfortunes. “Furthermore, not one of the children that he took from the villages were ever seen or heard of again. One name which will be readily seen to have been guns from the record, and which we now know to have been most wrongly done, is that of Gilles, Baron of Rais, whose diabolic crimes and ungodly atrocities continue to shock all of Christendom, and whose infamy has become the source of dark legend even in our . own (lifetime. One final remark must be made regarding my omission of the names of aft Inquisttorial officers and deputies involved in ig trial. “This was done at the behest of the Most Holy Dominican Order when it came to be known that all of the Inquisitors present at this trial had in subsequent years either met with some einicated. The accidentaltrue nature deathofor sufferedthe Evil somedisclosed grasherein isUsantsuch that and wereHt eats excommu-away at the spirit of any who come into merest contact with St, and Jt shall swallow stale 
 
-32 
-
 The Chronicle of the Black Labyrinth 
 
 the soul of any who dare (ook it in the face. For that very reason shall this, the only surviving transcript of the trial of “Friar Louis le FPbeplaced in a triple~ locked cask and sealed with the Papal Seal, which said cask is to be kept in the most secure vault deep within the “Papal Library and shall only ever be taken out to be studied, under the strictest conditions ofprayer and penance, in the,[presence][of] at least three Most Holy Gard inals. Let this thing now be done in accom with the will of Our Most Merciful Lod and Savior Jesus Ghrist on this First day of the month of April in the yar of Our Lod Fourteen hundred and Socty- Four Archbishop [signature obscured] 
 
 L Be hereby known that, for so long that there is no record to contradict it, there has stood, in the province of Gours, the church cathedral of Mantes, having as its head bishop the “Reverend Father Jean de Malestroit, who did recently depute and ordain by Letters Apostolic Friar Guillaume Q)-2, bachelor of Holy COrit of the Order of Dominicans, to exercise 
 
-**
-
 Chapter Three: The Trial of the Black Monk 
-
-33 
-
-**
 
 the office of Inquisitor of the faith and of heresy within the realm of the said bishopric, which he did com monly, publicly and famously this is an attestable fact and known to all. 
 
@@ -392,11 +308,7 @@ TL. Items that. upon the last day of June in the year of our lord Fourteen hundr
 
 ILL Items that, at the time of his arrest, the said Friar had in his possession several articles of an ungodly nature, to wit? the bones and tanned flesh of many people, most of them children, threaded and with gold settings so as to be worn as garments or or namentations documents of instruction in rituals of a blasphemous and heretical natures and the freshly severed head of Olivier Darel, a child of the parish of 
 
-34 
-
 The Chronicle of the Black Labyrinth 
-
-**
 
 Mantes, aged seven or eighG thus it transpired, and this is a true rendering. 
 
@@ -408,8 +320,6 @@ OL Item’ that. in accordance with ecclesiastical jurisprudence, the said Friar
 
 Chapter Three: The Trial of the Black Monk 
 
-35 
-
 instruments whereby confession may be extracteds thus it transpired, and this is a true rendering. 
 
 OIL Item that. upon being shown the Inquisitors devices, fire arose in the eyes of Gouis le Fif and he made histhem,lips andto stillsmile didas heif refuseto show to speakthat orhe confessshad no thusfearof it transpired, and this is a true rendering. 
@@ -417,10 +327,6 @@ OIL Item that. upon being shown the Inquisitors devices, fire arose in the eyes 
 OTL Item that upon the fifth day the Inquisitors devices were applied to the body of Friar Gouis le Fif and, even though his moans could be heard out on the streets of Mantes, yet still did he refuse to speak or confess thus it transpired, and this is a true rendering, 
 
 TX. Items that this said procedure was repeated upon him the next day, and the next, and for nearly a week thereafter all without appreciable result, until it was decided by the officers of the court that this course of action be terminated as futiles thus it transpired, and this is a true rendering. 
-
-**
-
-36 
 
 The Chronicle of the Black Labyrinth 
 
@@ -434,12 +340,6 @@ CQ Item’ that this continued for several more days. during which time word was
 
 Chapter Three: The Trial of the Black Monk 
 
-37 
-
-**
-
-38 
-
 The Chronicle of the Black Labyrinth 
 
 the details of his hideous operations> thus it transpired, and this is a true rendering. 
@@ -451,8 +351,6 @@ XCOILLL Item that, when asked about his own preference for fermales, the said Fr
 NC, Items that. once order had been restored to the court, Cardinal Serge de B- demanded that the 
 
 Chapter Three: The Trial of the Black Monk 
-
-39 
 
 question be answered clearly, directly and without dissembling, and stated in no uncertain terms that any further display of vulgarity would result in immediate corporal retribution of unflinching severitip thus it transpired, and this is a true rendering. 
 
@@ -466,8 +364,6 @@ NOOCTQ Items that. after some amount of time. Friar Jean ‘B- did emerge from t
 
 XO Items that the Clerk of the Court did deliver into the custody of the officers of the court one 
 
-40 
-
 The Chronicle of the Black Labyrinth 
 
 Marie of Rouen, currently incarcerated under mulk tiple accusations of witchcraft and malefice and of blighting her husbands crops and of having sold her children into the service of the devils thus it transpired, and this is a true rendering. 
@@ -476,23 +372,11 @@ ICXCOL Items’ that after intensive examination lasting well into the evening, 
 
 Chapter Three: The Trial of the Black Monk 
 
-4] 
-
-**
-
-42 
-
 The Chronicle of the Black Labyrinth 
 
 SEN eposifion of The Sxecufioner ce), Che undersigned’sergeant of The ormeyat az | taki eos beeen. icp autfiorify EZ over The execufion of The infamous fierctic and murSES fever Siar Conis le Fit does Gereby make account of said’ execution To The bishopric of Mantes, After several weeks ofing mostfrom ingeniousle fit and’Torfures, afer fienowas repentanceseen To seemed”be conversingTo be fortiicom-with fis Torfiurer in a friendly and’ casual manner if was deemed” by thie court That execufion sould, proceed fortinwit i. When (ed To The take, le fif was pelted from all sides with rofTen eggs and” decomposing truil offal and” excrement, fling by The good” Christian fR of The city, This treatment fie recetoed” in manner uct unlike graciousness, and ‘1 befell fim licking These subAances from fis check and’ savoring Them as Thougii They were sweet and_pleasing To fim, As fie was being bound’ to the stake. fie raised” fis gaze To The balcony of The catfiedtal’ wfiere The officers of Te court watched” The faggots were (it Geneat hi fits fet, and he spoke, saying “Beidd ury time witli you is ended’ and’ Though Tam no mor, sf ary crimes shall uf cease Sr the spirit which drives me is within you alsa and is fed with The power you accrue Afiai, Angul Afiai, Mactrad Co Lam the worm, The great dragon of alT fife, beside whick your God and” your dewil are but a bickering fatfier and” son. and” ‘I am come into your midst To reflect your true faces and remind” you of sgour True nafiire ‘TI consume sour fearts using fatied” as Ruife and desire as fork, Afiai, AGoral Afiai, Carnalal ‘I am the cater of souls, swallowing sour fives in ury ever qrowing fiunger and” begdting monsters upon your wives and daugfiters, Afiai, orud Afiai, Calibel Scatter ury asfies as you wilT To thie ends ofworldT?the cartsGe continued’thus do ‘ITocAittehicry outforththusmyorsawscometo Time, engulfTie mot (ong after Garbarouswilclies would fave suftocated” fromThe smoke, fiurling Geen and’ evil namesaf fisvanquiskers uni fiis Gocky fad” pat consumed”fiis TongueToThs **u** chs dodegree‘I sf ThatTo reconlno moretheGr **e** ventat fi coulof fiisbe de-forced” Aruction, a matterof_ public and” famous Rnowledge Sergeant Stepfien de Guillaume, Arury of The Cord of Mantes 
 
-**
-
 ## ugrimage of loung Journeyme 
-
-**
-
-**
 
 The Pilgrimage of Young Journeyman Quaestor is a fascinatingly miserable example of what the early Renaissance called “drawing-room plays,” plays which were meant to be read but not performed (perhaps the most famous example of the form is Milton’s Samson Agonistes). First published in 1582, the Pilgrimage was printed in just about every Western European country, but the definitive version is considered to be Guy de Mer’s French edition. The compiler admits to taking some modernistic liberties with the present translation, as de Mer’s highly arcane and formulaic French would, if translated literally, make the whole text so obtuse as to be insurmountable by readers of this age. 
 
@@ -500,21 +384,11 @@ The Pilgrimage tells the story of an insatiably curious and mystically inclined 
 
 Eventually his quest leads him to a subterranean chamber in a fictitious Eastern European city. There he sees, on one wall, a huge brass plaque engraved with a strange arrangement of letters upon a grid (the so-called Pretanic Keys), and on the opposite wall, an intricately etched spiral with nine concentric divisions. Here he is engaged in conversation with the Adversarius, a disembodied voice emanating from just over his left shoulder, which has already manifested itself briefly and mysteriously at crucial junctures throughout the preceding narrative. 
 
-44 
-
 ## The Chronicle of the Black Labyrinth 
-
-**
 
 a Some mention must be made of bb. the slight but notable parallels slight but notable parallels but notable parallels notable parallels parallels between 3, ae this document and the more commonly document and the more commonly the more commonly more commonly commonly # ASS , known Rosicrucian manifestos. Of -< foremost importance is the revelation of the Supernal triad, spread via the Rosicrucians through virtually all of modern western occultism in a devolved and degraded form known form known known as “Cabbalah.” ec ner “ee Prof. MacLish was generous enough to £€ eb share with Frater I*] with Frater I*] Frater I*] I*] his own commentary upon own commentary upon commentary upon upon the late medieval text of one Flavio, a descendent of the Black Monk. The climax of Flavio’s narrative anticipates the Adversarial Dispute almost point for point, but is reached after a symbolic series of labors and tests which Prof. MacLish has revealed to be a somewhat clumsy allegory for the Dance of the Black Spiral Labyrinth itself. This is only indirectly echoed by de Mer, whose unnamed ultimate secret society uses a nine-grade hierarchical progression where the initiation of each grade corresponds to each circle of the Labyrinth. This is recapitulated by the Adversarius at the beginning of the Dispute, and elaborated by Quaestor at the climax. 
 
 Chapter Four: Ex Disputandem... 
-
-45 
-
-**
-
-**
 
 : Quaes: Foremost among the Supernal, Bh the First Principle of all Creation, is oe the Unity. It is the source all things, "i the fount from which flow all the mani; fold forms and forces of all the worlds, -s and the end to which they all return when their cycle is complete. , Within the Unity, All is One, Pome, All is within the One, just as hi ra 4 the One is within All. Every ae f o a extreme finds its complement, ae unuiedl x and all opposing aspects of Cre‘i a ‘ ation are reconciled. 
 
@@ -526,15 +400,11 @@ Quaes: By that which forms the border of this brass plaque, the serpent swallowi
 
 3 a a 
 
-**
-
 Quaes: It is reflected in the contemplation of past actions, wherein the energies of Rage are grounded and dispersed. This tightens the cycle of self-awareness, for it is the hunger of the mind consuming itself. Hence may it be named Eater of Souls. 
 
 > * — Adver: In all that you have said there is harmony and balance, and so must there be har2 ~, Mony and balance in the world. . Quaes: But in this world there is no harmony or balance. 3 m Adver: So how then can this be? aS Quaes: | know not, for it was none of my doing. ears Adver: Answer me or die!® Fie _ Quaes: With the cycle of self-consciousness complete, the Unity has swallowed . caer and consumed itself. Thus losing Its own identity, the Unity has become a Pluality, alienated from Its Self by the divisions and distinctions imposed by the \, Web of the second emanation. The single Urge to self-knowledge is divided, ~ — by passage through the Web, into the manifold conflicting Urges of the human heart. The serpent has lost its grip and now spirals out of control, but is nonetheless ensnared and trapped within the ever-tightening Web. The original Unity, now seen from afar, is perceived as alien, as Other than Self, despoiling the _. *, harmony of the original separation and distinction. Hence may it be named the Defiler. 
 
 — — Adver: Gaze ye then upon the walls of this chamber. What is the meaning of these images? 4 Quaes: Upon the one hand | see the Spiral Labyrinth, which may be considered a map of that portion of the Web wherein the unbalanced Wyrm is imprisoned. And upon the other | hand, this plaque shows the divided mind of the captive Wyrm; in the left-hand column | discern the four signs of the elements, long used by the alchemists; across the top, these three glyphs represent the reflections of the Supernal. Here is Beast of Wat, head rampant for the attack. Here is Eater of Souls, devouring itself like the Wyrm of Unity and balance, but doubled over in separation. And here is the Defiler, burrowing ever inward to the Unity at the heart of all things. I take these subdivisions then to signify the divided Urges, rendered apart from one another by Supernal distinction above and worldly separation below. Herein is mapped the Rageful mind of the captive, yearning to escape. 
-
-50 
 
 The Chronicle of the Black Labyrinth 
 
@@ -546,35 +416,19 @@ Quaes: One must know the “Dance of the Labyrinth,” which is to say, one must
 
 Quaes: One must follow in backward fashion the spiral of unbalance, gathering up the strands of the Web of distinctions and separations, following one’s own Urge back to the source of all Urges. All Urges are in this sense thoughts of Beast of War, not conscious thought but pure will to action. Union with one’s Urge brings action without thought, tearing aside the Web by the use of Rage, freeing oneself from the Eater of Souls. By this way is the tail returned to the serpent’s mouth, defiling the Defiler by restoring the true balance. 
 
-**
-
 Chapter Four: Ex Disputandem... 
-
-51 
-
-**
 
 Adver: Gaze ye then upon the Spiral Labyrinth, and name for me its turnings. 
 
 Quaes: The turnings of the Spiral are ninefold, being three divisions of three subdivisions each. These are the expression of the soul’s initiation into the Supernal Mysteries, with each emanation being reflected in and acting through the other. The outer three circles are the domain of the Beast of War: the first is the realization of the Unity within, which is the Defiler acting through the Beast of War; next is Rage, the Beast of War acting through Itself; third is the Eater of Souls reflected in the Beast of War, preparing one for entrance to Its own domain. The middle three are the Eater of Souls’ domain, with the fourth circle being Its own influence in teaching one Its ways; fifth is organized battle, the Beast of War acting through the Eater of Souls; and sixth is the Defiler preparing the way for entrance into Its own domain. Finally there is the domain of the Defiler, with the reflection of the Beast of War demanding one’s adherence to the way in the seventh circle; in the eighth 
 
-**
-
 ‘\ % "as Ft circle, the reflection of the rd te { if ry wi Eater of Souls tests one’s uné et ely A: gece) | f derstanding of the Mysteries. i. ae oe * ee In the ninth and final circle, the Defiler acts through Itself _ ~¥f aei. 3 at ey§ Ey . aessindBiaA to dispel the deception of sepaj eae ed ey rateness. Thus is the soul of one | Bare ae ; g eae ; reunited with the Soul of All.’ & ae a es Adver: Thou hast spoken all the a ; ois fi names truthfully and in earnest. e "ee Sai 4 Thou mayest now leave here 7 “2 ¥ ‘, ak Quaes: | cannot leave, for yy US ae Bi 4 be there isnothing beyond thischam4 = 4g, 2 ae ” ; ber.| have never been any place but | $f "9 Mi Soka oe ce here, in the center of all Mysteries. \ ae. 2) a? oe % ce a Adver:forth and Go know forth thyself now, Ithroughtell thee! thy Go ac- .*\ Sh“oyTe ¥ Ie, <ii? 2 aero ae: a tions, as is thy Urge! > ‘ a Quaes: I have no more Urge. There is — “¥ye ee ‘a no action to be taken. | know nothing. a =. %, - Thus I am nothing. re aS J : he :4 Adver: Quaestor? . We 5 a = Adver: And so his voice is si- A= sie lenced, his mind consumed and ee a ath, q his body dispersed. So too shall a4 4 Fe 2 we. poe. I pass from existence, for I was yeh ee[oS] \ L na “0m ? never anything other than his ae ae 4 bi, 3 own need to know himself, always pay ih) \, Bs les ’ hidden from him in the shadow cast i =. ae oak = f[3h] ins by the light of his scintillating intelli& ta MN 17 tthe Ed gence. As he is now nothing, so must I “a Pes * Pe as 4 be. And so to you Dear Reader, | bid = “ae Ff Bias 2 farewell. i ete Fe fe : ; Adver: Yet still I hunger.... Te we a 4 : f eee F af Tae aA yh fi. 
-
-: ; | 
 
 | 
 
 Book II: 
 
-- we (97) Ses <é hg vi. 
-
-- i 
-
 TATI9 COG | NO) ALL Wore Ne AVA><< ONS 6 
-
-= 
 
 THE EPOCH OF CORRUPTION 
 
@@ -592,47 +446,27 @@ In addition to the series itself, Haversham published an autobiographical chroni
 
 The Adventures ofProf. Wayland Webley. By Dr. NiGEL HAVERSHAM. PROFESSOR WEBLEY AND THE STRANGE CASE OF THE MYSTERIOUS ORIENTAL. INE Rs Kid t was a disturbingly chill Webley sat at his great oaken desk, and, ie eg xf Sy E| dusk in autumn asI shoulas I entered, he slammed the top drawer shut We pais a) dered my way through the with uncharacteristic violence, turning his ea P= ic f thick English fog to finally head to glare at me over his shoulder. : he emerge upon the doorstep “Good God, Haversham! What the devil Ae nq of the deceptively humble are you doing here?” The sharp edge in his MWAH) Gravesend dwelling of my voice, in combination with his furtive dedistinguished colleague and dear friend Promeanor, left me quite taken aback. His fessor Wayland Webley. To the experienced straight black hair Tell in disarray about his peruser of these arcane pages, Webley needs tem les, and his normally clear gray eyes were no introduction; to those neophytes as yet wwelsbed with veins. | made some fumbling unversed in my previous chronicles of our apology for my intrusion, explaining that ] adventures together, suffice me to explain that had core cookie his advice on a nexnonal Professor Webley held the unique distinction matter. As | s shy he composed fenalt ofspiritualist pete theinvestigator,Empire's premierea station whichconsultingprosmoothinging-jacket ashishe faircrossed and adjustingthe study hisand smok-¢omvided me, as his companion, assistant and bimenced to thumb a sticky wad of shag into ographer, with an unparalleled lifetime of Ophis ponderous a en While Is oke, I portunities to witness firsthand the bizarre — circumambulated nonchalantly oxi ie the and unaccountable machinations of the Indesk; when | judged i’ a es away visible World. to effectively hinder me, | pulled open the I let myself in unannounced, the bond top drawer of the desk. of our friendship being such that the usual Within lay a rectangular piece of pasteformalities incumbent upon me as visitor and board approximately eighteen inches in guest were no more than an encumbrance to length, cracked and yellow with age. Upon our relationship. Pursuing my way down the its face had been printed, in an elegant anwell-appointed corridor, I noted the faint light tique face, all the letters of the alphabet arwhich spilled out from under the door of that ranged in a kind of semicircle along with the ample study in which so many of these adten integral digits, the smaller articles, proventures began. | grasped the knob and flung nouns and connectives, and an array of a wide the portal. tendant fripperies. Atop this board sat a finely crafted silver planchette. Only consideration 
 
-57 
-
-58 
-
 The Chronicle of the Black Labyrinth 
 
 been unable to ascertain. Visions, I say, of some great slime-covered scaly beast, coiling and writh; , ing in some foul pit simmering with noxious P \» vapors. Though I have yet to see the vast “Chage creature’s face, it is as real to me as you are er # now; I can smell the caustic stench of its exhaBn Py lations — feel the clammy touch of its hide as 4 aT it undulates across my flesh! i.a ieae i A intensity,“As weeksuntil passed,T was virtuallythese visionsincapacitated.grew in 4 d EY ie .. a Then the night terrors began ; the visions took Be. ie rie oy on a horrifyingly premonitory tone. I know b- ; ah — I just know! — that it waits for me! Lurk; ‘> yi. ; i anding there,time asin weits nowsqualidconceiveabyss them,beyondantici-space me fh. Ste A ; a, the moment when it will be able to we * eg #3 oop its fetid coils about me and tighten, Te yt) fre crushing the very soul from my frame, tight=" ¥ te y ening, tightening... ~ . “Now scarcely a single evening goes by My * f that I do not awaken shrieking like a school= ~*~ \t ee pit drenched in perspiration, my hands trem| % » ge ling like the final leaves of autumn. I have vf E 4 ct diverted all of my resources — not to menr , tion my own considerable psychic powers — " > 4 i } Sig into the penetration of this Gordian dilemma, pe "i a but to no avail. The depths of my desperation are such that I have heen reduced to this hal Pe ‘2%} 44[_] ludicrous parlor game. | fear that, had you for ; 5: See arrived but an hour later, you would have my: friend’s: sensitivities kept me from Land F lks lik bursting out in guffaws. mion:cooliel”ound me tossing yarrow stalks like a com“Ouija!? Really, Webley old man, I am “There, there, old horse,” | muttered shocked, I must say! I thought that we had ripping his asad Beneath the fe Lalsie of thoroughly — this sort of thing long i olan Sled I could feel that his biago.! What could possibly have brought you ‘echan caer haa and withleaien tite: Si ct: to this lowly station?” ceps ith ‘3 lesen ‘o. ‘il Guilt junction with his uncharacteristically emohead stung me as my friend hung his | outburst, caused my gorge to rise modark shamefully. I could see that there were mentarily. Only the bonds of Eeclihey and circles beneath his eyes, and it was obvirespect ienabled metoichobe back my disgust ous that he had neglected to shave that mornsufficiently jy continue: “Buol up; thore’sa ing. When he spoke, his voice quavered in an good mani Wihten-~was tae lestiime you apunmanly fashion. I confess that I shuddered plied your powers to a genuine case, eh? I’ve somewhat. not spoken with you since circumstances “You have found me out, Nigel. But please fowsud me to abandon you in the midst of allow me to make some case for myself, For the that ghastly affair in Sussex last summer.” past few months, Ihave been plagued with dark 4G issex!” Webley hissed, ati all-too-faspells. It began this summer with some vague, miliar venom in his voice. “Even in your abunwholesome visions whose source I have as yet sence, Haversham, I was nonetheless on the 
 
 Chapter Five: Professor Webley 
 
-59 
-
-**
-
-60 
-
 The Chronicle of the Black Labyrinth 
 
 I managed to calm him after we had “Bloody well right!” My fingertips veered onto Sussex Gardens, reminding him trembled with ill-concealed rage as | raised of the great variety of local charitable work my cane and urged the driver west on sponsored by the Fellowship*, and by the time | Mortimer. “I apologize for my profane lanwe crossed Bayswater and entered Hyde Park, guage, old man, but you can see how this I was ready to make the necessary exposition. hele business sticks in my craw!” And with While our hansom cautiously wound its way that, I sank into a disgruntled silence for the alu the Serpentine, | informed him of the final leg of our journey. steady influx, over the pes year, of volunteer Finally we disembarked before the stately acolytes who had slowly changed the face of old ladichaaw at Cavendish Square. Now, the Order. my astute readers will sculeubtedis notice the “We have judged them all to he from the tortuous circuit our hansom made through Limehouse district, for they are uniformly — the Seat of the Empire.® This method of apslope-browed and flat-faced, with dull iet-black proaching the Lodge-house of the Order was eyes and smooth clammy hides.” originally instituted as a means of disorientall away“It'sat a wonderthe door!” thatWebley you didn’texclaimed. turn them ingpursuers, probationary neophytesthus protecting the andsecrecy confoundingof the From Serpentine Avenue, we caught Fellowship. In this particular case, however, Ratten Rawiait-ot Hyde Patk-atid east onto it wae merely an empty ritual, for I well knew Picadilly Civeatand Shaftesbury. that the great Professor Wayland Webley Bs ead, GR ba? i said. “Baz soxnereckoned space and direction, not by mere how one of their leaders managed to gain a landmarks of fs pinata plese, but by the private audience with that doddering ai fool Very hig ae ley ‘Cuteatts ¢ the living Lord Craven, who, as you know, is our Magplanet itself. ister Templi. Craven claims that this chap In response to my coded rapping, there taught hisin ia hither cia kaensethod jot emerged the hoary countenance of good old ‘bio-electric’ excitation, if you will, which is Harry Brashman, the Order’s Sentinel induced through a rigidly controlled system Emeritus. Seeing us i, the threshold, he of sibilant breathing exercises. They call it greeted us warmly and bade us enter. After I ‘drawing up the nner serpent-power,’ or some introduced the Professor, Harry appraised us such rot. It has purportedly been applied with of tonight's situation. remarkable success to the enunciation of the “The vicious little yellow devils have defiPretanic Keys, mastery of which has eluded nitely got some kind of coup in mind for toour Adepts Major since time immemorial.” night, doctor. Besides bringing in an even Rounding St. Giles’ Circus, we headed more stuffy lot of blue-blooded cronies, north up Tether, Court Road. they've hired a band of mane Scots thugs to like wildfire“Of course,thoughthis newthe higher methodranks has spreadof the formdoubt,a humanto do a bit wallofstrong-armingseat them asand,wellaoif Order, and seems to have attracted a whole don't capitulate. new wave of initiates. Wealthy, powerful men Webley’s left eyebrow arched nee from both Europe and the colonies. Craven The threat of outright violence? It would has heen handing out Emeritus Magister @PP¢4™ that yOu ve greatly underestimated the grades like bloody door prizes, and the disSeverity of your problem, Haversham. content this has fone jue us honest “Near as I can make out from listening hard-working neo hytes and Adepts is threatthrough the door, r Harry continued, “they've ening to to le i. ance-stable | proper got it in mind to form some type of new circle hierarchy af the Order itself!” within ours, what they're calling the “Pretanic “Well, certainly no good Gare GormevoL Order.” It anpen that they are expecting that!” some bloke called the “Laird of Demborough” 
-
-61 
 
 ## Chapter Five: Professor Webley 
 
 to turn up tonight. Some kind of wise man names, the Gaels, the Cymri, and so forth, who'll lead us all to a new awakening and _ the word finally was only used to refer to that untold glories and all the bally tae you last, little-known people who had not named care to think of!” themselves in history’s pages.” | “I think,” mused Webley, “that I see “The Picts?” ventured Harry. some sort of connection emerging here. You “@fcourse!” Leried. “Hence the Scotch | Say that there’s a hand of Scotsmen with ruffians and this mysterious Laird, drawn to them, Brigadier-general?” our Order because we are the only ones to “Aye. A right hairy pack of bullyboys. have preserved their ancient lore, in the form NoProtessor!”a can come of them, mark my words, of the“It Pretanicmay go deeperKeys!” than that, I fear,” cau“What are you thinking, old bean?” I tioned Webley. “Ever since stepping across asked. the threshold just now, an incredible tension “Te. thie term ‘Pretanic,’ Favershaan:. has grown within me. The hairs on the nape Originally applied by Julius Caesar to all the of my neck standing on end; the back of my inhabitants of the British Isles; in fact, the throat tightening spasmodically; my digestive very name af Baistn js:considexved by some tract seems to have acquired a will of its own. paleolinguists to be a corruption of it. In any There is a tremendous confluence of ener| case, as more and more of the Celtic tribes of gies in this building, Haversham old fellow! I this land came to be known by. their own cancommonfeel thosehumanrealmssensesbeyondfairlytheseethinggrasp of ourand boiling around this very nexus! The effects - ofwill anymost actionassuredly which takes placeand undoubt h **e** redlytonightrever; . berate to the very ends of the earth—” here a % the Professor paused for well-considered dramatic effect “— and beyond.” r - x ee ; W, i, m © | The main meeting-hall of the Lodgeig 7, house was as crowded as | have ever seen it. A Vv | 4 veritable ocean of faces — some merely unmy 5 yt familiar, others downright alien — roared and iy ; ~~ ; shouted at each other in a tumultuous tyd uit a **l** “ > ail phoon of infighting and politicking. A few y a ies — overturned chairs and upset snifters showed j i) J wT ~ — us that at least one fistfight had already brop= a ] rl w * s ken out, but the overall scene was just a few | ‘ = : v c Fes 7 notches short of outright mayhem. | Pe f } : a3 Webley, once again the very image of cool | | | ; ' Ne iag<; composure, mutteredme as odd that a man asof we Brashman’s entered, “itcharac- strikes | ri ys x Vy, i me ter and credentials has no real rank in this f WY, r Order of yours. Why is that?” Ma” qT “Oh, the poor old chap is frightfully ini | A Pai AMV: eptnature,”whenI itconfided.comes to“Ofmatterscourse,ofhisa uncannyspiritual | ie os facility with Eastern languages has proven ini valuable to many of the scholars within the Fellowship. And his splendid work with the 
 
-62 
-
 The Chronicle of the Black Labyrinth 
-
-**
 
 Wives’ Auxiliary has made him absolutely United States’ captains of industry.° (I don’t indispensable.” mind saying that I was somewhat unnerved As I spoke I scanned the room like a by what I perceived as knowing smiles which scout surveying the field of battle. The passed between these extremely powerful men Limehouse contingent was clustered at one and the crude members of the Scotch guard end of the Magister's Table which dominated who seemed to be stationed at strategic posithe hall; behind them stood their dour and _ tions throughout the hall.) Elsewhere I could grim-faced highland regiment. At the head make out Dr. Harold Zettler, a German phyof the table, Sir Humphrey, our Chief Magus, sicilan who had become an incseactng frewas engaged in a characteristically passionquent guest of the Order, and good old Pete atecursions”harangueinto os the Fellowship.“unbalanced Coollyalien observ-inCulliford,lowship by anhis ex-clergymanseemingly insatiable drawn to theappetite Feling this from the Honored Guests’ Table were for mental activity. Two other faces I disrepresentatives from some of the wealthiest cerned did fill me with some degree of hope families in the western world: the current that sanity might be restored to these proscion of the Kromrich family of Switzerland, ceedings after all: one was Dr. Gunther long-timeested in thefriendsdoctrinesof theof Orderfamilial muchreincarna-interDesggoruntesFreud's, makinga himharshthecriticonly saneof Sigmundvoice to tion; Arbulent and Van Gelding from New come out of Vienna these days; the other was York; and | was able to recognize another Dr. William W. Gull, a freemason and perAmerican amongst them, a Mr. Jeremiah sonal attendant to the Queen, whose reputaLassater, whose excellent business sense and tion for wisdom and benevolence represented firm control of Premium Oil had catapulted to our Fellowship a shining example of the him to the enviable position of 6ne of the triumph of reason and science in the modern era. 
 
 Chapter Five: Professor Webley 
 
-63 
-
 expounding“And in conclusion,”from the lectern,Sir Hopapky“if the activi- was ofof hishis companionsgreat woolly tohead. followWebley with awaited sharp jerkjust tiesistic whichof the| directionhave just divulgedwhich thisareOrder character-is to hadlong enoughmade their to allowexit themunnoticed. to believe that they take in the coming century, then I must there“Come, Haversham!” he snapped, aiid fore declare, as must all men of qn conwe egressed in like fashion, science in this room here tonight, that I shall Finding the Kalleay unoccupied, sane he having none of it!” So — he pulled seacieal our steps bask £6 the entranceway, off his ceremonial apron ane ‘tote open the there to question Brashman. Harry told us front of his Ament disclosing the tattoo that he had seen Sir Humphrey come out as emblematic of his rank of Magus: the squared sf is depart, then, aa an afterthought, erety 7 of the pincers and scissors framing the down the corridor which leads to the Temple Al “seein Eye of the Creator, a most esoChamber, mumbling that he had some things teric and holy symbol hitherto unseen by any +45 collect before. he left fox good, We asked man below the third degree of initiation unabout the: Seotemen following hiss, but til this very eve! Raising his hand to his chest, Brashnian had nateeen then: he traced two bright crimson slashes across “Most likely th i | . 7 the ce Most likely they took to the secret pasEye, and another through the scrolled sage on nie right a ae opined “Thatene leads legend beneath proclaiming him a Fellow of right a Thnnspis Chamber. That would he the Oriental Order, then slammed his quill ‘ust like them profaning a os to the table and strode resolutely from the and all. like that Mangy kilted be stardel” we As fh E vebuitel fi “T take it you have no love for the Scotch, ae Se ee Brigadier-general?” Webley ventured. anonymousthe| . bly Asians3 took‘ | thehk lectern,hd seannink sli 5 wy?I'm married‘ to one, ain't4 Serene17” was Harry's’ assembly impassively through dark slitte | | bolted dike ‘Il : fore he could k. + if only reply as we bolted toward the lemple eyes. Betore he could speak, though, he was Chamber challenged by young Wiggins, an ambitious , a second-degree initiate. , val i duid, “So what are you offering that could be L tee: oh, vdee | a os if at t oti worth all this row, eh?” Wiggins roared. “And se to i, C sak Ce ee if ‘L carelessly otwherefsyoursthethen‘abloody hell is this almighty ‘Laid’ =**slow which@ owing shimmered¢ ere; to withme sicklytort) 1greensa strange and “Lo, he | fod] urples, a glow which could not be accounted | | o, hea has hialready come» amongha us, for . by the ritualz braziers.; A queer chanting. though we know him not, was the inscrudad thea ll bini lowe i tableLie-wallaan duet!” j i. pervaded the air as well, combiningthe hissyellow devil s enigmatic response. ; ht by the Limeh As a | dth : ing mantrae taught by the Limehouse mysof Sir Humphrey neare ‘ a caad ene tics with a more primal husky sort of animalhis armthe Scotsmeninsistently andintercepted whisperinghim,fiercelygraspingat eeistio eeting 7 ‘ ° . We advanced cautiously, with Brashman him 7 > .. taking the lead, holding his ceremonial ‘My good man!” muttered Sir e e ee ae ae = halberd at the ready; even for a man of over Humphrey through gritted teeth, “if YOUat cents hie was still the vew picture alake at good enough a unhand — this very inBritish military hero, filling Webley and mystant, I shall not hesitate to go straightaway sill wiivonlatnealtotiads. : to Scotland Yard with what I know! Good d “ fal LH ; el” Thai leaked 3 | As we drew abreast of the portal, Harry evening Siri neir eyes ocRe in mutua l h h ith | ll ki F antagonism,>. F then,| wrenchinghishicag hihis arm clear,| Fromeapt throughthe Chamber5 with a therechallengecameupona deephisrum-lips. Dir Humphrey pushed nis way out. ; : ; From ‘ : bling growl, such as the kind emitted by a . our vantage point near the exit, | b dtl dof spli é W ebley and I saw the ruffian; command two very large beast, and the sound ot splintering 
-
-64 
 
 The Chronicle of the Black Labyrinth 
 
@@ -640,41 +474,25 @@ wood. Then Harry staggered back out, loosel there appeared to be, in the space a
 
 Chapter Five: Professor Webley 
 
-65 
-
 , ee ; Gg ey Yrs 4 - > My Pa ~~ A i ss eS NE a o WY 4 7 > an c 1 Co eves) ie 4 wT Gif we _= Ns NE ae Ros. . ir hie: = GiGi essed “EE we. Padi... cm te % _ y ' pn ty aes att at a as aight a 2) gota ny Aa ders’ mandibles and softly ululating voices. Before I was able to move to his side, I As the torrent of monstrosities subsided, Webley seized “y one of the braziers and could see, from where | lay, through this dashed forward, owling “GET OUT OF hideous orifice into the hellish realms heyond, MY HEAD YOU FIEND!” or words to that within this very room but more distant than effect. the stars themselves. Beneath a low heavy Now, one might think that the assembled black sky there were sluggish oily seas and creatures and minions in the chamber would blasted barren deserts, squirming festerin try to foil this attack upon their evil master, jungles from which jutted stark, gauntl | but, on the contrary, many scattered from ruins. My gaze, drawn by horrified Net ges his path, and even seemed to be cheering him tion, penetrated one a ruin, as though I on with their polyglottal gibbering. Indeed, were plummeting through its quasi-gothic as Webley cleared the altar with a great hound archeslabyrinthineand swirling se vertiginouslyuntil, at thethrough ty its andder eeplunged fromthethebrazierwaist —up and — intohis own theslen-foul of the lace, simmering in a semiliquescent orifice, this obscene menagerie clustered u stew of boiling putrescence and noxious _ behind him, and, with a single esoudinabed fumes, something unbelievably vast and unheave, tipped Professor Webley up through speakably ancient began to uncoil itself and the aperture and beyond the veil + tom and yawn hungrily....7 time as we know it. A bloodcurdling shriek tore my attenThere was a pause as the opening tighttion from this unholy spectacle. Turning, | ened and pursed itself, then out flew a twisted saw Webley, his scal trickling blood from piece of metallic slag — the brazier, or what some stray claw or bullet, his face sunken with was left of it — and a shower of sparks and horror and loathing, his bloodshot eyes glarflaming embers which scalded everything in ing in hatred and disgust into the dimensional _ the room and instantly ignited the plush carpit before us. peting and richly embroidered tapestries de- 
-
-66 
 
 The Chronicle of the Black Labyrinth 
 
 picting scenes from the mythopoetic history Harry Brashman’s wife will not let him acof the Order. cept visitors. Not long ago I saw young I scrambled for the Chamber portal, and Wiggins on Bond Street, but when I atI pride myself upon having the presence of tempted to strike up a conversation with him, mind to shut ant bar the ‘oor before any of he pretended not to know me, and threatthose | things could escape. Unfortunate 2 ened to engage the constabulary if I ever acthe zodiacally tiled ceiling of the Temple costed him again. Chamber was not proof against fire, and by Upon occasion, for want of anything the time I managed to drag myself back upmore meaningful to do, I stand before the stairs, the entire Lodge-house was filled with charred lot at Cavendish Square, and tears smoke and pandemonium reigned as friend fill my eyes as I consider that that blackened and foe alike were crushed in the struggle to pit is the closest thing I will ever know to a evacuate the structure. memorial for the finest human being of whom nee it has ever been my incalculable privilege to . . There make the acquaintance: Great Britain's preis now no evidence to show that : lti bi eltat 4 . the , : miere consulting spiritualist investigator, Order of the Oriental Fellowship Cer psfossor Wayland Wilbutorce Weble existed. Lord Craven died in the fire, and y y- 
 
-**
-
-**
-
 The contents of this chapter were discovered by Frater I*! at the former site of Phelegma Abbey in 1964. As the reader will undoubtedly discover, they comprise the axiom schemata of the present volume, and the profundity with which they have affected the compiler will be so greatly in | properevidence understandingas to go without of allmention.the precedingCollectively chapters,theyas formwell asthe providingclearest aand practicalmost manualprecise keyofopera-to the tions for all who would serve the Wyrm. 
 
 | The Laird of Demborough is believed to have come to North America sometime during the First World War, bringing with him a small fortune in unmarked untraceable gold ingots and a | large retinue of acolytes and followers who called themselves the Pretanic Order, culled from the decadent and disillusioned youth of fin-de-siecle Europe. After a short and unpleasant battle with immigration authorities, he purchased a secluded piece of land in the Adirondack Mountains of upstate New York. There, building upon the foundations of an abandoned abbatoir, he erected Phelegma Abbey, a self-contained monastic haven consecrated to the pursuit of esoteric knowledge | and the cultivation ofpersonal power through education in arcana, exercise of the psychic faculties, | and communal ceremony. | Of course, there will always be those who oppose any such efforts toward the ultimate libera| tion of mankind. Sometime during the Second World War the Abbey was obliterated by the united | and coordinated actions of a most unlikely coalition, including state and federal authorities, members of the organized crime syndicate from New York City, and various supernatural forces. The blame for such an atrocity occurring within United States borders was foisted off upon the Nazi | menace, as evidenced by the clumsily distorted swastikas which, along with other nonsensical runes, | can still be seen, burned into various places throughout the blasted site. | The psychic echoes of this event still haunt the area; Frater I*] himself was forced to cut short 
 
-68 
-
 ## The Chronicle of the Black Labyrinth 
 
 his excavations when a chorus of primal howling erupted from the surrounding mountainsides. Inquiries proved that no wolves have been reported in the area for nearly a century. Frater I*I’s subsequent researches into the history of Demborough and its mysterious Laird brought him to Prof. MacLish, who recounted that he had once met the Laird. “He was once a tall and lanky man,” the Professor recalled, “but had suffered from a severe spinal curvature which, coupled with other deforming ailments, made him a strange gnomish figure. His hair, when he allowed it to grow, was straight and black, and when his head was shaven a livid streak of scar tissue could be seen on his scalp. His clear gray eyes shone with an inner brilliance, that penetrating gaze which betrays great spiritual accomplishment.” 
-
-**
-
-**
 
 ## The Saltortuor 
 
 More commonly referred to as the “Dancer,” the Saltortuor is ever at the center of the Rite, for it is he who must leap between the worlds to enter the Temple Obscure and dance his way to the center of the Spiral Labyrinth, where his Union with the Urge-Wyrm shall anticipate the ultimate Union of the three Heads of Our Father, the divided Wyrm. Though called the Dancer, the Saltortuor is not to be confused with the true Dancers of the Black Spiral, our polymorphous cousins whose inconstant physical forms are the purest vessels of Our Father’s Will. 
 
 Chapter Six: The Rites of the Laird of Demborough 
-
-69 
 
 ## The Eductator 
 
@@ -706,11 +524,7 @@ Of primary importance when opening the Pit as an intersection of the Worlds Visi
 
 Totem-spirits are best left uncalled, save when one is led through the rite by a True Dancer who knows their ways. These primal animistic presences can be invaluable sources of strength, knowledge and secret power, but their force is often too raw and crude for mere human minds to prehend effectively. Only a few totems are known to us by name, and these are mentioned briefly in Liber C.C.C. 
 
-70 
-
 The Chronicle of the Black Labyrinth 
-
-] | 
 
 ## The Presiding Maeljin Incarna 
 
@@ -739,8 +553,6 @@ Dagger — The Dagger represents the cardinal essence Hoga, being the means by w
 | 
 
 Chapter Six: The Rites of the Laird of Demborough 
-
-71 
 
 ## Walking the Spiral: 
 
@@ -800,8 +612,6 @@ After intensive examination and testing by the Deprovocator, the Saltortuor must
 
 As above, in reverse. 
 
-**
-
 ## 0’ Catellus 
 
 The beginning grade of any who would serve Our Father is that of the catellus whose only recognition of the Mysteries Wyrmish is in the loyalty and service owed to his superiors. The Catellus shall be called upon to enact any deed required by any senior initiate at any time, without question or reservation; failure to do so shall incur the full wrath of Our Father, as expressed through the Urge of his superior. 
@@ -812,10 +622,6 @@ The first grade of knowing service to Our Father is that of the Cognitus, attain
 
 Chapter Six: The Rites of the Laird of Demborough 
 
-73 
-
-**
-
 The duty of the Cognitus shall be to demonstrate his personal knowledge of the Wyrm through the expression of his Urge and the steps of his own personal Black Spiral Dance.’ Praecogitae 
 
 In the First Circle of the Black Spiral Labyrinth, those spirits that shall test the Dancer are the Praecogitae, whose suggestive mutterings shall awaken the Dark Truth hidden within the Dancer’s heart of hearts, the Urge of Our Father’s will. This is the first test of the Dancer's worth, for only union with the Urge enables one to penetrate the inner reaches of the Labyrinth. Failure to accept the Truth and unite with the Urge results in the disintegration of the Dancer's soul, as it is gnawed apart by the Praecogitae. 
@@ -823,8 +629,6 @@ In the First Circle of the Black Spiral Labyrinth, those spirits that shall test
 ## 2’ Efuriatus 
 
 The second grade of knowing service to Our Father is that of the Efuriatus, attained when the initiate can open his soul to the Rage that is Beast-of-War and act with the unqualified purity of anger and frenzy. The Efuriatus shall know and understand that the first part of the ability to control something is the ability to destroy it. 
-
-74 
 
 ## The Chronicle of the Black Labyrinth 
 
@@ -862,8 +666,6 @@ The duty of the Proeliatus shall be the cultivation of his prowess in battling t
 
 Chapter Six: The Rites of the Laird of Demborough 
 
-5 
-
 ## Hostes 
 
 In the Fifth Circle of the Black Spiral Labyrinth, those spirits that shall test the Dancer are the Hostes, the terrible foes of many forms who are most adept in the judging of the weaknesses of the Dancer and who shall exploit such weaknesses without relent or mercy. 
@@ -892,8 +694,6 @@ The eighth grade of knowing service to Our Father is that of the Paradoctus, att
 
 The duty of the Paradoctus shall be to prepare himself for the final stage of his ingress into the heart of the Labyrinth. 
 
-76 
-
 The Chronicle of the Black Labyrinth 
 
 ## Aenigmator 
@@ -910,8 +710,6 @@ Upon the attainment of the grade of Phallactus, the Dancer shall be raised to th
 
 In the Ninth Circle of the Black Spiral Labyrinth, the spirit that shall test the Dancer is the Vermiculum, the Little Wyrm who is but the shadow of the true Wyrm of Balance, and the most absolute degree of the test of the Ninth Circle shall be that only one of the contestants, Dancer or Vermiculum, shall emerge whole and unvanquished from the Labyrinth. 
 
-**
-
 |§<br>B<br>E|—<br>+ 3<br>><br>&<br>&<br>fa<br>2<br>2<br>8<br>&<br>‘Ss<br>7<br>2<br>3<br>g 2<br>2<br>¢<br>A<br>a<br>te<br>eg<br>a|3<br>1<br>Se<br>a8<br>4<br>Sze<br>;<br>Seg 8<br>Bei Fe<br>Sul3<br>Eo es<br>Sagt §|rm<br>p<br>r}<br>so<br>&<br>S$ ¢§<br>JY<br>ba<br>Qs<br>ea8<br>Es<br>b6<br>25|
 |---|---|---|---|
 |a<br>=|gies 4<br>[$2820<br>w<br>ta|552081) <br>25|[$558<br>lly<br>cel<br>&|
@@ -920,11 +718,7 @@ In the Ninth Circle of the Black Spiral Labyrinth, the spirit that shall test th
 |“SS .<br>®<br>2<br>a<br>a<br>=<br>6<br>P<br>2.<br>e<br>§ O<br>2<br>ae <br>a<br>=<br>2<br>eG<br>0g<br>5<br>ae<br>a.<br>sz<br>x §<br>eS =<br>p 22 ¢<br>23<br>ERE<br>2S<br>52<br>Sg<br>e<br>zs 8<br>3<br>se:<br>3 4 <br>SereeSgesvecSaae 22<br>Rv<br>2)<br>obese to3/S553 85 <br>=<br>hae,<br>SES RES<br>gO8<br>ee SsQ<br>~ o@Mi[ie<br>yV<br>gel<br>wl ys ells Bue 4<br>ests<br>TE.<br>ree:<br>a)<br>8<br>2<br>Bass8<br>[><br>wl22Fl len Fey<br>be<br>.<br>&<br><=<br><=<br>-<br>3 2<br>7]<br>am<br>a<br>red<br>ps<br>6<br>2<br>ane<br>8||E<br>a |<br>oy<br>%<br>Pra =§<br> ey:<br>ge<br>Sg<br>lo<br>24%<br>(26<br>5o%<br> oy Se IESR oe <br>apeses <br> ($523 bes<br>ZO<br>(&)<br>ES SoH <br>oo §<br>55s <br>oi<br>|<br>Oley<br>és<br>)<br>Og<br>oy<br>pp 2<br>e<br>3 2<br>s|—-<br>ro)<br>3<br>pb<br>%<br>=..%<br>2 =<br>r<br>=<br>|BO<br>@<br>«<br> ge<br>Ss<br> ehh 7<br>S558 é<br>7<br>)<br> &<br>a<br>2<br>8<br> 7 8%<br>WU)<br>=<br>Ae<br>og<br>ot<br>=o<br>2B<br>sf|
 |‘2<br>2<br>=.<br>3 Se<br>Shue<br>as SS<br>Ee<br>te<br>a<br>Aare<br>fa) =O<br>E<br>S56<br>g<br>E<br>:<br>k|s 3<br>.<br>r<br>(69 2<br>&<br>,<br>122.2<br>8<br>lege: =<br>4<28 oe<br>eri<br>38<br>S25S<br>§<br>sees o &<br>=<br>rsa<br>BU<br><j2%<br>if<br>seley<br>es<br><q s<br>4<br><3<br>a2<br>Iz of88<br>|<<br>Hm]Ss<br>c #<br>2 =<br>cn:<br>aa<br>“3<br>ay<br>cir<br>es<br>+E<br>g<br>5<br>o<br>ied<br>go<br>ui<br>|<br>Ee<br>gyi<br>Bgeee<br>Sah<br>‘<br>a= @ 2a<br>&<br>qe 2<br>ee<br>><br>Bl) E |<br>Ss] E<br>2<br>=<br>2Be|<br>oe]&|Aue<br>8<br>|gfe<br>2<br>|602s<br>€<br>Bees. s<br>SSSA BE<br>oe]<br>2&<br>[im<br>mlge<br>£2<br>Ee<br>O wes<br>%<br>a=<br>.<br>Pg<br>”» 2<br>"OS<br>8 2<br><<br>§ 3<br>Sag<br>8 <br>a<br>3<br>5,<br>£<br>e<br>|< Olgs <br>Ae<br>Bfics|was<br>2<br>[RBS<br>[Oke&<br>E235<br>SPs<br>¥ sly<br>Id<br>;<br>=<br>a<br>:<br>=<br>vs<br>z<br>Ag<br>g<br>aoe<br>28 o<br>20<br>wURES<br>Ouies<br> mees<br>oO<br>3<br>‘<br> fo bs<br>5<br>lO<br>ec]¥|
 
-78 
-
 The Chronicle of the Black Labyrinth 
-
-**
 
 Often of late, many of my students have come to me wishing to learn in more detail the lore of the Pretanic Keys, or Pretanic Calls, also called the Keys of the Epochs, or the Evocative Keys of the Urges, etc., and of the source of the terrific psychic energies which these calls of evocation can unlock. To the end of furthering these students along in their Dance through the Black Spiral Labyrinth, the Laird of Demborough deigns to reveal this Liber C.C.C., wherein shall be listed all of the Major Keys, the Urge-Wyrm represented by each, and their attendant Maeljin Incarna, animistic Totem-Spirits (when known), and servitor creatures. The prerequisite for this course of study is Liber W.W.W.: Of the Triatick Wyrm. 
 
@@ -940,15 +734,7 @@ So deeply did these bonds cut into the Wyrm’s body, that Its every innard and 
 
 Chapter Six: The Rites of the Laird of Demborough 
 
-79 
-
-**
-
 The Maeljin of the House of Wakshaa is Lady Yul, the Mistress of Toxins. In the West does she preside, arising from a pool of purple poison, her belly swollen to drop more of her toxic twisted brood. 
-
-**
-
-80 
 
 The Chronicle of the Black Labyrinth 
 
@@ -959,8 +745,6 @@ The Maeljin of the House of Hoga is Lord Choke, the Master of Smog. In the East 
 een Se an ait RGG yee eg ie ig es eres 4 In the quadrant defined by the G G he, ey a Ae strands of frigidity and encrustation, there cascaded forth all the solid por“ spirit within them was H’rugg, the essa 3 pene tions of the Wyrm’s carcass, and the R a sence of Sludge. p The Pretanic Key of the essence of Sludge is RGG, the root of the Pictish H’rugg. The demands of this essence are tended to by the H’rugglings, the oozing masses of refuse that track glistening filmy trails. H’rugg commands of all sacrifices made l re | a i é i ( , withinand wellits uponHouse, the lowerthat organsthe Danceroftheshall victim'sfeast body,full | ¢ é F] é y v ve) the gut, bowels, etc. The Maeljin of the House of H’rugg is Lord Collum, the Master of Sludge. In the North does he preside, a rough man-form of solid sewage trailing his foul stench behind him and speaking through the bubbling gurgle of congestion. The Urge-Wyrms of the House of H’rugg do not employ any Maeljin Incarna to speak for them, and thus, for ceremonial purposes, Lord Collum shall be considered the Presiding Maeljin when evoking the Keys FOeBK, VWRS, and MSTR. 
 
 Chapter Six: The Rites of the Laird of Demborough 
-
-81 
 
 ## The Epoch of Calamity 
 
@@ -980,11 +764,7 @@ BShKAi | Ai B The Pretanic Key of the Urge of Beast-of-War in the House of Furma
 
 | 
 
-82 
-
 The Chronicle of the Black Labyrinth 
-
-**
 
 ie E The Pretanic Key of the Urge of Beast-of-War in the House of Hoga is GREE, the root of the Pictish GREE. This Key plunges the Dancer into the black pit of the Wyrm’s hopelessness. This Urge is said to be the only Urge E R | possessed of a reasoning mind, for sadness and loss may only be comprehended through intellection. As the Urge of Despair, GREE finds favor in the victim whose own hopelessness brings them willingly to be sacrificed. 
 
@@ -1010,8 +790,6 @@ The Maeljin of the Epoch of Consumption is the’Master of Stagnation, Lord of D
 
 Chapter Six: The Rites of the Laird of Demborough 
 
-83 
-
 SYKR Y R The Pretanic Key of the Urge of Eater-of-Souls in the House of Wakshaa is SYKR, the root ofthe Pictish SYKORA. This Key bestows upon the Dancer the wary discerning suspicion of the Wyrm betrayed. This Urge, the Urge of K S Paranoia, works as one with the Urges FOEBOK and ABHORRA to plant doubt and mistrust in the hearts of all. As the Urge of Paranoia, SYKORA prefers the victim that enters the Pit seeking refuge from illusory foes without. 
 
 The Maeljin of Eater-of-Souls in the House of Wakshaa is The Archbishop of Madness, Doge Klypse. He shall emerge from the West amid a pile of twisted bodies, robed in black worked through purple and extending his hand to offer his slimy ring, the kiss of which shall fill the Dancer’s heart with the clarity of madness. 
@@ -1022,15 +800,11 @@ The Maeljin of Eater-of-Souls in the House of Furmas is Knight Entropy, the Wyrm
 
 This Urge calls to its aid the Puppets of Meat that cavort in the rotting carcasses of violated innocents, and the raw-headed necrophagous Skull Pigs. 
 
-**
-
 iL CG The Pretanic Key of the Urge of Eater-of-Souls in the House of Hoga is LThGG, the root of the Pictish LETHARGG. This Key calms the Dancer with the peace of the Wyrm defeated. This Urge, the Urge of Apathy, is the c; Th spawn of GREE, thus to release from the pit those that were burdened by care. As the Urge of Apathy, LETHARGG finds pleasure in the victim brought low through illness, misfortune and their own helplessness, to such degree that they may be aware and yet uncaring of their sacrificial status. 
 
 The Maeljin of Eater-of-Souls in the House of Hoga is The Master of Stagnation, Lord of Disease, Thurifuge. He shall emerge from the East out of a pool of slime, rising gaunt and grinning with oily cadaverous skin. 
 
 This Urge calls to its aid the many-armed Drattosi, never seen through the vile fumes at the bottom of their toxic pits. 
-
-84 
 
 ## The Chronicle of the Black Labyrinth 
 
@@ -1048,8 +822,6 @@ This Urge calls to its aid the small but handy Shade Spiders.
 
 Chapter Six: The Rites of the Laird of Demborough 
 
-85 
-
 KRNL L K. The Pretanic Key of the Urge of The Defiler Wyrm in the House of Furmas is KRNL, the root of the Pictish KARNALA. This Key drives the Dance with the yearning of the bound Wyrm to be free. This Urge, the Urge R N of Desire, returns the love of the world created by the Wyrm and into which the Wyrm was born, love now unfulfilled and scorned by the Gaian Realm, whence Its frustration returns to fuel the rage of all other Urges. As the Urge of Desire, KARNALA demands that the sacrificial victim be lured to the Pit by their own burning need for gratification. 
 
 The Maeljin of The Defiler Wyrm in the House of Furmas is The Countess Desire, Empress Aliara. She shall emerge from the South swathed in scents of perfumes and sweet spices, in a form comely to all genders, upon her lips the promises of pleasures untold. This Urge calls to its aid the lustful Raptors and the alluring Enticers. 
@@ -1066,8 +838,6 @@ a S The Pretanic Key of the Urge of The Defiler Wyrm in the House of H’rugg is
 
 The True Dancers hail the Green Dragon (“Destroyer of Life and Crusher of Enemies”), whose breath of green balefire scorches the earth, as totem of, and intercessor for, this Urge, but only the greatest and strongest among their number know the counsel of the Green Dragon. They say MAHSSTRAC is most impressed with the victim who has believed himself to be the master of the rite at all times up to the moment of sacrifice. 
 
-**
-
 It was the compiler’s decision to present these documents in proper chronological order, so that the historical Procession of the Epochs, detailed in Chapter Six, can be clearly seen. This is, however, not an exact representation. Beast-of-War has never failed to be most visible in human events, as any current installment of the evening news plainly demonstrates. Chapter Three, placed in the following Epoch, that of Eater-of-Souls, still reverberates with the disclosure of Beast-of-War’s phallic nature. Likewise, in the documents of Book III, the empty echoes of the Epoch of Consumption, believed to have ended prematurely around the sixteenth century, can still be heard. (The compiler holds the belief that each Epoch was intended to last a full millennium, or one thousand years, of the common era. This premature ending of the Epoch of Consumption is most curious, for, with the discovery of the American continents, it is clear that Eater-of-Souls stood ready to engulf the world, thus claiming all of humanity in preparation for the Epoch of Corruption.) And of course, the touch of the Defiler is felt throughout the work. 
 
 For those who wish for some resolution of these apparent paradoxes, the compiler recommends careful meditation upon the precepts of Chapter Four. 
@@ -1083,8 +853,6 @@ Frater Insanctus*Insanctorum, Keeper of the Dark Orb, Gazer into the Abyss.
 ## Notes 
 
 Notes for Chapter One: eeTTeseceny than1. Another wall further north, the ’ Jallum Ai atoniint sor Antonine Wall (little more earlier,an earthen rampart), was constructedby Governor Lollius Urbius nearly a century but the territorysit protected had been abandoned by this time. 2. The Roman name for present-da: Sc otland, All proper names in this translation retain their Latinforms, eXcept where theauthor reverts to his native Germanic dialect. 3. Cannibalism had longibeen a institu tion, among the Picts, as evidenced by the Glamis Stone, ¢a. 2000 BC. One 6 PERE ce Rn they tone. clearly s! ows a cooking cauldron withtwo recognizably huma Parent g out of it. ef. Oscar Kiss Maerth, The Beginning Was the End. The ritual ie universally among p imitive cieties as(osthe wan anicr’senémy’s way tovital innardscouragéis regardedand strength almostto face battle and their wives cooking, Be d | 7} ke 4. The si C0 present-day York, thei n a prov: feial capitol governed by Titus Sulla. 5. Probably the legendary Pictish high king Bran Mak Morn, whose name is preserved in Celtic lore. ot to be confused with the ot ic plundéter of Rome, the Celtic sojourner into the Underworld or Fionn Mac Cumhail’s fairy dog. « | oF 6. Prof. MacLis +E lowlers” smw Pictish society who,ited like the Celtic “sonSof Fionf””andetheNordic “bear-sarks”or berserkers, were credwith the ability to shapeshift. a sti 7. The original fortification at/Bboracum, which had collapsed many years earlier in some anomalous seismic disturbance. 
-
-88 
 
 The Chronicle of the Black Labyrinth 
 
@@ -1106,8 +874,6 @@ Notes for Chapter Two: 1. Damburrow will be seen to remain a center of propagato
 
 Chapter One: A Centurion’s Letters 
 
-89 
-
 | 
 
 2. Carey’s sloppy grammar and inconsistent orthography, abominable even for the sixteenth century, is typical of the many uneducated soldiers on the English side of the border conflicts. 
@@ -1117,8 +883,6 @@ Chapter One: A Centurion’s Letters
 4. This blatant mention of Malfeas in an otherwise uninitiated story suggests to Frater I*] that at some point an initiated Pictish hand was involved in its transcription. Notes for Chapter CC Sry. « ann iier apm ESema 1. This, the full na ne ofthe Black Men, offers couple ol interesting potential whoconnections. It could well bedthat Friar Louis is in fact the unknownthe records of“man named the Louis,”trial of receives a brief and} unielaborated enitiomin the early part of Gilles de Rais, then disappear from ha history fd iat celeb; ated:case. “Le Fif’ may be a French rendering of the old-Gaelo- Pictisl Fiobh,, wt ich is the-sourcé-name for the modern Scottish county of Fife. =. Nps ))} i 2. This would be Guillaume: Metic vho'a red Sided at the trial of Gilles de Rais only a year later. —.as ACtb gen Vyaerau<“==S=a in |E 4.3. Also called “Maq} ini”et) orye Laud omee tsSewie v andra 6:00 aer just: before dows. against Frater I*I holds the:belief hayws his betrayal, coupled " 2a deep rivalry directed tors the newly arrived-infes alist e i, indu ed Brother lé Fift6 implore his benefacto orchestrate de Rais” subsequent ineptitude do Var ismay also account for Prelati’s growing Blanchet's at the arts of i vocatio phi baving| eerbeatehuby t he devil,” (according to huge, and Corrilla 's depasitic fede ais’-o 7 al ang the apparition of “a the winged, and vigorous;snake, : s big’as a dog ich heraldedide Rais’ discovery that leadallegedwrappedgoldin ingots delivpolished brass red foilsby the'd~ eon E rtoniwerenothing) — more than common 5. By way of expli arian b Serre remnark,wF A J#ldigéets the reader to “Liber C.C.C.: pllaig | eee cittan eT oy nial On the Proces ionof the Epochs "in Book t,"Chapter-Six of the present vol6. The clerk’s glaring omission of the accused With trom the list of those exiting the offices has aroused Frater I*I’s curiosity; subsequent research has revealed that, although a Marie of Rouen was arrested and held on charges of witchcraft, there is no record of her trial, nor any indication that she had been held in prison following the date of le Fif’s trial. One can only hope that there exists somewhere an account of those servants whose duties included the cleaning of the Reverend Father's office. 7. While this phrasing is somewhat formulaic for witchcraft trials, it does seem to suggest that a second transcript, that of le Fif’s secret testimony, may have existed and that it listed in specific detail every action undertaken by the Black Monk. Frater I*I puts forth the theory that his catalog of crimes was retained by the court officers for their private perusal, and thus not included with the present document. 
 
 8. This is tentatively identified as a scribal error. 
-
-90 
 
 The Chronicle of the Black Labyrinth 
 
@@ -1134,15 +898,11 @@ Notes for Chapter Four: 1. Flavio’s Latin original-ends at “the face ofDefea
 
 Chapter One: A Centurion’s Letters 
 
-91 
-
 my name.” Naturally, the hero chooses the scepter, thinking that he can rule wisely and justly, leading the kingdom back to righteousness. As years pass, however, he finds himself dragged into the kingdom’s intrigues and becomes as corrupt as the old king. In the twilight of his reign, he takes pen in hand to write a cautionary parable of his experience. Frater 1*] believes this tale relates in some way to the ancient Celtic custom of making fertilizer out of their king every seven years. 
 
 8. This climax is assumed to be de Mer’s own invention, and what follows, to be some mere literary conceit, since Prof. MacLish informs me that the final pages are missing from Flavio’s manuscript. 
 
 Notes for Chapter Five: 1. Wayland Webley’s youthful obsession with Ouija and its tragicomic results for his family were revealed in the first episode of the series, “The Case of the Ostracized Octor2. First mentioned in “The Case of the Quartered Quadroon” (CH vy, 23). 3. Whitechapel was the site of the famous Jack the Ripper slayings less than a decade before. ‘SN ) fe Fy 4. As revealed in “The Case\of the Mutilated Mulatt6” (CH vi, 6). 5. In tracing their route acrogs'a map of London, Fraterl*1 has noted that a rough spiral of one and a half turns is formed. ‘These thre e he Ives obWidusly represent the three Heads of the Triatick Wyrm, and, when m ultiplied by t 1emsel sy correspond to the nine concentric Circles of the true Black SpiralLaby a , as welWWas‘the nine Maeljin Incarna of the inner Pretanic Keys. w oF f (cA , “St. Pancreas” and “Marleybo ie” are oby iously’ typ ographical misprints of St. Pancras and Marylebone. The glaring-subs ritution © “Te ileben ” for Tottenham Court Road, how| ever, must be some inside joke known only t ofegular readéts of Haversham’s adventures. Dr. Trevelyan, the noted specialistin eural les ons, Also of Cavendish Square, recorded a strange case in which a cockney cab d river-wan Jéféd in from the street one evening, muttering over and over “round and tound s he |g6es!..” Subsequent examination showed that the man was suffering fromeffiulti i ch s.to the right side of the head. 6. American newspapers:of this Brg hig at Lassater was currently traveling the world seeking a cure for certain undisclose¢ physical ailments. ful 7. This portion of the story is, ofcourse, blatantly fictinal. Not even the most power| TriatickMaeljin Wyrmis capable does notof manifestopening.a anygate of directly-betweenIts Heads in physically this world comprehensible and Malfeas,form andat theall. | But the question remains: How could Haversham know? | Notes for Chapter Six: | 1. Prof. MacLish gives these translations of the Laird’s bastardized Latin (and some Greek): Saltortuor — a contraction of saltator and tortuosus, “a dancer” and “spiral;” Eductator — “Sept(?) Leader;” Hierophactor — “Master of the Rite;” Terrestrator — “Keeper of the Land;” Custodatores — “warders” or “guardians;” Portianitor — “Gate Keeper;” Deprovocator — “Master of the Challenge.” 
-
-92 
 
 ## The Chronicle of the Black Labyrinth 
 
@@ -1166,8 +926,6 @@ tex: heze a fukin cop chuck! less cut him! chuck: he aint no fukin cop nither te
 
 so we can be totaly self sufishint wen the hole shit house goze up in flames! frawtair: wel teknikly speeking only the tru dansers can travil to the reel mowfayan labber rint for only thay can ware the form of raje strong enuf to servive the danses of eech serkel - chuck: aw fuk that noize! thats just bushit thay yuze to keep us upity kinfoke in our plase! Ju no what thay call me? the monkee boy! bobby: zat becuz of that band you tryed out for? chuck: was i tokkin to you bobby? shut up! monkee boy spost to be garu speek for son of man wel thare gonna be kissin my wite monkee ass wen im thru! dint 7 have my in site wen my godam mother abandint me to the state? fuk yeh what better way to lern wut kind of werld of shit we liv in? dint i lern the danse of raje to keep all them big blak diks out of my as? dint i Jern no fukin endurints duin my time in every joint in the land? aint i bin duwin the danse of cuning arown my puroll ofiser ever sins i got out? dont you fukin dare tel me i aint lernt how to serve the werm! [a sound of hitting and puppy sqeel thru muzel] ile show them what the son of man can do buncha inbread mutha[sound of polise sirin] tex: cule it man we got cumpiny. chuck: muve over and lemmee tok to him. git them cuvered up, bobby. an make dam shur thay stay qiyet! [van stop and polise sirin stop] polise ofiser: lisints and rejistracion, please. chuck: yessir rat cheer sir. ime reel sorry if 3 wuz gowin over the speed limet, sir, but yu no how theze dezert hiwaze can git to yu. polise ofiser: cud yu step out of the vehikul, sir. [van dor open and thay talk more out side but i can not heer what it is to tipe it.] bobby: dont yu wurry nun, mister frawtair. ole chuck, heze got hiself a way with theze fokes. and yu wunt no it to look at him, but he got sum friends in hi plases too. just be cule. [other van door open] chuck: hay boize gess wut? ju remember that bizniss we had out at ole man ak brite’s plantation a yeer or 
 
-**
-
 so bak? well this ole boy heer he works for a frend of ak brite’s, doncha? bobby, pull that blanket bak and see wut we can spair for our gud butty heer. [puppy wines and caje rattels] bobby: thet thair is the runt of the liter, sir. chuck: yep, heze a runt awrite, but heze a brite one. lookit them ize. that size, dont take em long to lern wutz wut. hell, i wuz a runt muself and looky how i turnt out! [all laugh] polise ofiser: now i dunno, mawdluns bin handin down sum rite hevvy pollisy on this kinda thing. chuck: wel sheeyit wut the ole man dont no aint gonna hert him nun! and sides yu sho up at yer nex tudoo with a prime 1il peece like thisun, ole blubals probly shit a brik and primote yu rite on the spot! aint i rite? polise ofiser: hel. is rite cute aint he? git down! chuck: gowan! with our complimints! tell wutsiz ass mawdlun i got plenny mor wair that cum from. polise ofiser: wel yu fokes be cairful then. i sispek one of the deputeez in this nex town is ordor of the roze, but i aint pegged wich it is yet. giddown! chuck: thanky much and yu hav a nise day sir! [van dors all close and driving again] chuck: condisendin muthafuker! bobby: gruvy. way to go chuck! tex: my main man chuck! greese them poms! frawtair: do yu feel it wize to expend our valubil cargo in such a cavileer manner? chuck: frawtair, if thairz one thing i lernt, its that our daddy pervides fer us. he duz! i mean aint this his werld weer livin in? his epuk, like yu say? dont yu think heze awreddy set out sum other 1i1 bundul of sweetnis for us, huh? to make us up fer wut we give up in his caws? wy, ile bet we get another one rite in that pasinjerz seet befor we yuze up a haf a tank of gass! tex: fat chants chuck! weer in the goddam dezert! chuck: o yee of liddul fathe! frawtair: now reely chuck! dyu think our father wud 
 
 reech forth from his mowfiyan lare across the vast golfs of time and spase seering in the harsh hostul invirumint of the erthly relmz from wense a full thurd of its self hath furevur bin eerevukubly banisht just to make shor yu get a bit of pussy? chuck: wel lemme tel yu frawtair. dont nobuddy no this, but our war, its awreddy wun. this werld awreddy belongs to the werm, and has ever sinse any of us has bin aroun. corse, nobuddy relizes hu the tru mastur of the erth reely is, but sum are startin to wake up. lookit all the shit thats bin gowin down in this cuntry past cupla yeers. and thairz mor to cum bileve me! frawtair: but with the steddy advanses of sivel lebbertese and humin rites, dont we need to increse our efferts? chuck: yu think any of that shits gonna make any dam diferints in ten twenny yeers? this heerz the apockulips ime tokkin about! a corse thairz gonna be sum baklash! a corse the cattuls gonna be restless! a corse the enemy is gonna hit us with all thay got! and all we gotta do is ride it out. and cum the milinium, its still gonna be the same dam werld, with eeter of soles suckin em up at one end with her boob toob and her gruvy asid trips, and beest of war shittin em out the other end thru his wars and rase riyuts! frawtair: and wear duz that leeve us? chuck: rite here in the middul wear we belong! servin the tru werm, keepin the balants like yu say. livin offa the best of both werlds. frawtair: but shurly yu reelize that we are but living in the ecko of the epuk of eeter or soles! even my oan pritannik ordor is but a remnint of that epuk wich was ended premichurly. our cuzzins the tru dansers are the sunz of beest of war born in his epuk. this is now the epuk of the difiler, and tho i shall not cuntest yor asurcion that our fathers influwints incumpases this werld, i see no evidents of tru and inlitened servints acting in his name. can it be that our fathers power is such that he has no need of humin opretivs in this relm? wear are the tru sunz of the difiler? 
@@ -1179,8 +937,6 @@ chuck: wel i wunt no bout all that—
 | 
 
 tex: hedzup chuck! preemo jale bate at one oclock! bobby: got dam! howzee do that? chuck: i got eeyess pee from elless dee! pull on over tex. she looks like she needs to see a frendly fase. bobby git them cuvered and make shur thay stay quiyet. now wach close, frawtair, ile sho yu a trik i lernt from a ole six degry inishiyut in holliwud. bobby: she got pritty legs. [van stop and dor open] gerl: [voise of yung gerl] hi! are yu gize hedded all the way to ellay? chuck: we shurly will be passin that way darlin! wunt be no trubul to drop yu off thair! clime on in! gerl: far out! [van dor close and thay go agin] chuck: so howed yu cum to be out heer in the dezert all a lone? gerl: o ime goan to vizit my big sister she lives at veniss beech and i got a ride out of frisco with this old dude yu no and he wuz reel nise at ferst but after a littel wile he startid to like cum on to me yu no so i made him stop the car and let me out. chuck: wel yu otta be cairful babe. hichin roun like this, yu never no wut kind of creep yu mite cum acrost. gerl: o gad yu soun jus like my mom and dad! if thay new i wuz out heer like this thade give me a reel tanning! bobby: heh ile bet. chuck: bobby. now yu no thay just wurry like that cuz thay luv yu. gerl: yeh i gess. but thay dont unnerstan— chuck: thay dont unnerstan that yu gotta get out and live yer oan life. get out and eksperients the werld yerself! heer babe, rap yer lips roun this. gerl: o far out! i did this befor onse —ffffff— in ninthe grade my best frends boy frend got sum —ffffff-— but any way o my gad yu are just so rite! its like yu no thay want me to be this littel miss perfeck huze just this like littel vershun of them yu no so thay can sho me off to thair frends wen thay have partys and stuff. like for my berth day last munth thay-— 
-
-**
 
 tex: dont bow gard thet thang gerl. gerl: o sorry heer. but so any way thay got me this gruvy littel alfo romayo like cuz i got my lerners permit yu no but wen thay gave it to me its like sitting out in the drive way with this big ribbin around it and its all pink! bobby: wut the car? gerl: yeh its this like reely ugly lectric pink and thay are sposed to no that i just hate pink and i sed unt uh no way ho zay and my daddy looks at me like i just bit him or sumthing and smacks me and makes me go to my room like i was the one that mest things up! tex: yer daddy give yu a pink alfo romayo? dam thats ruff. gerl: yeh wel i let my best frends boy frend take it out for a laff and he totult it and then i got to find out wut a reel but hold my daddy reely is. i got like scars i can sho yu. 
 
@@ -1214,8 +970,6 @@ Art: Ron Brown, Mike Chaney & Matt Milberger, John Cobb, Andrew Mitchell Kudelka
 
 Layout & Design: Aileen E. Miles 
 
-**
-
 ## GAME STUDIO 
 
 © 1996, 1999 White Wolf Publishing, Inc, All rights reserved. Reproduction without the written permission of the publisher is expressly forbidden, except for the purposes of reviews. White Wolf and World of Darkness are registered trademarks of White Wolf Publishing, Inc. Werewolf the Apocalypse and Chronicle of the Black Labyrinth are trademarks of White Wolf Publishing, Inc. All rights reserved. All characters, names, places and text herein are copyrighted by White Wolf Publishing, Inc. 
@@ -1223,6 +977,4 @@ Layout & Design: Aileen E. Miles
 The mention of or reference to any company or product in these pages is not a challenge to the trademark or copyright concerned. Reader discretion is advised. 
 
 PRINTED IN THE USA. 
-
-**
 

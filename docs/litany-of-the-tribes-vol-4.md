@@ -32,8 +32,6 @@ Cover Design: Aileen E. Miles
 
 **Kathy** "Felicia" **Ryan,** for sharing a vacation (and her clean laundry) with the Devil in cat's form. 
 
-**
-
 © 1997 White Wolf Publishing, Inc. All rights reserved. Reproduction without the written permission of the publisher is expressly forbidden, except for the purposes of reviews, and blank character sheets, which may be reproduced for personal use only. White Wolf is a registered trademark of White Wolf Publishing, Inc. All rights reserved. Werewolf the Apocalypse, Stargazers Tribebook, and The Werewolf Players Guide are trademarks of White Wolf Publishing, Inc. All rights reserved. All characters, names, places and text herein are copyrighted by White Wolf Publishing, Inc. 
 
 **Rebecca** "Hsien-Ko" Schaefer, for facing the even more thankless slings and arrows of Payables and health plans. 
@@ -310,8 +308,6 @@ Only the Stargazers understood the true enemy. But how to communicate this reali
 
 Chakal is given the title Fierce, for so implacable was her intent toward enlightenment that nothing could bar her from Truth. No web of the Weaver could prevail against her Vajra Klaive, so sharp that it could cut false ideas from others' minds. 
 
-22 
-
 _I fish for minnow in the lake. Just born, they have no fear of man. And those who have learned,_ 
 
 _Never come back to warn them._ 
@@ -415,8 +411,6 @@ Visions must be digested for their meaning to become clear. There is a reason Kl
 The mind which perceives true vision we call the Earth Mind, stable and unyielding, the root of all phenomena and the ground of being. The World Tree grows from the Earth Mind. 
 
 The weapon of this mind is the pictogram, the writing of the Garou, which guides us in storing wisdom and lore in deeper ways than a human alphabetic writing can ever approach. 
-
-27 
 
 _One went to the door of the Beloved and knocked. A voice asked, "Who is there?"_ 
 
@@ -1043,8 +1037,6 @@ In addition, he may issue a resounding _Ki-ai_ at anytime, a bellow meant to sca
 
 **System:** Roll Wits + Enigmas and spend one Gnosis point. Each success lowers the difficulty of any Enigmas roll 
 
-52 
-
 _**Stargazers**_ 
 
 by one _and_ adds one to the character's Enigmas skill. This effect lasts for one scene. 
@@ -1198,8 +1190,6 @@ backpack (traveling on all fours when nobody watches). If you could find some fr
 **Roleplaying Hints:** Smile a lot; you're a happy, centered and joyful wolf who likes his Homid form. Write spontaneous poetry in a notebook as you travel around; every experience is the basis for a poem. When not writing poetry, keep detailed journal entries of your experiences. 
 
 **Equipment:** Battered notebook and journals, rucksack with minimal camping equipment, photocopies of Snyder's "Smoky Bear Sutra" to hand out to the unenlightened. 
-
-**
 
 **Quote:** _Do not mistake my ignorance of your modern world for stupidity. I see the delusion which you live more clearly than you._ 
 

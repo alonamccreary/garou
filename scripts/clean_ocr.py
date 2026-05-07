@@ -1,52 +1,87 @@
 import pathlib, re
 
 DOCS_DIR = pathlib.Path('docs')
-LETTER_RATIO_THRESHOLD = 0.55
-MIN_LINE_LENGTH = 4
 NL = chr(10)
 
+# Common short English words that are legitimate
+COMMON_WORDS = set('a an the and or but in on at to of for is it its are was were be been has have had '
+                   'with from by this that he she we they you I do not no so if as up '
+                   'his her our my all one two can will would could should may might '
+                   'then when who what where there their them than just out more'.split())
+
+def letter_ratio(text):
+    non_ws = text.replace(' ', '')
+    if not non_ws:
+        return 1.0
+    return sum(1 for c in non_ws if c.isalpha()) / len(non_ws)
+
+def word_legitimacy(text):
+    """Ratio of words that look like real English words."""
+    words = text.split()
+    if not words:
+        return 1.0
+    legit = 0
+    for w in words:
+        w_clean = re.sub(r'[^a-zA-Z]', '', w).lower()
+        if not w_clean:
+            continue
+        if w_clean in COMMON_WORDS:
+            legit += 1
+        elif len(w_clean) >= 4 and letter_ratio(w_clean) == 1.0:
+            # Long all-letter word - likely real
+            legit += 0.5
+    return legit / len(words)
+
+def is_garbled_paragraph(para):
+    """Return True if this paragraph block should be removed."""
+    if not para.strip():
+        return False
+    lines = para.strip().splitlines()
+    # Skip headers and markdown structure
+    if all(l.strip().startswith(('#', '---', '|', '>')) for l in lines if l.strip()):
+        return False
+    text = ' '.join(lines)
+    lr = letter_ratio(text)
+    wl = word_legitimacy(text)
+    # Garbled if: low letter ratio OR very low word legitimacy
+    if lr < 0.60:
+        return True
+    if wl < 0.08 and len(text) > 30:
+        return True
+    return False
+
 def remove_picture_text(text):
-    # Remove ==> picture ... <== lines
     text = re.sub(r'==>.*?<==.*?' + NL, '', text)
-    # Remove everything between picture text markers
     text = re.sub(
         r'----- Start of picture text -----.*?----- End of picture text -----' + NL + '?',
-        '',
-        text,
-        flags=re.DOTALL
-    )
+        '', text, flags=re.DOTALL)
     return text
-
-def is_garbled(line):
-    stripped = line.strip()
-    if not stripped:
-        return False
-    if stripped[0] in '#-=|>':
-        return False
-    non_ws = stripped.replace(' ', '')
-    if len(non_ws) < MIN_LINE_LENGTH:
-        return False
-    letters = sum(1 for c in non_ws if c.isalpha())
-    return (letters / len(non_ws)) < LETTER_RATIO_THRESHOLD
 
 def clean_file(path):
     text = path.read_text(encoding='utf-8')
     orig_lines = text.count(NL)
     text = remove_picture_text(text)
-    lines = text.splitlines(keepends=True)
-    cleaned, removed = [], 0
+    # Split into paragraphs (blank-line separated)
+    paragraphs = re.split(r'(' + NL + r'{2,})', text)
+    cleaned = []
+    removed_lines = 0
     in_code = False
-    for line in lines:
-        if line.strip().startswith('```'):
-            in_code = not in_code
-        if in_code or not is_garbled(line):
-            cleaned.append(line)
+    for chunk in paragraphs:
+        if chunk.strip().startswith('```') or in_code:
+            in_code = not chunk.strip().endswith('```') or in_code
+            cleaned.append(chunk)
+            continue
+        if re.fullmatch(r'(' + NL + r'+)', chunk):
+            cleaned.append(chunk)
+            continue
+        if is_garbled_paragraph(chunk):
+            removed_lines += chunk.count(NL) + 1
         else:
-            removed += 1
-    text = re.sub(NL + '{3,}', NL * 2, ''.join(cleaned))
-    path.write_text(text, encoding='utf-8')
-    final_lines = text.count(NL)
-    return orig_lines, orig_lines - final_lines
+            cleaned.append(chunk)
+    result = ''.join(cleaned)
+    result = re.sub(NL + '{3,}', NL * 2, result)
+    path.write_text(result, encoding='utf-8')
+    return orig_lines, removed_lines
 
 if __name__ == '__main__':
     total = 0
@@ -55,6 +90,7 @@ if __name__ == '__main__':
             continue
         orig, removed = clean_file(md)
         if removed:
-            print(f'{md.name}: removed {removed}/{orig} lines ({removed*100//max(orig,1)}%)')
+            pct = removed * 100 // max(orig, 1)
+            print(f'{md.name}: removed ~{removed}/{orig} lines ({pct}%)')
             total += removed
     print(f'Done. Total lines removed: {total}')
