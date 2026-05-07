@@ -1,7 +1,5 @@
-**==> picture [434 x 583] intentionally omitted <==**
-
-**==> picture [482 x 582] intentionally omitted <==**
-
+**
+**
 Krieger Wyrmfoe and the Death Bear _**1**_ 
 
 ## Krieger Wyrmfoe and the Death Bear 
@@ -144,10 +142,7 @@ The beast stood higher than many of the trees in Krieger’s home sept. The chil
 
 By the time Krieger had recovered enough to give the anthem of war, the Gurahl’s claws had done their work. Blind with rage, Krieger tore into the bear’s flank, just as his packmates appeared from the night to join him. Krieger smelled children’s blood from the 
 
-**==> picture [184 x 14] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-Werewolf Storytellers Handbook<br>**----- End of picture text -----**<br>
+**
 
 sand, Garou blood from the creature’s claws as it slashed Stone-Softens’ gut open, but something was missing. He released his grip on the bear and jumped back, barking for his pack to do likewise. 
 
@@ -252,10 +247,7 @@ Werewolf Storytellers Handbook
 
 Contents 
 
-**==> picture [535 x 737] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-12 Werewolf Storytellers Handbook<br>**----- End of picture text -----**<br>
+**
 
 _[The art of the novel] happens because the storyteller’s own experience of men and things, whether for good or ill — not only what he has passed through himself, but even events which he has only witnessed or been told of — has moved him to an emotion so passionate that he can no longer keep it in his heart._ 
 
@@ -625,10 +617,7 @@ Not everything has to be shackled to the **Vampire** mythology, you know.
 
 Introduction 
 
-**==> picture [535 x 737] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-24 Werewolf Storytellers Handbook<br>**----- End of picture text -----**<br>
+**
 
 _A tremor ran through the body of the terrifying creature, followed by another and another, until it was shuddering violently. After a minute a young female wolf was standing among the people in the clearing._ 
 
@@ -834,10 +823,7 @@ Not all those cubs survive. Some are lost to the routine problems of infant mort
 
 Overall, there is about one Garou per 500,000 people in areas relatively hospitable to werewolves. That’s presumably one-fifth the number of vampires and maybe twice the number of mages, for those looking for quick comparisons, but keep in mind that the different sorts of supernatural beings favor different environments. Vampires flourish in the midst of places that are painful and dangerous for werewolves, and vice versa. Mages cluster in their own communities, pursuing aims that seldom make sense to werewolves and in general staying out of werewolves’ way, just 
 
-**==> picture [211 x 15] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-Chapter One: The World of the Garou<br>**----- End of picture text -----**<br>
+**
 
 as sensible werewolves usually avoid hassling magicians unnecessarily. Unless you’re running the World of Darkness as farce, the supernatural communities don’t all share a block in some residential suburb, and indeed are likely not aware of each other at all except in the vaguest terms: “It’s good not to go stirring up trouble there, because you get trouble back.” 
 
@@ -985,10 +971,7 @@ So how many Garou holidays are observed? Hundreds, although most werewolves show
 
 Too many avenues exist to adequately cover the introduction of religion into a storyline. The key is to use spirituality as a device for adding drama, flare, and depth to a story, rather than making oblique comparisons that come off as cliché and cheesy. It’s a Storyteller’s responsibility to understand, and help her players understand the beliefs that drive a particular character. Also impor- 
 
-**==> picture [537 x 391] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-38 Werewolf Storytellers Handbook<br>**----- End of picture text -----**<br>
+**
 
 ## _An Often Thorny Subject_ 
 
@@ -1456,10 +1439,7 @@ As such, the attainment of Rank Six has nothing whatsoever to do with rules — 
 
 The story of a character (or a _pack_ !) attaining Rank Six is, to be honest, quite possibly the most epic story you could possibly tell. Very little compares in terms of scale; even the esteemed Silver Pack is outranked by an elder of this magnitude. You may want to forgo the actual challenge to rise in Rank for such a story; after all, considering the nature of the deeds a character must have undergone to be worthy of consid- 
 
-**==> picture [536 x 380] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-54 Werewolf Storytellers Handbook<br>**----- End of picture text -----**<br>
+**
 
 eration, any challenge might well be anticlimactic. If you do choose to make a challenge part of the process, make it truly memorable; a raid into the heart of Malfeas, the task of learning one’s own genealogy back to the days of the Impergium, or other such nighimpossible tasks. Break out your book of old fairy tales — this is where the mountains of glass, redirecting of rivers, and similar astonishing feats come into play. 
 
@@ -2057,14 +2037,7 @@ Not all _hengeyokai_ welcome the new arrivals with the same degree of enthusiasm
 
 The Hakken have little use for their cousins and would prefer to see the Stargazers kept on the margins of the Courts, if indeed they must belong at all; some argue that the Stargazers cannot be trusted to defend the Courts, considering their history with the Garou Nation. Since the Stargazers joined, Hakken have goaded each other into ever-greater displays of prowess and noble correctness, setting an impossible standard 
 
-**==> picture [14 x 10] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-
-**==> picture [184 x 14] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-Werewolf Storytellers Handbook<br>**----- End of picture text -----**<br>
+**
 
 for werewolves unfamiliar with Beast Court ways. Every court with Hakken elders hosts very complex games of intrigue behind the scenes, with efforts to maneuver the Stargazers into situations where they must become disgraced. The Hakken would be perfectly happy to see the Stargazers wander elsewhere, anywhere else but the Courts. 
 
@@ -2076,10 +2049,7 @@ And the Kumo, it’s said, await the chance to welcome their new neighbors… pr
 
 Chapter One: The World of the Garou 
 
-**==> picture [535 x 736] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-78 Werewolf Storytellers Handbook<br>**----- End of picture text -----**<br>
+**
 
 _Once again I lost myself in the moment, in the everlasting now of my wolf-life. It’s as though I live with a separate notion of time when I’m a wolf, in a perpetual present renewing itself constantly, and I have no concept of tomorrow or yesterday, no sense of a time other than the very night of my transformation. My whole memory is tied to the physical, the tangible objects of my desire. My only future is the hunger I feel that causes me to stalk._ 
 
@@ -2595,10 +2565,7 @@ Details matter when the characters are at home, too. How close is too close to s
 
 • **Werewolf** concepts provide neat fictional explanations of many real things. **Werewolf** is a game about hidden truths. There are forces at work that people (and most animals and plants) don’t know 
 
-**==> picture [289 x 24] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-Chapter Two: The Battlefield<br>**----- End of picture text -----**<br>
+**
 
 about. So you have a great deal of freedom to say “this aspect of the game world really accounts for this interesting thing I found in history or current affairs.” 
 
@@ -2886,10 +2853,7 @@ While there are no hard and fast rules for roleplaying spirit encounters, the fo
 
 Chapter Two: The Battlefield 
 
-**==> picture [536 x 734] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-110 Werewolf Storytellers Handbook<br>**----- End of picture text -----**<br>
+**
 
 _“If we ever meet again, Hazel-rah,” said Dandelion, as he took cover in the grass verge, “we ought to have the makings of the best story ever.”_ 
 
@@ -3181,10 +3145,7 @@ The first story is a test for everyone involved. The characters are facing their
 
 A major caveat of this method is not to try everything on the list in one story. Pick and choose ele m e n t s that work nicely together, or create a nice contrast (how about 
 
-**==> picture [165 x 15] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-Chapter Three: The Chronicle<br>**----- End of picture text -----**<br>
+**
 
 characters to see if the concepts they dreamed up will stand against the rigors of roleplaying, and to see if those concepts are appropriate to the chronicle. The Storyteller is testing moods, themes, ideas, his own characters, and his storytelling and gamemastering abilities. The first story needs to have effort poured into it — it is, after all, the measuring stick by which every other story in the chronicle will be judged. 
 
@@ -3438,14 +3399,7 @@ If ever there was a place for cinematic combat, this is it. Dramatic speeches ar
 
 During a long chronicle, a pack of Garou can make enemies in high places fairly easily. Powerful Wyrm- 
 
-**==> picture [20 x 9] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-
-**==> picture [184 x 14] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-Werewolf Storytellers Handbook<br>**----- End of picture text -----**<br>
+**
 
 ## _Running the Apocalypse_ 
 
@@ -3483,10 +3437,7 @@ You may wish to take a break from Storytelling for a while. One of the other pla
 
 Chapter Three: The Chronicle 
 
-**==> picture [536 x 737] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-130 Werewolf Storytellers Handbook<br>**----- End of picture text -----**<br>
+**
 
 _Though the hero may win the day, it is his terrifying opponent who gives vitality to these tales. Monsters and dragons come in all shapes — and can, of course shift shapes at will… Evil may enter the world in the guise of a single creature, but its family multiplies quickly, and there is never an end to the trials of a true hero._ 
 
@@ -4014,10 +3965,7 @@ falsely represent their products, selling fake crab and other items as the real 
 
 • **King Breweries and Distilleries:** By secretly altering alcohol contents and launching an aggressive and successful ad campaign, King snares devoted new 
 
-**==> picture [536 x 396] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-146 Werewolf Storytellers Handbook<br>**----- End of picture text -----**<br>
+**
 
 customers each successive generation. Even though the company publicly denounces underage drinking, most ads don’t feature anyone over 22 years of age. 
 
@@ -4129,10 +4077,7 @@ Thus the subtlety of the Wyrm is perennial. Gaian Garou that fall to the Thrall 
 
 It is important to convey the horror of such a weapon when using the Black Spiral Dancers in a **Werewolf** chronicle. Planting the idea in the players’ minds that any werewolf, any pack, represents a potential for service to the Wyrm is vital to the horror represented by the fallen tribe. A character with the Allies Background, for example, might find that when she calls on a former pack mate that they are not at all what they once were and that they are, in fact, something much, much more. A character with the Nightmares Flaw may have recurring night- 
 
-**==> picture [537 x 394] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-150 Werewolf Storytellers Handbook<br>**----- End of picture text -----**<br>
+**
 
 mares centered on her involvement in the complete massacre of the men of a colonial New England hamlet and the unnatural violation of the girls and women of the town as she laughs and watches. It may be revealed later to the character that one of her early American ancestors fell to the corruption of the Wyrm and betrayed the Kinfolk he was sworn to protect. 
 
@@ -4476,10 +4421,7 @@ This scenario sort of reverses the “New Neighbors” story seed. Here, the DNA
 
 Chapter Four: The Adversaries 
 
-**==> picture [537 x 737] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-162 Werewolf Storytellers Handbook<br>**----- End of picture text -----**<br>
+**
 
 _In the middle of the journey of our life I came to myself within a dark wood where the straight way was lost._ — Dante Alighieri, _The Divine Comedy_ 
 
@@ -4697,10 +4639,7 @@ The war between the Uktena, Wendigo, and the European Garou finally ended with t
 
 Amidst this chaos, the Wendigo and the Uktena fought to protect their remaining caerns from the 
 
-**==> picture [532 x 373] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-Chapter Five: Breaking the Mold 171<br>**----- End of picture text -----**<br>
+**
 
 encroachment of European settlers and other werewolves. All the while they needed help to stop the Storm Eater, which was powerful enough to remold the entire Penumbra of the American West into a storm of its own creation. The desire to stop the Storm Eater won out in the end. 
 
@@ -4754,10 +4693,7 @@ When the great stock market crash of 1929 occurred, it sent the world economy sp
 
 It’s hard to understand today what World War II was like, although watching the first twenty minutes of _Saving Private Ryan_ isn’t a bad way to get in the mood 
 
-**==> picture [534 x 374] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-Chapter Five: Breaking the Mold 173<br>**----- End of picture text -----**<br>
+**
 
 for a chronicle set in the war. Hitler isolated England and rained terror and death down upon its citizens. Fascist governments ruled Europe with an iron fist. Stalin ground the bodies of Russian soldiers under the wheels of the German blitzkrieg in the hopes of slowing it down. These madmen took mass slaughter and raised it up a notch to genocide. May no one ever have to experience anything like the concentration camps again. Africa was in flames as the Axis fought the Allies. Japan ran over the rest of Asia. The United States remained caught up in isolationism until a Japanese sneak attack on Pearl Harbor destroyed the entire Pacific fleet. No one knew how the war would end, and the Axis could have won. 
 
@@ -4861,98 +4797,7 @@ The Garou may disintegrate into the predictable rounds of blame and recriminatio
 
 Chapter Five: Breaking the Mold 
 
-**==> picture [21 x 9] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-
-might be finally forced to recognize that no one tribe can bring Gaia back into balance alone. The Wyld is an indiscriminate killer, and shows no mercy to animals or humans. This gives you a chance to put members of all the tribes together peacefully, united for a common purpose. A variant of this setting would allow you to have your player characters be tribeless, perhaps Gaia’s plan to recreate the One Tribe. 
-
-This type of natural disaster lets the Storyteller literally rework geography. If you like the idea of the flame from the Statue of Liberty just breaking the surface of the Atlantic Ocean, go for it. Want to turn all of Florida into the Everglades? It’s your world. Sea levels could drop, revealing ancient ruins long forgotten, possibly releasing imprisoned evils from the distant past. Maybe the secret to stabilizing the weather and appeasing the Wyld lies hidden somewhere in the world. 
-
-Perhaps nothing can be done to stop the weather. Werewolves and humans must learn to adapt. Gaia may create a sanctuary — a place like Summer Country on Earth, which the Garou have to find. The werewolves not only have to get themselves to this hidden sanctuary but their Kinfolk as well. 
-
-## _We Who Forget the Past…_ 
-
-Werewolves have been born, lived, and died in the post-Apocalypse world for many generations. Only stories remain of the Time Before, and those few have taken on the character of myths. Surely, a world like that could never have existed in this bleak, dark, devastated place. The characters should be well prepared for a harsh life, with suffering in the past and the prospect of more suffering for the future. Attacks by Wyrm-creatures, Black Spiral Dancers, and renegade Garou occur with depressing frequency. 
-
-Amidst all of this pain, one pack of young Garou finds a spirit gate that will let them journey to the past and possibly stop the Apocalypse. Of the many problems this raises, one of the first is that none of them knows what they would have to fix. How did the Apocalypse start in the first place? While they know that the gate will take them to the proper time and place, they do not know what they need to look for once they get there. According to the myths, the werewolves of the time were great heroes who died trying to defend Gaia. They failed, so how could this young pack hope to succeed? And yet, it would be worse for them to have a chance and not even try. 
-
-This scenario suggests an epic campaign where if the young werewolves succeed in changing the past, they may cease to exist. Heroes of the past could be the ones that they have to stop. Maybe they need to aid the minions of the Wyrm in their efforts to wreak havoc to break a series of events that leads to Armageddon. Other possibilities 
-
-include a second pack being sent from the future to stop them. Does the spirit gate work in reverse? What happens if Black Spirals take over the future? Depending on your troupe, a nasty sequel to this type of chronicle might be a return trip when the actions that the Garou take only lead to a less destroyed but darker future. 
-
-As an important note with this type of scenario, don’t get too wrapped up in causality. If you allow questions like “well, if we fix it, we won’t exist so we wouldn’t have gone back so we wouldn’t have fixed it” to be commonplace in your chronicle, you’ll only end up with a bunch of frustrated players. It’s a time travel chronicle — it’s not meant to be realistic! One option is to create a spirit guardian of the gate that explains that if the pack changes the past, the changes will be permanent, even if the timeline is changed. End of discussion and everyone goes back to worrying about what to do instead of trying to wrap their heads around the space-time continuum. 
-
-## _Victory!_ 
-
-The Wyrm has been healed — or even destroyed! The werewolves have survived the Final Days! Gaia’s defenders did it. So, now what? What happens after the Wyrm is defeated? Without the constant threat of the Wyrm, do the tribes turn on each other? Does Gaia need the Garou at all? They always focused their rage against the Wyrm and its minions. Without the destructive power of the Wyrm, the Garou slowly lose their rage. Inter-tribal warfare rears its ugly head as the different tribes try to dominate in this time after the Wyrm. 
-
-For deep roleplaying, werewolves could slowly lose their ability to change forms. They have to choose which form to stay in, because like a child making silly faces, they could freeze that way. The Corrupter Wyrm may be gone, but not all of its human servants. Evil still exists in the world. For example, vampires are not necessarily Wyrm creatures. Can werewolves still protect their caerns or live their lives if Gaia no longer needs them? Does the Weaver become the big enemy? Glass Walkers may find themselves in a very bad light with the other tribes. 
-
-And if the Wyrm was actually _destroyed_ — not healed, but wiped from the universe — what then? Without a force of Balance at all, the universe might quickly become unraveled as the Weaver and Wyld fight for dominance with nothing to keep them in check. Can something else be restored to the position of Balancer? Could the Garou themselves be the ones to find a way to replace the Wyrm? 
-
-## _Welcome to the Apocalypse_ 
-
-The Eye of the Wyrm is fully open; the time has come for the Final Battle. Werewolves must try to summon the spirits of their ancestors and gird themselves for war. 
-
-Werewolf Storytellers Handbook 
-
-Nothing must be held back, because the Wyrm’s agents are coming in force. This chronicle takes place in the last of the Final Days. The final signs come to pass on Earth and in the Umbra signaling the end of the world. 
-
-This is an ambitious setting, filled with high drama and desperation. **Werewolf** characters in this chronicle might be far more powerful than a starting character, generated using the rules presented in Chapter One, or they might be footsoldiers in the Final Battle. Don’t pull any punches: this is the big one, the end. A sense of urgency should surround the characters’ every action. The Black Spiral Dancers, fomori, and the like should have a similar sense of desperation, or overconfidence if you prefer. 
-
-The chronicle should build to a final battle, taking place in the Umbra and on Earth. Ultimately, it would be nice if the Garou won, but not totally necessary. Perhaps the end should be like Ragnarok in Norse legend. The warriors all die great and noble deaths, slaying their enemies, leaving behind only a few survivors, the peacemakers, the kinder and gentler sorts who can build a better world for the future. How successful the characters were in the stories building up to the final battle should help determine the final result. Maybe they die from wounds suffered in the battle, but only after they have a chance to see victory. Maybe the good guys lose, but they somehow survive to try to rebuild werewolf society and keep fighting until the bitter end. 
-
-Running the Apocalypse allows you to do a tour de force of all the major heroes and villains from your chronicle. Take every character you’ve ever liked from every Werewolf sourcebook and run with them. Let the characters journey to the surface of Anthelios, or gather the greatest heroes from each of the Near Realms to aid them. Enjoy yourself and make it an event for your group to remember. If you want to go really overboard, get cheap buttons made saying “I survived the Apocalypse” or “I died in the Apocalypse.” Your players will wear them with pride for years to come. 
-
-## _Impergium?_ 
-
-The Stargazers were right. The Apocalypse was only another stage in an eternal cycle. That cycle has turned. Humanity sent itself back to the Stone Age eons ago. Now, the Garou find themselves confronting an exploding human population… one that has developed agriculture, is beginning to form cities, and is rapidly expanding across the globe. So now what? 
-
-The werewolves remember the stories of the Impergium. Will they let it happen again? Can they stop the cycle from repeating itself even if they want to? This is much like a historical chronicle of the Impergium, but this time humans may be a bit more prepared. Spirits may oppose the idea of a Garou Impergium. Hard-line werewolves may see this as a time of necessary action. 
-
-After all, if the Impergium had remained in effect, the Apocalypse would never have happened. 
-
-You can use this variant in conjunction with some of the other post-Apocalypse settings. Perhaps nuclear war was the Apocalypse, and human civilization has finally begun rebuilding a few thousand years later. The characters may all have memories of the Apocalypse from their ancestors. 
-
-## _Other Variants_ 
-
-Post-Apocalypse settings are not the only variants to the **Werewolf** world. Changing parts of the **Werewolf** mythology provides plenty of ways to change the tone of your chronicle, while still having it be about werewolves. Above all, your chronicle is a way for you and your players to have fun, while telling a story together. Never let the rules or the “official” storyline get in the way. 
-
-**Werewolf** ’s rules and themes can translate into alternate settings that may not be recognizable as a **Werewolf** game to outsiders. This can be a great way to wake up players and get them to think. In addition, it provides a special challenge to the Storyteller. By creating your own world as a Storyteller, you have greater control. Also, if you’ve run a number of **Werewolf** chronicles, it gives you a chance to do something different, but still enjoy your favorite (we do hope it’s your favorite) game system. 
-
-Look at settings from fiction and find elements you like. You could throw all pretense of a serious game out the window and send a pack to the stars to fight giant bugs in some kind of _Starship Troopers_ with fangs. If you want to do high fantasy or sword and sorcery, having characters with the ability to turn into werewolves should make that horde of orcs or barbarians think twice. They could be the holy warriors of the Great Wolf. Maybe being a werewolf is a true curse, not a gift, and the characters are fighting to free themselves. 
-
-The selections that follow are only a few ideas on possible variant **Werewolf** games. They are more meant to fire your imagination than anything else. If you like an idea but don’t want to unbalance or radically transform your current chronicle, use the setting as part of a dream or a realm in the Umbra. Many of these settings have a particular theme or tone and could be used as analogy or symbols for events in an existing chronicle. 
-
-The bottom line is this: don’t be afraid to do whatever you want with your game. As the Storyteller, it’s your world, your creation, and your plot. Although we’ve said it before, it bears repeating: the only rule is to have fun. 
-
-## _The Last Defenders of Gaia_ 
-
-In the distant future, scientists have created the perfect soldiers. Mixing unstable DNA from wolves and 
-
-Chapter Five: Breaking the Mold 
-
-humans, werewolf warriors now wage war upon their country’s enemies. Cybernetic implants and combat drugs help them reach a state where they become nearly unstoppable killing machines. Science celebrates werewolves as the ultimate triumph of technology and nature. They inspire fear in their enemies, regenerate from nearly any wound, and depend on scientific treatments to ensure their loyalty and keep them breathing. 
-
-In a dark cyber future, werewolves serve as a special police force and elite soldiers. They receive orders from “The Man” with ruthless efficiency. Their forms are as much meant to engender fear as to serve practical purposes. Alternatives to werewolves exist, in the forms of slayer androids and other genetically enhanced cyborgs, but none of them inspires the visceral terror of the werewolf. 
-
-In this variant, the Garou don’t exist. These aren’t the spirit-loving naturalistic wolves we know and love. Maybe the last Garou died defending the final caern decades ago. The Veil still exists, but it’s much weaker. People know about the werewolf project. Werewolves may scare the hell out of them, but no one denies their existence. Gifts are special implants or cyber drugs given to the characters to help them complete their missions. Werewolves can expect to be outfitted with a full compliment of modern weaponry and receive official or unofficial sanctioning from their creators. Everything’s 
-
-all set for a kill-fest of corporate warfare and amoral carnage. Woe to anyone who gets in the way. Oh, silver’s not any more of a problem than any other metal. 
-
-Some Gifts aren’t found in this world. Who needs to talk to spirits that don’t exist? Gnosis shouldn’t matter much. The Umbra doesn’t exist, so no one needs to worry about Gaia… or do they? 
-
-Dark future settings usually wind up with the main characters finding out some kind of nasty secret that could hurt “The Man”. Corporations always need a reason to turn on their creations and vice versa. Why should we be any different, especially when we’ve got a whole set of books full of them? 
-
-## **The Resurrected** 
-
-In this variant of the Garou-as-engineered-soldiers, Gaia and the Umbra do exist. Perhaps the Garou are long gone, victims of the Apocalypse or simply hunted into extinction ages past. Gaia has not forgotten her protectors. Now, modern science has found a way to bring them back. Gaia’s spirits want them back, and they don’t intend to leave them alone. What happens when the artificial werewolves of the future tap into the Umbra? Do their creators decide that the creations are going insane? What happens when they realize what the Weaver and the Wyrm have done to the world? Do their loyalties lie with the government and scientists who created them or with a spirit world desperate to have 
-
-**==> picture [536 x 357] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-180 Werewolf Storytellers Handbook<br>**----- End of picture text -----**<br>
+**
 
 them back? How do their employers deal with spirit magic and real magical Gifts? As the werewolves rediscover the past, they may gain weaknesses to silver, but they also regain Gifts and fetishes. Also, no one said that the Wyrm and its lovely servants ever went away. 
 
@@ -5112,605 +4957,9 @@ Werewolves could be immortal. They may never age once they reach maturity, only 
 
 As Storyteller, you could increase the power level of all werewolves. Detect Wyrm could be a free 
 
-**==> picture [20 x 10] intentionally omitted <==**
+**
 
-**----- Start of picture text -----**<br>
-
-Werewolf Storytellers Handbook 
-
-Gift that all werewolves possess. Silver may not do any more damage to a Garou than any other kind of metal. Werewolves who regenerated at twice the normal rate would find the world much less of a threat to them. 
-
-## _Historical Variants_ 
-
-As mentioned in the section on historical periods, there’s nothing to stop you from playing in a world with an alternate history. Imagine if the Garou lost the War of Rage and werebears were Gaia’s primary defenders. Werewolves fighting as an underground resistance against the Nazi world government would make a fun game as well. Even simple changes to history can have far-reaching effects. What if computers were never invented? It’s a subtle change to the game, but it makes quite a difference in the modern world. 
-
-## _Nazi Earth_ 
-
-World War II is over and the Axis won. Everyone lives under fascism. Werewolves could be resistance fighters struggling against the Axis tyranny. They could also be more concerned about the Wyrm and the world government may simply be getting in their way. The Nazis could also be servants of the Wyrm. The only opposition to Hitler could come from his former Axis partner, the Japanese. This setting would work well with the Hengeyokai sourcebook and characters. 
-
-## _The Second American Civil War_ 
-
-The Confederacy won the Civil War some time ago. Now, the Union has decided that it can no longer tolerate the division, and its factories have produced enough weapons to have a second try. Disputes over western states have pushed diplomats on both sides too far. If your group likes dealing with a lot of tense moral issues, the threat of a modern civil war will make even the most isolated werewolf pay attention. 
-
-## _Welcome to Mars_ 
-
-The United States wasn’t satisfied with being the first country to reach the moon. The space program remained in high gear until the establishment of the first Mars colony. Now, young werewolves travel to Mars in an attempt to open the first caerns and make contact with strange Martian spirits. 
-
-## _The Colonization of Europe_ 
-
-What if the people of North and South America discovered and colonized Europe instead of the other way around? Would we have Incan temples in Spain? How would the Wendigo and Uktena treat their oppressed European brethren? 
-
-## _Getting Stranger_ 
-
-There is no end to the types of strange reasons werewolves could be running around the world, none of 
-
-which necessarily have anything to do with Gaia. Perhaps werewolves are the result of alien genes mixing with humans, as a precursor to an alien invasion. Maybe you have to be asleep in order to be a werewolf, and you stalk your prey in their dreams. Maybe wolves evolved into intelligent beings and are running the earth, with humans a subjugated race. In the end, as we’ve stated several times before, do what you enjoy. Make sure you and your friends have a great time exploring all the potential **Werewolf** has to offer. It doesn’t really matter if your chronicle conforms to the “official” **Werewolf** world, as long as it works for your troupe. 
-
-## _Crossover_ 
-
-The options to explore in a **Werewolf** chronicle are near endless. Politics on the pack, sept, tribal and even global level. Struggles against the Wyrm, Weaver or even Wyld. Umbral Realms from the immense to the pocket-sized. A near-infinite supporting cast of mortals, Kin, spirits, werewolves, fomori and more. 
-
-And yet there’s the potential for more — the rest of the World of Darkness, to be precise. The temptation to bring in other Changing Breeds is fairly powerful; and the temptation to loot the other World of Darkness game lines is sometimes even stronger. 
-
-The main problem, though, is that these alternate character types and societies don’t always blend well with a **Werewolf** game. Not all supernatural types are interested in (or would even believe in) the war against the Wyrm. If the players consort with allies incapable of traveling the Umbra, they might find themselves barred from spirit quests in the interests of fairness. 
-
-So you have a few challenges ahead. But if you’re reading these words, you’re interested in trying anyway, right? More power to you. This section is meant to give you some assistance in wrangling a crossover chronicle into something all your players will enjoy as much as you do. Use these rules as guidelines, adapt them as inspiration, or ignore them completely if you decide something else would work better — you’re the boss. 
-
-## _The Fera_ 
-
-_“Each of the Fera has — or had — a purpose under Gaia. Some of them seem redundant, some mysterious. I have to confess that the Garou’s purpose seems simple, and yet it is the Garou who have developed a complex and overreaching culture. Of course, the other Fera’s growth in this regard may have been stunted.”_ 
-
-— From the journal of Martin One-Name, Glass Walker Philodox (deceased) 
-
-As the name of the game suggests, **Werewolf** is about werewolves. However, other shapeshifters do 
-
-Chapter Five: Breaking the Mold 
-
-exist in the World of Darkness, and it would be somewhat hypocritical to publish books about them and then not expect people to want to play them. This section is meant to show the Storytellers how to integrate the Changing Breeds into **Werewolf** games, either as plot hooks or as player characters. 
-
-## _Fera as Storyteller Characters_ 
-
-Fera can work nicely in supporting roles to the pack, either as allies or contacts (even if the pack is unaware of the true nature of the Fera) or as adversaries. They may show up as one-time plot devices (especially as adversaries) or as recurring characters in a chronicle. 
-
-## _Portraying the Fera_ 
-
-Something to consider about using Fera is that, with only a few exceptions, the other Breeds distrust the Garou at best and bitterly hate them at worst. These bad feelings are usually reciprocated. While the Corax and the Nuwisha, as the two Breeds that deal with the Garou but were least affected by the War of Rage, may enjoy the ability to announce themselves to the werewolves and not expect to be met with fang and claw, this goodwill is not at all universal. Many Garou have heard stories of the other Breeds, but those stories are mostly propaganda (from the maligned Fera’s perspective, at least) and rarely cast the Breed in a positive light. 
-
-When introducing the Fera to a pack of werewolves, stress their strangeness. A Gurahl should not come across as a gentle defender of the wilderness. She should embody the she-bear’s rage, a monstrous, snarling beast. The non-mammalian Fera — especially the bizarre Ananasi — resemble Wyrm-monsters in their middle forms, and the Storyteller shouldn’t draw too much of a distinction between these creatures and fomori or other beasts that the pack may have encountered. If the pack does not attack right away, but tries to identify the threat (especially by using a Gift such as Scent of the True Form), then the “monster” might be revealed as one of the Changing Breeds. This doesn’t mean that everything is suddenly smoothed over, however. 
-
-A lone Fera should never stand and fight against a pack of Garou; all of them know this to be suicide. This means that the werespider they surprise during its nightly feeding turns and then dissolves into a mass of tiny spiders, or the Pumonca they meet by chance on the plains calls on a Gift (one the Garou have never seen) and vanishes. The first meeting with a Changing Breed shouldn’t involve the Fera and the werewolves sitting down and chatting about what a mistake the War of Rage was. The first meeting should be laden with fear — remember, as far as most of the other Fera know, the Garou are still out for blood (which is not always untrue!). 
-
-## _Refresher Course_ 
-
-The Fera are introduced in the **Werewolf Players Guide** and detailed in their respective breed books. However, here is a list of the surviving Changing Breeds and a brief introduction to them: 
-
-• **Ajaba:** The werehyenas, once numerous in Africa, were almost entirely wiped out by the Bastet. Now fewer than a score exist worldwide. (Note: Information on the Ajaba can be found in **Bastet** .) 
-
-• **Ananasi:** The other Fera almost universally despises the werespiders. Loyal in extreme to their Queen Ananasa, they spin their webs and do her bidding. 
-
-• **Bastet:** Nine tribes of werecats currently roam the Earth, from the riddling Qualmi werelynxes in North America to the mighty Khan weretigers of Asia. Considering themselves to be the Eyes of Gaia, the Bastet are warriors and hoarders of secrets. 
-
-• **Corax:** Children of the sun, the wereravens know the Umbra like no other breed (with one possible exception). Of the surviving Fera, they enjoy the best relationship with the Garou. 
-
-• **Gurahl:** Healers, nurturers and guardians bar none, the werebears live quietly, for fear the War of Rage will begin anew. 
-
-• **Kitsune:** The werefoxes are rarely found outside of the Middle Kingdom, except as emissaries for the Beast Courts (see Chapter One and **Hengeyokai: Shapeshifters of the East** for more information). 
-
-• **Mokolé:** Taking the forms of alligators, crocodiles, and other large lizards, the Dragon Folk refer the Garou as “egg smashers” and distrust them at best. 
-
-• **Nagah:** Presumed extinct by most Fera, the wereserpents act as Gaia’s judges and executioners. Secrecy is their greatest law, and their greatest sorrow. 
-
-• **Nuwisha:** Though the werecoyotes didn’t suffer too badly during the War of Rage, only 100 live on Earth — the rest tread the Umbra. They are Gaia’s tricksters and her harshest teachers. 
-
-• **Ratkin:** The frenzied wererats were once charged with keeping human population under control. Now they concentrate on survival first and foremost, but look forward to the day when chaos reigns. 
-
-• **Rokea:** The weresharks do not recognize the Weaver, the Wyld, and Wyrm, but rather have their own culture and their own ideas about the Triat. They believe that Sea — not Gaia — created them to survive the Great Unmaking. 
-
-Werewolf Storytellers Handbook 
-
-If the pack asks the elders of their sept for advice about the Fera, they are likely to hear horror stories. See this book’s **Legends of the Garou** for the sort of thing elder Garou are likely to say about even the gentle Gurahl. Stories of the Mokolé should focus on huge, slavering dragon-like monsters, not the fact that the werealligators are not meant to be Gaia’s warriors, but Her memory. A tale about the Ratkin might feature a brave Garou who faces the hordes of wererats to save his Kinfolk from disease. Remember, too, that many of these legends are oral history, meaning that while they’ve changed with time, they also are not entirely false. 
-
-## _Fera as Allies_ 
-
-How each of the Fera might fit into a **Werewolf** game is covered below. In general, however, if you plan on letting the pack have an ally of another Changing Breed, consider what the ally is getting out of the deal. Remember: The Garou effectively committed genocide on the other Fera, and while the younger generations of werewolves might be very sorry about the whole thing, that hardly makes the Fera feel comfortable around them. Each of the Breeds, therefore, has found ways to hide from the Garou and further their own ends. If a Corax is going scouting for a pack, he might be doing it simply because it’s his job under Gaia — or he might be planning to lead the Garou into a conflict with his own enemies. A Mokolé might consent to use her Mnesis to try and find the answer to a problem the Garou seek, but she may well require an entire quest to prove the pack’s good faith. 
-
-In general, the hardest part of getting the help of one of the Fera should be getting them to sit down and talk (as discussed above). Even if the Fera trusts the Garou not to suddenly tear her in half, she will _never_ lead the Garou to her home (especially true in the case of a Gurahl’s Umbral glade or a Mokolé’s clutch). Also, unless a Fera’s home or Kin are threatened, they will usually not fight alongside the Garou. There are two good reasons for this. First, the 
-
-## _Never Say Never_ 
-
-The reader may notice that reference is made to things that Fera “always” or “never” do. Of course there are exceptions. Of course those exceptions can — and possibly even should — appear in your chronicles. The idea, after all, is that the characters’ pack is special in some way; that’s why they’re the stars of the show. So what if no pack in five centuries has seen — much less befriended — a Gurahl? The pack in _your_ chronicle just might be the first. 
-
-Just make sure to stress exactly how rare and special an event that is. 
-
-Garou’s penchant for bloody Rage is widely known among the other Breeds, and no one wants to be on the same battlefield with a frenzied werewolf. Second, Gaia designed the _Garou_ to be her warriors, not the other Breeds. Since the Garou went out of their way to demonstrate how efficient they were at their job, the other Fera have no compulsions to try and outdo them. 
-
-## _Fera as Antagonists_ 
-
-The motivations a Fera might have for working against the Garou are varied. Perhaps the Garou chased a Black Spiral Dancer right towards the Fera. Perhaps the Fera holds a grudge for the War of Rage (this grudge will be ideological for all except the Mokolé, some of whom might actually remember it). Perhaps the Fera doesn’t hate the Garou in general, but loathes the pack (or one pack member) for a past slight. On the other hand, the Fera might simply be a sadistic, bloodthirsty monster and want to hurt the pack simply to see them in pain. 
-
-The Storyteller should clearly define the reason for the Fera’s hatred if she plans to use such a creature as a pack’s enemy. Going looking for trouble with the werewolves is not a safe proposition for anyone, and while certain Fera may not care, any action taken against the Garou by the other Breeds damages their already shaky relations. 
-
-If the Fera has a personal grudge against the Garou and/or the pack and wishes to see them come to harm, she can lead all sorts of trouble to the Garou’s door. She can set up ambushes and lure the werewolves into dangerous situations, perhaps appearing to strike while the pack is busy fighting another foes and then vanishing again before they realize her presence. A truly vicious adversary may stalk the Garou’s Kinfolk, perhaps using Animal Attraction to seduce them (imagine the horror of the werewolf who discovers that his Kin is carrying the child of a werespider!). 
-
-If the Fera’s interests merely run counter to the Garou, however, he is unlikely to take violent action, direct or otherwise, against the pack. The Fera know how difficult werewolves are to kill, and doing so isn’t a venture to enter into lightly. If the Garou are simply disrupting the Fera’s territory or venturing too close to his home, he may stir up trouble elsewhere, to drag the werewolves away from his turf. If their battles are attracting too much attention from their enemies, the Fera may actually help the pack covertly for a time, but attempt to get the enemies and the Garou to finish each other off, simply to make the area safe again. 
-
-## _Caveats_ 
-
-When using the Fera as Storyteller characters, whether friend or foe, some dangers present themselves. Beware of: 
-
-Chapter Five: Breaking the Mold 
-
-• **“Monster of the Week” Syndrome:** During the last story, the characters ran afoul of an angry werebear, recently awakened from hibernation. During this story, the pack finds a newly-Changed Bastet, and must decide what to do with her. Perhaps next story, they will all realize that a raven watches them wherever they go…. 
-
-Each of the Fera is special and creates its own unique mood. Using one shapeshifter after another cheapens this, and creates the illusion that the world is overpopulated with were-creatures. Of course, if the theme of the chronicle revolves around the various Fera, as shown in the examples in Chapter Three, more frequent meetings with the Fera become part of the mood. Unless this is a major theme of the chronicle, however, beware of bringing in more than one Fera. 
-
-**• Familiarity:** The Garou do not teach classes on the other Fera, and even if a Garou’s mentor happens to be fairly knowledgeable about them, she certainly isn’t going to use the **Mokolé** book as a text for the lesson. The Garou do not know creation legends and general philosophical outlook of each of the Fera, and frankly, the Breeds aren’t going to be too keen on enlightening them. Information is power, after all, the Garou have enough already. 
-
-Even if the pack befriends another Fera, that shapeshifter should be constantly on guard. She might trust the pack, but not at all trust the other Garou at the sept. She will not teach them Gifts or tell them of her society, beyond some fairly useless (if interesting) tidbits. This isn’t a matter of stubbornness (usually); the Fera see it, quite accurately, as a matter of life and death. 
-
-**•** _**Fera ex machina:**_ The Fera have powers and Gifts that the Garou do not, and many of them are quite impressive (even “cool”). This does not mean that the Storyteller is free to let the pack’s buddy, who just happens to be a Rank Five Bagheera, show up in _Juddho_ form and lay waste to the pack’s enemies. A Fera ally of the pack should be treated like any other ally with regards to avoiding _deus ex machina_ , if not even more carefully. It pisses players off to have “the Storyteller’s pet characters” hog the spotlight, and since Fera attract attention by their very nature, they should be used with caution. 
-
-## _Fera as Characters_ 
-
-If the Storyteller chooses to allow a player to have a non-Garou character in a **Werewolf** game, she should be aware that the inclusion of that character is likely going to be a major theme in the chronicle. A werewolf pack that goes on a quest with a Corax, of course, won’t draw as much attention as a (non-Bone Gnawer) pack with a wererat companion. But even in the case of the more “Garou-friendly” breeds, a lot of 
-
-explanation needs to go into why the pack has a Fera buddy and why the Fera wants to hang out with the wolves in the first place. 
-
-## _Agendas_ 
-
-Each of the Fera, as noted above, has its own concerns and agendas. The Gurahl, for example, are charged with healing and giving succor. This makes a pack that boasts three Ahroun and Griffin as its totem a rather poor choice for a Gurahl character. If a player wishes to play a Fera, the character’s concept must give the Fera some reason to associate with werewolves. If the character is a typical member of her breed, then the pack’s quest (and totem) should mesh with the Fera’s purpose. If the character is some sort of rogue — on the run from her own people, perhaps, and seeking refuge with the Garou — then how does she view her Gaia-given task? Does the Nuwisha who has grown disillusioned and travels with the Garou pack continue to play tricks, or does she simply try to keep the Garou in good spirits? 
-
-And then there is the not inconsiderable problem of how the pack’s elders view their odd friend. This will largely depend on the dominant tribe(s) of the sept, of course; the Get of Fenris would quite likely welcome a Corax into their midst, but if the kids bring home an Ananasi, the elders will justifiably be horrified. On the other hand, a sept of Glass Walkers might appreciate the knowledge of Weaver-spirits that a werespider could bring to the table, but the raw chaos that accompanies the Ratkin would likely be a cause for much consternation. 
-
-Despite what some Garou have been taught, there is no one tribe that relates well to any particular breed as a matter of course. Yes, the Bone Gnawers and the Ratkin share a totem, but if the pack is suddenly attacked by a swarm of rats, simply yelling, “I’m a Bone Gnawer!” isn’t likely to get much of a response (other than “Really? We gnaw bones, too. Watch!”). This in mind, the reason for including a Fera in the pack needs to be more than “Well, my character is a Child of Gaia, and they get along with everybody, so we could have a Mokolé who feels secure around our pack.” Maybe the Fera’s prelude could coincide with one of the characters’, or perhaps the Fera lends a hand on a whim during the pack’s first mission. Whatever the reason, the relationship between the characters needs to be well thought-out; Garou do not mingle with the other Fera “just because.” 
-
-## _Outside the Pack_ 
-
-Some Fera — Garou, Rokea, and Ratkin, for example — travel in groups, complete with totems. The rest are solitary beasts. Besides the obvious difficulty this presents for the loner Fera who must fight instinct to adventure with a pack of Garou, there are other issues as well. 
-
-Werewolf Storytellers Handbook 
-
-One of the main problems this causes is that it tends to make gathering Renown difficult. The pack may praise the Fera at Garou moots, but Renown granted by the Garou is recognized minimally or not at all by the Fera’s own kind. Worse yet, some breeds may actually lose Renown by associating too closely with the werewolves (notably the Mokolé and the Bastet). While Breeds such as Ananasi and Corax can report to their kind fairly easily and thus gain Renown, the often-bloody exploits of the Garou may not garner them the Renown they need to rise in rank (of course, it’s all in how one tells the story). 
-
-Another problem is that of totem. As mentioned above, the pack’s totem must at least approve of the Fera’s presence, but unless something truly extraordinary happens, the Fera isn’t going to receive the totem’s benefits (if a Ratkin journeys with a pack that follows Rat, or some similar situation, this may change, of course). This poses several difficulties for the Fera besides not getting the same bonuses that the werewolves get from the totem. For one thing, the Fera cannot act in concert with the pack during combat. The Fera is exempt from pack initiative and any pack maneuvers involving her receive a +2 difficulty. However, this is not the worst of it. 
-
-Without the blessing and acceptance of a totem, the Fera is forever an outsider. The werewolves in the pack are bonded mystically, and therefore share a connection that transcends words and feelings. Even if the Garou aren’t exactly best friends, they understand each other and are ready to leap to each other’s aid at a moment’s notice. Longtime packmates may finish each other’s sentences or make inside jokes (just like any group of longtime associates) — but no matter how long the Fera has been traveling with the pack, he is always the odd man out. For the solitary breeds, this may prove little more than an annoyance, although a human-born shapeshifter might feel excluded. For the social breeds, however, it can be torture. A betweener Rokea who befriends a pack of werewolves may enjoy their company, but he will never truly fit in, regardless of how much he learns of werewolf culture. Over time, this can lead the Fera into depression, restlessness, and resentment. 
-
-## _Bending the Barriers_ 
-
-It’s going to be inevitable. Sooner or later, a player will ask you if he can play a Garou/Bastet metis hybrid with the powers and Gifts of both, or another player may try to learn the upper-level powers of the Nagah to increase his ass-kicking quotient, or some similar situation will arise. The following advice is the official way that such things are addressed in the World of Darkness. You may decide differently; that’s fine. Just 
-
-remember that these rules are meant to keep each Changing Breed special, rather than letting homogenous blends of all the coolest powers rule the day. If you don’t mind changing that principle, go right ahead. Either way, here you go. 
-
-## _Gifts and Lore_ 
-
-The lore of the Changing Breeds is full of tales about sharing and stealing Gifts and rites; the Gurahl claim to have taught the Garou rites of accord, the Bastet claim to have stolen Gifts from nearly everyone, and so on. Clearly, this kind of “cultural exchange” seems likely to have happened before. And it’s still possible — with a few restrictions. 
-
-First, the Gift or rite in question cannot rely on the unique capabilities of its parent Changing Breed. A Garou could no more learn the Ananasi Gift of Spinnerets (which requires literal spinnerets) than could an Ananasi learn Song of the Dire (which requires a Hispo form capable of howling). Never let pure ruleslawyering override common sense. 
-
-Second, if the Gift is something that both species (or tribes) can use at varying ranks, the student can learn it only at the level he could normally acquire it. A werewolf must learn Catfeet at Level Three, whether he has a Bastet teacher or not. The varying levels of some commonly shared Gifts represent a Changing Breed’s innate knack for some tricks — and this knack can’t be taught. Nuwisha will always be better than Bastet or Mokolé at Umbral travel, and that is that. 
-
-Third, the Gift in question must be no higher than Level Three. Level Four and Five Gifts are the exclusive property of their Changing Breed. (Some Storytellers may also choose to extend this rule to learning Gifts across tribal barriers; it does seem silly for a Get of Fenris to be able to learn Call the Cannibal Spirit, no matter the circumstances.) Similarly, any rites that strike the Storyteller as completely exclusive to one type of shapeshifter — such as the Rite of the Birthing Plague — are off-limits. 
-
-Finally, you can forbid players to learn _any_ Gift or rite outside their Changing Breed. It’s up to you to determine which tricks can be shared and which can’t — and your word goes. Period. 
-
-## _Cross-Breeding_ 
-
-Obviously, each Changing Breed can take human form, and thus representatives from any two Breeds are capable of mating. So the question is: Can they produce shapeshifter offspring? Specifically, hybrids. 
-
-The answer is generally no — two different shapeshifters can produce offspring, but the chances of breeding true to either Breed are greatly reduced. The official reasoning runs as follows. 
-
-Chapter Five: Breaking the Mold 
-
-Shapeshifter status is not solely genetic in nature; in fact, genetics take a back seat to the spirit part of the equation. Each werebeast is half mortal, half spirit; whether the spirit half comes from heritage, a Fetish Egg or the Birthing Plague is irrelevant. The spirit nature of a shapeshifter is unquestionable — and not easily diluted. 
-
-Generally speaking, if two shapeshifters of different Breeds conceive a child, the child has a 5 percent chance to be a shapeshifter of the father’s kind, a 5 percent chance to be a shapeshifter of the mother’s kind, and an 90 percent chance to be a normal Kin to either. If the mother is animal-born (a lupus, feline, etc.), however, any children will be normal Kin to her Changing Breed or shapeshifters like herself — a lupus cannot give birth to a Khan or to tiger cubs, or even to wolves that are Khan Kinfolk. She may only give birth to wolf cubs, and there’s a 5% chance at best that one of them will be Garou. The reduced chance for truebred children is one of the reasons that the various shapeshifter races consider cross-Breed matings dishonorable at best, insulting at worst. The werewolf who takes a Fera for a mate instead of a Garou Kin may not be betraying his race, but he’s certainly ignoring an important duty. Blood feuds have broken out over less. 
-
-In no case can a shapeshifter be of two separate Changing Breeds; a Garou with Bastet blood is simply Kin to the Bastet and nothing more. There isn’t room for two shapeshifter souls in one body. It also follows that the Ratkin Birthing Plague can’t work on other shapeshifters; nor can the Rite of the Fetish Egg. Gaia requires only one duty from each of Her children. 
-
-And in case it need be said, Pure Breed is utterly diluted by such radical crossbreeding. If a Silver Fang with Pure Breed 5 takes a Bagheera who also has Pure Breed 5 for a mate, any children who breed true have no chance at so much as a dot of Pure Breed whatsoever. The purity is lost. 
-
-## _Thematic Integration_ 
-
-Each of the Changing Breeds — Garou included — have certain thematic elements about them. To ignore these elements is to disrespect the breeds. Therefore, when including a Fera in a **Werewolf** game, the Storyteller would benefit by knowing each species’ purpose as granted by Gaia, as well as its basic flavor. _Ajaba_ 
-
-The werehyenas served a noble purpose, once. They made sure that sick and weak animals (and humans) did not die slow, lingering deaths under the African sun. Instead, they tore these unfortunates to shreds. Naturally, humans didn’t often see the good that the Ajaba did. Neither, unfortunately, did the Bastet. 
-
-_Playing a “Unique” Character “I wanna be just like all the different people.”_ — King Missile, “It’s Saturday” 
-
-As discussed in Chapter Three, all characters are unique. A player who wants to play one of the Fera simply so he can stand apart from the rest of the pack is probably a) trying to sponge extra attention from the Storyteller and b) not considering how difficult doing so will really be. 
-
-The Fera are part of the world of **Werewolf** . That does not mean, however, that the Storyteller must allow them as characters, especially without a strong concept. Furthermore, the desire to play a weirdo can be contagious. One player says, “I want to play a Corax!” And a moment later, you’ve got five players who want to play various Fera, but no one who wants to play one of the game’s title characters. 
-
-The best thing to do if you don’t want to host such one-upmanship is make it clear from the beginning that the game is **Werewolf** and the characters will be a pack of _werewolves_ . Offer to aid any player who has trouble thinking of a unique concept. If the player is just looking for a character he feels is unique and special, that’s fine. Offer to tie his character’s back-story into the plot of the chronicle somehow, so that the player feels that his character is indispensable to the chronicle (all of the characters should be, of course). A player who just wants to be different will usually go along with that wisdom. 
-
-A player who is absolutely in love with a given Changing Breed, however, will attempt to plead with the Storyteller. She will arrange her concept, probably with the help and suggestions of other players, so that it makes some sense for her Fera character to be hanging out with Garou. If you find such a player — one who understands the ramifications of playing a Fera and is willing to help you make the character fit into the chronicle — you can probably allow her to play her chosen character type. If nothing else, it makes for an interesting challenge for the Storyteller…. 
-
-The werecats (the Simba especially) never got on well with the Ajaba, and in 1984, the Simba lord Black Tooth led an assault on the Hyena King’s home near Mount Kilimanjaro and slaughtered all present. Only a handful of survivors lived to preserve the line. Now, years later, as Black Tooth’s corpse becomes fodder for worms, the Ajaba feel a sense of hope. 
-
-Werewolf Storytellers Handbook 
-
-**Themes:** The werewolves may not have much left, but the Ajaba have _nothing_ . They hate the Bastet with a passion that is truly frightening, and their Rage is, for the most part, righteous. However, since the slaughter at the Hyena King’s court, some have searched for — and found — allies in strange places. Some Ajaba packs include Black Spiral Dancers, and a large number of werehyenas have given themselves over to the Wyrm in exchange for some protection. Their themes, therefore, include Rage, revenge, redemption, and corruption. 
-
-## _Ananasi_ 
-
-The Ananasi do not claim Gaia as their mother. According to the werespiders, Queen Ananasa — herself a creation of the Weaver — gave birth to them and charged them with their purpose. Their purpose is simply to love and obey their Queen. 
-
-All Ananasi must obey when given orders from Ananasa, but in lieu of direct orders, they do as they wish. The werespiders each follow one aspect of the Triat, and so some Ananasi emulate the Wyld, some the Weaver, and some the Wyrm (it bears noting, however, that the spider-folk try to emulate what each of the Triat should ideally be, rather than what they are). Most Ananasi are loners, watching and using others to their pleasure. Some are vicious predators, all are blood-drinkers. Ananasi are detached if not simply cold. Emotion — including loyalty — is rather foreign to them. 
-
-**Themes:** The Ananasi were never exactly friends with the other Fera and Garou (or “Ovid” as the werespiders call them), so they were already accustomed to hiding when the Garou began killing the others. As such, they don’t typically strive for revenge. However, the wide variety of philosophies that they present (each Ananasi falls not only under one of the Triat’s auspice but adopts a Faction within that auspice) makes for an equally wide variety of thematic possibilities. Some more general Ananasi themes include manipulation, harsh lessons, and horror (Ananasi are hard to beat for sheer scariness). 
-
-## _Bastet_ 
-
-The nine tribes of werecats have been the Garou’s rivals for time immemorial. Meant to be the “Eyes of Gaia,” the Bastet scour the globe ferreting out secrets of one type or another. It would be hard to find a group of Fera that resent the Garou more. 
-
-Each of the nine tribes has had its own trials and tribulations in recent years, and space precludes discussing all of them here. However, the death of the Simba king Black Tooth and the peace agreement between Africa’s Fera (called the Ahadi) has made the Bastet in other lands take notice. While the Garou and the Bastet might never be friends, perhaps they could agree to disagree… 
-
-**Themes:** Any cooperation between werewolf and werecat is going to be uneasy. It isn’t just the old “cats and dogs” joke, either. The two species have never been comfortable with each other — each sees the other as a competing predator and a threat to territory. Possible themes using the Bastet include secrets, compromise, competition, ancient stories, seduction (possibly seduction based on power instead of lust), curiosity, and war. 
-
-## _Corax_ 
-
-The wereravens also claim to fact-finders for Gaia, after a fashion, and they frankly seem to be more generous with their secrets than do the Bastet. They share history with several tribes of Garou, and of all the Changing Breeds, they are one most likely to be welcome among werewolves. 
-
-Corax are not warriors, however, and don’t pretend to be. A wereraven who travels with a pack of Garou had best be prepared for danger. While seeing a battle firsthand may yield some very intriguing secrets, they do no good if the messenger doesn’t live to relate them. 
-
-**Themes:** Stories involving Corax might use themes of secrets (but of a more temporal, immediately useful nature than Bastet secrets), urgency, Pandora’s box, or hope. 
-
-## _Gurahl_ 
-
-By most accounts, the War of Rage began because the Gurahl would not share their most potent healing Gifts with the Garou. They saw the werewolves as immature and didn’t feel they’d use the Gifts — which included the ability to raise the dead — in the proper manner. Regardless of exactly how it started, the werebears were decimated in the War, and most of the survivors went into hibernation. 
-
-Now, many of them are waking up and some new cubs have begun to emerge. It is still a desperate time, but with Gaia in such dire straits, even the anti-Gurahl legends of years past don’t always convince young Garou that the werebears deserved what was inflicted upon them. 
-
-**Themes:** If any breed is built to forgive, it’s the Gurahl. Themes such as forgiveness, penance, renewal, and succor are appropriate to stories involving werebears. 
-
-## _Kitsune_ 
-
-The mysterious werefoxes are rarely encountered outside of the Far East, and when they are, it is to act as emissaries from the Beast Courts. See Chapter One for thematic information on the hengeyokai. 
-
-## _Mokolé_ 
-
-Designed to be Gaia’s memory, the Mokolé are the oldest of the Changing Breeds. Many of them remember 
-
-Chapter Five: Breaking the Mold 
-
-events from centuries past; some can remember the time of the great Dinosaur Kings. What all remember vividly, however, are the days when the Garou would smash their eggs and murder their hatchlings. The Mokolé do not forget, and rarely forgive. 
-
-While relations have improved between the Dragon Folk and the werewolves in some places, most Mokolé still think of Garou as “egg smashers”, and most Garou still think of Mokolé as Wyrmcreatures. 
-
-**Themes:** Stories involving Mokolé might be stories of war, remembrance, justice, and truce. 
-
-## _Nagah_ 
-
-The wereserpents enforce Gaia’s laws, and therefore act as her judges and executioners. Peerless assassins, they judge the other Changing Breeds and slay those found wanting. And, they do all of this in utmost secrecy — even the Corax believe them to be dead. 
-
-**Themes:** Any story involving the Nagah should involve a theme of paranoia. The pack should never know exactly what they face (if they do find out, it only gives the Nagah more incentive to hunt them down). Other themes include judgment (and punishment), corruption, and nobility (as the legends paint the Nagah as forthright and peaceful). 
-
-## _Nuwisha_ 
-
-The Garou might dismiss the werecoyotes are immature pranksters, but the truth is somewhat more complicated. The Nuwisha are meant to prank others, yes, but the reason is not simply to giggle about it later, but to teach a lesson. If that lesson must be applied in the target’s next life, so be it. In many Native American legends, Coyote is not a gentle trickster, and those who cross him know his wrath. 
-
-Like the Corax, the Nuwisha have some hope for the Garou. Unlike their winged brethren, however, they don’t work tenaciously at trying to help the werewolves. Instead, they travel the world, spreading their own brand of chaos, and eventually leave the Earth for the Umbra. 
-
-**Themes:** Laughter is a common Nuwisha theme, of course, but it is a derisive laughter, aimed at the weak and foolish. Other themes include poetic justice (see “Urban Legends” in Chapter Three), instruction and riddles. 
-
-## _Ratkin_ 
-
-The wererats look ahead the Apocalypse and crave the chaos it brings. Many of the rats are mad with Rage, others are simply mad. They have no 
-
-Werewolf Storytellers Handbook 
-
-love and no trust for the Garou — the werewolves hunted them down and slaughtered them for doing their Gaia-given task. Now, rats flourish everywhere, while growing numbers of humans force wolves to extinction. The irony is not lost on the Ratkin. The Ratkin are also wholly devoted the Wyld, and while humans built their cities up to protect them from the chaos of the world, the rats (and the wererats) are always there, ready to show the humans that chaos isn’t so far from home at all. 
-
-**Themes:** Ratkin themes include madness, retribution, chaos, violence, terrorism, and disease. _Rokea_ 
-
-The Garou are unlikely to encounter weresharks, unless they travel by sea or frequent the coasts. Even then, the Rokea keep to themselves. Theirs is a simple task — survive — and all they have heard about the Garou indicates that associating with the werewolves is not conducive to survival. 
-
-Even so, the Rokea war on each other. Those that choose to live on land are hunted by their sea-dwelling brothers, and sometimes the Garou find themselves witness to (or caught in the middle of) such a hunt. The Rokea are not mindless brutes any more than the Garou, but they can certainly appear so. 
-
-**Themes:** Appropriate themes for stories involving the weresharks include fear, culture clash, and frenzy. A less definable, but very appropriate theme, is the “other” — Rokea have a mindset completely different from humans (or indeed any land-dweller). The almost alien differences between Rokea and Garou can make for exciting stories when the two meet. 
-
-## _The Whole World of Darkness_ 
-
-Although integrating Fera into a crossover chronicle can be tricky, blending other game lines into a **Werewolf** game can be downright headache-inducing. Each of the World of Darkness game lines is designed, mechanics and all, to encourage and reflect a different theme, from “personal horror” to “modern fantasy” — resulting in mechanics that vary from system to system. The Humanity so important to **Vampire** ’s theme of psychological degradation is utterly absent in **Werewolf** , where personal degeneration is the least of the Garou’s worries. 
-
-The main trick, then, is to design a crossover chronicle to your specifications from the very beginning. If you decide that you want an electric, balls-tothe-wall, dynamic **Werewolf** / **Mage** chronicle, you’ll 
-
-want to downplay the more introspective elements of **Mage** . If you want a crossover with **Changeling** to be a light-hearted departure from the usual **Werewolf** fatalism, you may want to reduce the chances of a Garou frenzying and ripping his friends limb from limb. Ask yourself what you want to accomplish, and then customize the chronicle’s focus to that end. 
-
-The most important thing is to be flexible; some truly insane situations may arise, and you don’t want to be reliant on the rules text when they do. In particular, it’s good to be able to make thematic decisions quickly, when your players inevitably confront you with strange conflicts between game line tropes.  It’s also important to be consistent; once you’ve chosen the general pattern by which you want things to work, you’ll just confuse and annoy your players by making rulings that depart from this pattern. 
-
-Just remember that crossover chronicles are by nature strange beasts, and none of the games involved can be expected to work exactly as you’d normally expect them to. Don’t let your players browbeat you with cries of “But it doesn’t normally work like that!” — vampires created with **Vampire: The Masquerade** rules don’t normally slug it out with (or work side by side with) full-fledged Garou from **Werewolf: The Apocalypse** , either. All bets are off — the chronicle is in your hands, not the books’. As it should be. 
-
-## _General Guidelines_ 
-
-The crossover guidelines here are generally meant to represent werewolves encountering other supernaturals; there simply isn’t room to address all the other Changing Breeds. Use these guidelines as a framework for similar judgements. 
-
-Generally speaking, when a power calls for a Rage or Gnosis roll to resist, a target without Rage or Gnosis is out of luck. If the Storyteller deems that a subject should have some resistance to a power of that nature, he may call for a roll on an appropriate Virtue or similar trait (such as substituting Courage for Rage). Gifts that use the target’s Rage or Gnosis as a difficulty should generally have the default difficulty of 6. 
-
-Non-shapeshifters cannot activate fetishes, with a very few exceptions. A klaive in a vampire’s hands is simply an awkwardly large silver dagger, for instance; and a fang dagger will do only lethal damage in the hands of a non-shapeshifter. Mages may use their Spirit sphere to activate fetishes, but generally no other entity can do so. 
-
-Other supernatural creatures are of course immune to the Delirium; their nature prevents them from feeling the fear ordinary humans do when looking at a Crinos werewolf. 
-
-Chapter Five: Breaking the Mold 
-
-## _Relative Power Levels_ 
-
-Sometimes creatures will use powers that contradict each other; a werewolf will use a Gift to detect his enemies, while a vampire uses a Discipline to remain hidden. Although it may be tempting to compare the relative power levels of the two powers in question and rule “higher level wins,” this can be often misleading. For example, a thin-blooded young Leech who sank all his freebie points into gaining five dots in a Discipline would therefore be able to overcome the mighty Rank Four Garou who has been fighting vampires — and winning — for over a decade. Generally it’s fairer to rule that the higher level power has a chance at overcoming the lower-level one, and assign a resisted roll. Feel free to adjust the difficulty for the two participants if you feel the power levels of the two clashing powers don’t accurately represent the skills of the two contestants. It’s your chronicle. 
-
-Paths of Enlightenment, however, cannot mask Wyrmtaint no matter the rating. A Cainite on a Path is embracing his vampiric nature, not resisting it. This Wyrm-taint cannot be removed in the usual fashion, as it is literally part of the vampire; a Rite of Cleansing or similar remedy will cause a vampire great pain, but cannot remove its taint. Any vampire with detectable Wyrmtaint is considered a Wyrm-creature for the purposes of Gifts and other powers that specifically target such. 
-
-Shapeshifters are not considered mortals for the purposes of most powers. They may, for instance, roll Willpower to resist the Kiss. Most shapeshifters are considered to have a blood pool of 20 (25 in Crinos or similarly larger forms); this is thanks to the potency of their blood, not an excess quantity. Storytellers may adjust this figure up or down for larger or smaller forms of various shapeshifters; a Ratkin in Rodens form should have a significantly smaller blood pool, for instance. 
-
-## _Vampires_ 
-
-It’s rare that a **Vampire** / **Werewolf** crossover turns anything but violent; both sides have long memories, and are weaned on tales of treachery and murder from the other side. But it’s this ancestral war that makes a crossover between the two games so interesting in the first place; after all, the conflicts and twists create themselves. 
-
-Vampires are considered innately Wyrm-tainted; the power that animates them is spiritually akin to that of the Wyrm. If the Leech in question has a Humanity score of 7 or more, the taint is not detectable to Sense Wyrm; 
-
-Werewolf Storytellers Handbook 
-
-Werewolves are allergic to vampiric vitae, and are more difficult to ghoul or blood bond. Only a few can ingest the stuff without violently vomiting it back up. If you like, you may call for a Gnosis roll, difficulty 3, the first time a werewolf tastes vampire blood. If the roll succeeds, the Garou in question is among those allergic to the stuff; if it fails or botches, the werewolf has a tolerance for vitae. 
-
-## _Disciplines and Gifts_ 
-
-The following are guidelines to resolve the most common conflicts that might arise; use these as the basis for resolving disputes based on more esoteric powers. As a rule, Disciplines that target an opponent’s Virtue use the werewolf’s Willpower instead. 
-
-• **Animalism** powers treat Garou in Lupus form as if they were werewolves, not ordinary animals; no Animalism power that specifically affects only animals will have any effect on a shapeshifter of any breed. The only difference is communication; Feral Whispers would allow a vampire to communicate with werewolves using wolf-speech. Powers that affect a werewolf’s Beast function normally. 
-
-• **Auspex** powers can be used to pierce Gifts of stealth and the like. The Psychic Projection power is somewhat problematic, as it doesn’t presume a multilayered Umbra. For convenience’s sake, presume that the “astral plane” the vampire accesses is the Shadowlands, the “Penumbra” of the Dark Umbra. 
-
-• **Chimerstry** illusions must be carefully crafted to affect a Garou’s heightened senses; assume that the werewolf gains an automatic attempt to “prove” the illusion’s falsehood ( **Vampire** , pg. 154) unless the vampire possesses Heightened Senses himself, and can accurately construct the extra layers of scent and other careful details. 
-
-• The **Dominate** power of Possession is not as effective on werewolves, who are not truly mortal; if a werewolf target achieves three successes more than the vampire on the resisted roll, the attempt is broken. If the werewolf achieves five successes before breaking the attempt, he becomes immune to Dominate attempts from that vampire as if the vampire had botched. 
-
-• **Obfuscate** does not reach into the Penumbra; a werewolf who peeks from the Penumbra will see a vampire in its true form, not as it wishes to be seen. (This information is tucked away in this book for a reason! Don’t let your players abuse this privilege, sneaky gits that they are.) 
-
-• A Garou is at -1 difficulty on frenzy rolls when **Obtenebration** powers are active nearby; the Discipline contacts the stuff of the Abyss, which sets Garou on edge. 
-
-• Shapeshifters may soak the damage inflicted by the **Protean** power Feral Claws. Their natural 
-
-ability to soak aggravated damage is considered “a power such as Fortitude.” 
-
-• The **Thaumaturgy** power Theft of Vitae inflicts one health level of lethal damage on the Garou for every two blood points stolen. Cauldron of Blood inflicts one level of aggravated damage on a werewolf for every two blood points boiled. 
-
-• Garou heal **Vicissitude** alterations as if they were aggravated damage. 
-
-• No Gift can restore a vampire’s lost health levels; healing Gifts such as **Mother’s Touch** do not work on the undead, and vampires are not inanimate objects (and hence not subject to **Reshape Object** or the like). 
-
-• **Resist Toxin** cannot prevent ghouling, although it gives a Garou four extra dice to soak the effects of Disciplines such as Quietus that inflict damage through supernaturally “poisonous” blood or other substances. 
-
-• The Silver Fang Gift: **Mindblock** works against Presence and Dominate as direct mental attacks, and Obfuscate as a “more insidious psychic assault.” _Abominations_ 
-
-Occasionally some foolish Leech tries to make a pet of a Garou, usually by means of the Embrace. Because almost all werewolves are violently allergic to vitae, they are accordingly hard to ghoul. By the grace of Gaia, they are just as difficult to Embrace: Most werewolves die upon the attempt. Sadly, the Embrace works in a few rare, rare instances — and the miserable results are the rightly named Abominations. 
-
-Vampiric werewolves are literally things that should not be. Shapeshifters are the purest form of primal life on the face of the planet — vampirism is living death. The Embrace disconnects Garou from the world’s soul, their very reason for existing. As a result, the leading cause of Final Death among the dozen or so Abominations that exist at any given time is suicide. An Embraced Garou has lost far, far more than the average once-mortal childe. 
-
-Abominations are created in mostly the same manner as all vampires, save that even the most depraved Black Spiral Dancer isn’t inclined to sacrifice willingly his higher spiritual being for the powers of the grave. Virtually all Abominations were taken prisoner as living beings, then Embraced to enslave them to their sires. 
-
-Garou receive one final chance to escape the living death; upon the Embrace, the Garou makes a reflexive (and instinctive) Gnosis roll, difficulty 6, to die quietly. If the roll succeeds, he dies without pain and his spirit travels to its destined place. If the roll fails, he dies in torturous agony, but his spirit is free. If the roll botches, the Garou becomes an Abomination 
-
-Chapter Five: Breaking the Mold 
-
-and cannot hope ever to see his Tribal Homeland. No Discipline, Gift, magic or any other sort of power short of direct intervention by a Celestine can affect this roll, save one — the werewolf can spend a Willpower point to gain an automatic success as usual (and is almost certain to do so). 
-
-A newly Embraced Abomination takes on the clan of his sire, learns three dots of clan Disciplines and gains the clan weakness as does any other neonate. He may spend blood points to increase his Attributes or heal himself like any other vampire. 
-
-The advantages of the Embrace end there. 
-
-Becoming an Abomination results in the immediate loss of two permanent points of Glory, three permanent Honor and three permanent Wisdom. The Embrace usually causes even mighty Garou elders to fall at least two places in rank; indeed, a newly-turned Abomination can even fall below Rank One. Unless the werewolf was previously a Black Spiral Dancer, she cannot gain Renown or rise in rank again. Only the depraved Dancers acknowledge their undead relatives, and even then the Dancer gains only onequarter of the standard Renown awards for her deeds. Abominations also cannot spend experience to raise their Gnosis Trait. 
-
-Upon death, the Garou’s connection with the spiritual whole of Gaia is irreparably severed. This loss means that Abominations cannot regenerate their wounds as do Garou; Abominations may heal themselves only by spending Blood Points. 
-
-This severing from the wellspring of life also has severe repercussions on the Abomination’s relationship with the spirit world. Although Abominations retain knowledge of the Gifts and rites they possessed before their Embrace, they cannot make any rites other than Wyrm-rites work; only the most corrupt spirits ever answer a call made by a dead thing. Abominations also cannot learn new Gifts from any spirits other than Banes, and these spirits are spiteful, devious teachers. At the time of the Embrace (or, more precisely, of death), any dedicated items or attuned fetishes lose their connection to the once-Garou. Gaian spirits, even those bound in fetishes, chafe at the presence of the undead. To attune himself to a Gaian fetish after the Embrace, the Abomination may still roll Gnosis as usual — but at difficulty 10, and a botch results in the Abomination losing a permanent Gnosis point. 
-
-Abominations may not spend blood points for any purpose in the same turn that they spend Gnosis, make Gnosis rolls, spend Rage or make Rage rolls. Rage, Gnosis and vitae all interfere with one another’s use, and an undead Garou can draw on only one of the three at any given time. Abominations have blood 
-
-pools according to their Generation, as usual — their doubly potent Garou blood was drained during the Embrace, and they must make do with normal vitae. 
-
-Abominations exist in a state of perpetual Harano; _every scene_ , an Abomination must spend a Willpower point to spend the scene with his dice pools at full. If it will not or cannot do so, its dice pools are halved for the scene. What’s more, the spiritless Abominations may not spend Willpower points to gain automatic successes on any dice rolls. 
-
-Having been something other than human, Abominations don’t use Humanity as a system of morality. They have a far greater stake at risk — their Gnosis. It is the only thing keeping them from acting on the vile impulses that grow within them in undeath: not natural urges, but seeds planted by the Wyrm during their Embrace. An Abomination’s Gnosis Trait determines how soundly it sleeps during the day and in most cases acts as Humanity would. (Of course, the Abomination still checks for frenzy by rolling Rage.) 
-
-Whenever an Abomination transgresses against the ways of the Gaian Garou, whether deliberately or unconsciously (such as in a frenzy), it risks degeneration. The higher the Abomination’s Gnosis, the more likely that even a minor transgression can tear more of his spirit from him. This is true even for Black Spiral Dancers — their usual customs and tactics are a sure road to degeneration. The chart below is a rough guide to what actions force an Abomination to check for Gnosis loss. If the vampiric Garou takes an action that requires a check, it rolls Gnosis, difficulty 7 (with modifiers at the Storyteller’s discretion — particularly callous deeds might make degeneration much easier). Failure means that it loses a point of Gnosis _irrevocably_ . A botch grants the hapless creature a Derangement. When all the Abomination’s Gnosis is gone, it can no longer step sideways or use _any_ Gifts or fetishes. 
-
-There is only one way to prevent this degeneration — the Abomination can fully offer what’s left of its soul to the Wyrm (more accurately, a powerful intermediary thereof, such as a Maeljin Incarna). After making this black pact, the Abomination becomes a Storytellercontrolled character. Its Gnosis is no longer at risk; the Wyrm sees to fueling its spiritual energy. However, the Abomination no longer has any free will whatsoever; every action it takes is at the direction of its patron. 
-
-Other Changing Breeds are, if anything, even less suited to vampiric life. A Bastet, for example, begins losing permanent Gnosis, one per moon upon the Embrace and can never recover her loss. Eventually, the undead cat is cut off from the spirit world entirely, unable to do so much as activate Gifts. Nuwisha, by comparison, cannot undergo the Embrace — indi- 
-
-Werewolf Storytellers Handbook 
-
-## _Hierarchy of Wyrm Taint_ 
-
-- **Gnosis Minimum Wrongdoing for Gnosis Check** 10 Accidentally breaking the Litany 
-
-- 9 Purposefully breaking the Litany; refusing a rightful challenge; cannibalism (drinking the blood of humans or wolves) 
-
-- 8 Refusing to acknowledge loss of a challenge (lack of instinct); teaching Garou lore to Wyrm minions (including vampires) 
-
-- 7 Unjustly killing a Garou; using vampiric mindcontrol powers (Dominate, Presence) against a Garou; betraying a Garou to Wyrm minions 
-
-- 6 Trafficking with or binding spirits to evil purposes 
-
-- 5 Destroying a natural place (harming Gaia); causing a Blight to grow or fester 
-
-- 4 Allying with Wyrm minions (including vampires) 
-
-- 3 Cannibalism (drinking Garou blood); sadism and perversion (Black Spiral virtues) 
-
-- 2 Warring against any of the tribes 1 Destroying or helping destroy a caern 
-
-viduals who try to force vampirism on the coyotes find that the Nuwisha die quietly, one and all. Mokolé and Corax have it even worse, with their ties to the sun — both die the Final Death within one day of the Embrace, their loss of connection with Helios killing them irrevocably by the next sunset. Unfortunately for everyone around him (including the vampire parent), a Mokolé Abomination spends the rest of his existence in a brutal, mindless frenzy, which almost always results in the would-be sire ending up as so much reddish goo spread across the ground. Thankfully, all shapeshifters at least receive the standard Gnosis roll to avoid the Embrace and die quietly. 
-
-## _Mages_ 
-
-In strictest **Werewolf** cosmology, reality is not consensual; it is animistic. The spirit world reflects the physical, and can influence it as well, but reality itself is not subject to being molded by a sufficient force of belief. In particular, humanity is not the center of the universe — they are a very influential species, but not the reason reality is what it is. This can do some serious thematic damage to the **Mage** elements of a crossover, and is one of the reasons that Mage and **Werewolf** don’t play together as well as some might assume. But on a technical level, very little is changed. Whether Paradox is caused by the Weaver’s rigid attempts to keep reality constant or by a cosmic level of disbelief 
-
-doesn’t really matter when it comes to determining whether the dice system works the same or not. 
-
-Although shapeshifters are not as hostile toward mages as they are toward vampires (as a general rule, at least), there’s still millennia of bad blood between the two groups. Allowing a mage, even a Kinfolk mage who’s one Garou’s sister and another’s wife, into a caern is a violation of the Litany. Werewolves are quite aware that _something_ reacts poorly to mages using their powers, and the common interpretation is that a mage isn’t intended to have that power in the first place. This makes relationships difficult — but not impossible. 
-
-## _The Umbra_ 
-
-Werewolves do not take any notice of the Avatar Storm; whatever trait mages possess that puts them at risk, the werewolves don’t have it. They step sideways as normal. 
-
-Outer space has a physical presence in **Werewolf** ; the Gauntlet is likely no higher than 1, but outer space and the Umbra are not one and the same. 
-
-The **Mage** concept of the “Bygone” does not apply in **Werewolf** ; the existence of freakish monsters such as Thunderwyrms and Vhujunka (the morbidly curious are directed to the Book of the Wyrm) seems to indicate that monsters can exist quite nicely in the face of human disbelief. Most fantastic “beasts of legend” translate well into spirits, perhaps with the Materialize Charm. 
-
-## _Damage_ 
-
-Most of the usual ways of creating aggravated damage — fire, Prime-fueled effects, and so on — work just as well against werewolves as they normally would. Most effects that would involve conjuring silver are vulgar, and the silver must be genuinely pure to have any effect on the Garou; alloys and trace amounts are little more than an irritation. 
-
-Werewolves’ half-spirit nature gives them a measure of protection against some magic; in particular, Life effects will not affect a werewolf unless paired with an equal amount of Spirit. 
-
-For their part, werewolves have little difficulty causing aggravated damage to mages. 
-
-## _Countermagic_ 
-
-Magi may use countermagic to defend themselves against Gifts or fetish powers that are directly targeted at them. This is usually a matter of Spirit, although you may choose to allow other Spheres to cancel certain other effects, such as using Mind to counter the Gift: Roll Over. The Arete roll uses the opposing Garou’s Rank + 3 as a difficulty number; each success counters one of the werewolf’s successes. 
-
-Chapter Five: Breaking the Mold 
-
-You may choose to allow a mage to use countermagic against Gifts that aren’t targeted directly at her, so long as she has sufficient knowledge of Spirit or other Spheres to do so. The difficulty to use countermagic against a rite is always 8; the rite is empowered not by the werewolf ritemaster, but by the spirits he invokes. 
-
-A few Garou Gifts can be used as countermagic against a mage’s effects; for instance, Exorcism may be used to counter Spirit magic. Such efforts are entirely at the Storyteller’s discretion, and are not as effective as a mage’s countermagic would be; the werewolf removes one of the mage’s successes for every _two_ successes he scores on his “countermagic” roll. 
-
-## _Shapeshifters and True Magic_ 
-
-The Changing Breeds are, one and all, incapable of using True Magic as mages know it. Since shapechangers are all born with shapechanger spirits, their half-spirit nature, even before the First Change, makes them Awakened beings from birth. They don’t possess individual Avatars as mages know them. Instead, they tap into the wellspring of Gaia’s blessings to work their own miracles — “static magic,” as mages define it. Sphere magic is the province of humans alone; the Changing Breeds are given gifts of a different nature. 
-
-Some rare shapeshifters are able to learn certain paths of hedge magic, Sphere magic’s poor cousin. However, it is hardly common practice; when all’s said and done, the shapeshifters’ Gifts and rites are at least as potent, if not more so. Only the most curious or completist of the Changing Breeds feel the need to learn such human wizardry. 
-
-## _Creating New Shapeshifters_ 
-
-Mages often like to claim that they can do anything given time, and some players like to try proving it by “fixing” the Garou’s “problem” with breeding true. As the argument runs, one mage could make sure that the Garou breed true almost all the time. 
-
-It isn’t as easy as that. 
-
-The fashion in which shapeshifters propagate their own kind has nothing to do with genetics or, apparently, evolution. Trying to beat the odds and ensure that a child is born Garou is a very dangerous form of “playing Gaia.” Theoretically (and it would take something along the lines of Occult 6 to piece this together), ensuring that a cub is born Garou would require the ability to find wherever it is that the spirit half of a newborn shapeshifter comes from (and Garou theorize it’s Gaia Herself), slice off an appropriate amount, and bind it perfectly to the child at the _exact moment of conception_ . Even the so-called demigod status of an Archmage is probably insufficient for such 
-
-an exacting operation, and it’s damn unlikely the Garou would be willing to let them try. 
-
-A more reasonable approach would involve using Entropy to mess with the “odds” of conceiving a true Garou rather than Kin. A generous Storyteller might allow each success on the roll increase the odds of breeding true by 1%, (an extended roll is not possible). However, the mage would have to be present for conception, and most shapeshifters are sufficiently protective of their Kin and young to remove a mage’s arm just for looking funny at the honeymoon suite. Assisting on the battlefield is one thing — using their powers to potentially draw down the Weaver’s wrath on a cub is flatly intolerable. 
-
-## _Wraiths_ 
-
-The werewolves most likely to interact with wraiths are the Silent Striders, who have often served as intermediaries with the human dead. However, the war for Gaia causes a lot of casualties, and a crossover **Wraith** story is an excellent way to confront triggerhappy Garou with the consequences of their actions, or to showcase the evil of their opponents by emphasizing the ghosts their foes leave in their wake. 
-
-Wraiths do not typically detect as Wyrm-tainted unless their Shadows are particularly strong; if a wraith’s permanent Angst exceeds her permanent Willpower, she gives off the “scent” of the Wyrm. Spectres count as full Wyrm-creatures, each and every one. 
-
-Wraiths do not generally count as spirits for the purposes of rites or Gifts; they cannot be bound into fetishes, summoned with the Rite of Summoning, ordered around by Command Spirit, and so on. You’re welcome to make exceptions if they would fit the story, however; it might be thematically appropriate for the Gift: Exorcism to affect wraiths, or for a set of sanctuary chimes to prevent wraiths from materializing. Just be conservative; werewolves have a _lot_ of ways to mess with spirits, and allowing too many of those measures to affect ghosts would be a bit much. Similarly, remember that wraiths are not living beings; their Corpus forms may render certain Gifts such as Bloody Feast or Heart of Ice useless. 
-
-On the flip side, werewolves are not wraiths and are not treated as such, even when traveling through the Dark Umbra. Moliate does not work on Garou, who are not made of plasm; the power of Oubliette will not hurl them into the Tempest, and so on. 
-
-## _Arcanoi_ 
-
-Some Arcanoi that work on mortals have no effect on werewolves; others function normally. The main differences are listed below. 
-
-Werewolf Storytellers Handbook 
-
-• If the Storyteller is using the optional rule that werewolves gain Shadows in the Dark Umbra, **Castigate** powers may be used on these Shadows, though at +1 difficulty. 
-
-• Werewolves doomed to die do not manifest deathmarks, and **Fatalism** powers that focus on deathmarks (Kismet and Fatal Vision) are useless on werewolves. 
-
-• Wraiths may not use **Inhabit** to possess fetishes. 
-
-• **Keening** is often more effective against werewolves, passionate beasts that they are. Five successes when using Dirge will drive a werewolf into Harano for a week, while Crescendo and Requiem force Garou listeners to make frenzy checks. 
-
-• Practitioners of **Lifeweb** cannot establish a Soul Pact with a werewolf. 
-
-• A wraith cannot use **Moliate** to shape a werewolf’s form, but the weapons formed with Martialry inflict aggravated damage. 
-
-• The **Outrage** power Stonehand Punch inflicts lethal damage on werewolves; Obliviate inflicts aggravated damage. 
-
-• The **Phantasm** powers Elysia and Agon do not work on werewolves, who do not possess the same sort of “soul” that wraiths are used to. 
-
-## _In the Dark Umbra_ 
-
-The Dark Umbra isn’t reached by stepping sideways in the usual fashion; it takes a special rite to do so, or following dark paths from the Middle Umbra can lead a werewolf there. But once there, werewolves function fairly normally. They regenerate, spend Rage and so on; the main differences lie in the atmosphere. 
-
-A werewolf is a creature of vibrant life, and the energies of the Dark Umbra conflict with his own being. The difficulty to use any Gift is increased by 1 while in the Dark Umbra; Gifts that do not require rolls function normally. Garou appear as robust, luminous beings to a wraith’s Lifesight, which makes traveling incognito rather difficult. A werewolf may spend a Gnosis point to “drop out” of the Shadowlands into the physical world at any point; if farther from the Shadowlands, the Gnosis expenditure only gives the werewolf a sense of the closest route back to the Middle Umbra proper. 
-
-At the Storyteller’s discretion, shapeshifters may acquire temporary Shadows (usually of the Abuser, Freak or Monster sort) for the duration of their stay. A shapechanger’s Shadow has Angst equal to the shapeshifter’s Rage (minimum of 1), and whatever Thorns the Storyteller deems appropriate. 
-
-## _Shapeshifter Wraiths_ 
-
-Upon death, a shapechanger’s spirit half usually travels to her Umbral homeland, there to become one with Gaia. Even individuals that return to aid their friends and descendants (usually through riding someone with Past Life) do so as Ancestor-spirits, not as wraiths. 
-
-However, there are a few exceptions. Rarely, when a shapeshifter dies with just a touch of Wyrm-taint on his soul — just enough of a touch to break him away from the natural way of things — and a powerful desire to complete some business unfinished in life, he awakens in the Shadowlands as a wraith. 
-
-The wraith of a former shapechanger gains no special abilities from her former life. She is considered a wraith like any other; even so simple a thing as shapeshifting is impossible without the aid of Moliate. Her Corpus takes the form of her self-image, whether that be humanlike, a wolf, or even Crinos form. However, her Attributes are not altered by whatever shape she finds herself in — her form is a matter of selfperception, nothing more. The character becomes a wraith in all aspects, with her base Homid Attributes, her usual collection of Abilities (although some, like Primal-Urge, are now useless to her) and nothing more. She no longer possesses Rage or Gnosis. Her Gifts no longer work; nor do her rites or any other ability outside the ken of wraiths. In essence, she is nothing more than a wraith. However, the new possibilities of wraithly existence allow her to explore areas rarely seen by any other shapeshifter. The fight against the Wyrm, as personified by Spectres (to a wraithly Garou’s perception, anyway), continues even in the Shadowlands. 
-
-The worst fight of all, of course, comes from the tiny seed of Wyrm-taint that lay within the Garou’s soul at the time of her death — from which soon blossoms her Shadow. A shapeshifter’s darker half is more bestial by far than that of most humans. 
-
-## _Changelings_ 
-
-The stereotype presumes that the Fianna have the most truck with changelings, and that other tribes couldn’t care less. However, a **Changeling** crossover can easily defy this stereotype. A Silent Strider could strike up a friendship with an equally nomadic eshu; a sidhe delegation might demand to strike bargains with the Garou’s own nobility, meaning the Silver Fangs; Bone Gnawers might make the acquaintances of the goblins of the inner city, and so on. Although Garou have little interest in the changelings’ conflicts, and the fae would 
-
-Chapter Five: Breaking the Mold 
-
-likely avoid being drawn into the werewolves’ war, this actually works out for the best. A crossover chronicle could be a wonderful dance of diplomacy and truces, with each side trying to enlist the other’s aid without committing to too much in return. After all, deals with the fae are legendary for their risk — and only a fool approaches negotiation with ravening werebeasts without being at least a little nervous. 
-
-## _Arts_ 
-
-Obviously, the Actor Realm is necessary to affect shapeshifters or spirits (although the Fae Realm may at the Storyteller’s discretion, affect certain Chimerlings). 
-
-• **Chicanery** powers such as Veiled Eyes cannot reach into the Penumbra, and do not affect observers there. Certain applications of Haunted Heart may provoke a frenzy check when used on werewolves. 
-
-• To use **Legerdemain** to control a fetish, the changeling must beat the fetish in a resisted roll — the changeling’s Willpower versus the fetish’s Gnosis. 
-
-• The **Primal** art of Holly Strike inflicts aggravated damage, which can be soaked by shapeshifters. 
-
-• Any changelings within a mile of a Fianna using the Gift: **Faerie Kin** may make a Willpower roll, difficulty 8, to resist the summons. Those who answer the Fianna’s call do not have to obey the werewolf 
-
-without question, but disobeying without good reason may make the changeling some enemies among other fae who want to see the ancient pacts upheld. 
-
-## _One or the Other_ 
-
-Changelings are fae souls born into human bodies; the Changing Breeds are shapechanger souls born into shapechanger bodies. A newborn is one, the other or simply human. Although it’s possible to have changelings who are technically Kinfolk (though with no access to Gifts or other Gaian powers) or werewolves with a touch of the fae blood in them, no creature can be fully both. 
-
-## _Hunters_ 
-
-Most crossover stories involving **Hunter: The Reckoning** are likely to be hostile, although the shortlived “team up against a common foe” chestnut is also popular. Hunters can hardly hope to match a werewolf in outright combat, but their powers can make them credible opponents — if they’re clever about it. 
-
-Conviction will protect a hunter against all manner of illusory or mind-affecting Gifts, from the humble Blur of the Milky Eye to the mighty Obedience. Even shapeshifters in Homid form can be detected as “monsters.” Physical effects (such as the mist summoned by 
-
-_**202**_ Werewolf Storytellers Handbook 
-
-Curse of Aeolus) can affect a hunter’s senses, but purely supernatural effects don’t work. At your discretion, you might rule that particularly powerful entities (such as manifested Incarnae or Rank 5 shapeshifters) might have a chance of overcoming this immunity; in such a case, you can call for a primary Virtue roll against an appropriate difficulty (6 for a Rank 5 shapeshifter to 8 for an Incarna). 
-
-However, a hunter’s second sight does not reach into the Umbra; a werewolf in the Penumbra is as good as invisible. A hunter’s Conviction _does_ protect against supernatural attacks targeted from the Umbra, such as the Possession Charm. The only exception is that imbued are able to target ghosts in the Shadowlands. 
-
-Second sight marks Kinfolk as “off,” while Discern, Witness and Illuminate all reveal Kin as the blood relations of shapechangers. 
-
-## _Edges_ 
-
-Most Edges are written with the various powers of supernatural beings in mind. Only a few require clarification. Unless otherwise stated, an Edge cannot cross the Gauntlet and affect spirits or werewolves in the Penumbra. 
-
-• **Illuminate** works even on shapeshifters who have used Gifts such as Thousand Forms to take wildly different forms. 
-
-• **Ward** extends into the Penumbra; spirits and other Penumbral denizens cannot approach the hunter’s immediate area. The mark left by **Brand** remains in all forms. 
-
-• A shapeshifter may step sideways to negate the effects of **Burden** . **Balance** can be used to prevent the use of Rage or Gnosis. Shapeshifters revealed to onlookers by the use of **Expose** typically induce Delirium as if they’d shifted to the appropriate form. 
-
-• Heightened Senses allows a werewolf to detect a **Trail** . 
-
-## _The Imbuing_ 
-
-For obvious reasons, werewolves cannot be Imbued. Ever. However, neither can Kinfolk. Whatever force is empowering the new breed of hunters with their strange gifts, it apparently is able to recognize Kinfolk, and never chooses them for the Imbuing. Even those Kinfolk ignorant of their nature are never chosen; they are simply too close to the supernatural, and therefore not sufficient guardians of humanity. 
-
-Chapter Five: Breaking the Mold 
-
-**==> picture [536 x 734] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-204 Werewolf Storytellers Handbook<br>**----- End of picture text -----**<br>
-
-**==> picture [487 x 307] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-Chapter Six:<br>Odds and Ends<br>**----- End of picture text -----**<br>
+**
 
 ## _Kami: Gaia Made Manifest_ 
 
@@ -5846,8 +5095,7 @@ relation to the number of plants affected and the potential for causing damage. 
 
 Chapter Six: Odds and Ends 
 
-**==> picture [534 x 376] intentionally omitted <==**
-
+**
 nant individuals or creatures that have not yet reached their true potential. 
 
 • **Strange Senses** — Kami with this power possess senses that defy definition in human terms. These Kami can see sounds, hear colors, detect invisible creatures or sense the emotions of others. Other manifestations of this power are up to the Storyteller. 

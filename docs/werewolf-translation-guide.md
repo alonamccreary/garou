@@ -1,14 +1,11 @@
 
 Creative Director: Rich Thomas Developed by Matthew McFarland Written by Stew Wilson Edited by Michelle McFarland-Lyons Layout by Ron Thompson Art by Dan Brereton, Steve Ellis, David Leri, Jason Manley, Torstein Nordstrand, Michael Phillippi, Steve Prescott, Ron Spencer. 
 
-**==> picture [149 x 123] intentionally omitted <==**
-
-**==> picture [84 x 129] intentionally omitted <==**
-
+**
+**
 © 2012 CCP hf. All rights reserved. Reproduction without the written permission of the publisher is expressly forbidden, except for the purposes of reviews, and one printed copy which may be reproduced for personal use only. White Wolf, Vampire and World of Darkness are registered trademarks of CCP hf. All rights reserved. Vampire the Requiem, Werewolf the Forsaken, Mage the Awakening, Promethean the Created, Changeling the Lost, Hunter the Vigil, Geist the Sin-Eaters, and Storytelling System are trademarks of CCP hf. All rights reserved. All characters, names, places and text herein are copyrighted by CCP hf. CCP North America Inc. is a wholly owned subsidiary of CCP hf. The mention of or reference to any company or product in these pages is not a challenge to the trademark or copyright concerned. This book uses the supernatural for settings, characters and themes. All mystical and supernatural elements are fiction and intended for entertainment purposes only. This book contains mature content. Reader discretion is advised. Check out White Wolf online at http://www.white-wolf.com 
 
-**==> picture [487 x 164] intentionally omitted <==**
-
+**
 Introduction 4 Tribes 7 Signs of the Moon 17 Spirit Magic 22 Traits and Systems 28 The Spirit world 36 Character Conversion 42 
 
 Introduction 
@@ -33,8 +30,7 @@ It’s worth looking at the hunting grounds of both Uratha and Garou before we g
 
 The core premise of the World of Darkness hasn’t changed. It’s a world much like ours, but with monsters lurking just out of view. Werewolves aren’t the only creatures in the shadows; vampires, ghosts, mages, faeries and other beings all dwell at the edges of human awareness. In the original World of Darkness, each game was self- 
 
-**==> picture [238 x 672] intentionally omitted <==**
-
+**
 contained— **Werewolf** ’s “Cainites” didn’t necessarily have anything to do with the Kindred of **Vampire: The Masquerade** . 
 
 **Werewolf: The Forsaken** does things differently. The **World of Darkness Rulebook** has the core rules for the whole setting, and it’s up to each Storyteller to choose which monsters populate her world. Because the rules are the same, incorporating vampires into a Forsaken game is as simple as opening up **Vampire: The Requiem** —definitely less work than incorporating vampires into an **Apocalypse** game. Over the lifetime of the classic World of Darkness, several books attempted to make it easier to integrate the various games. Each one ended up contradicting the others in places, and the general assumption remained that the crossover rules published for one game applied for importing other creatures into that game, rather than blending the lines into a cohesive whole. 
@@ -147,8 +143,7 @@ The ultimate urban predators, the Glass Walkers are werewolves who have adapted 
 
 **Systems:** Glass Walkers cannot have any dots in the Merits: Ancestors, Mentor, or Pure Breed, must maintain Cunning ••, and have at least six points spread between Computer, Politics, and Streetwise. The lodge grants members access to power and money: characters gain two dots to spend on the Contacts, Resources, and Status Merits 
 
-**==> picture [238 x 673] intentionally omitted <==**
-
+**
 ## Tribes 
 
 when accepted into the lodge. Glass Walkers can also raise Computer, Politics, and Science Skills at a rate of (new dots x 2) rather than (new dots x 3). 
@@ -195,8 +190,7 @@ Outsiders to the rest of the Garou Nation, the solitary Stargazers believe that 
 
 **Forsaken Stargazers:** The Stargazers are an almost ascetic lodge of made up of Bone Shadows and Hunters in Darkness who reject material possessions and their natural focus on the specifically human experience. Instead, Stargazers try to expand their understanding of the physical world as a whole and how it links to the Shadow. The 
 
-**==> picture [238 x 672] intentionally omitted <==**
-
+**
 ## Tribes 
 
 lodge does not shy away from death, but does not see it as providing all the answers. Instead, members practice strict discipline in all aspects of their life, hoping that through ultimate control they can master the inner Rage that controls all werewolves. When they succeed, the Stargazers believe that they will truly be the inheritors of Father Wolf’s legacy and the Shadow will respect them once more. A Stargazer hand-picks his apprentice with guidance from the lodge’s totem, Chimera, and only trains one werewolf to join the lodge at a time. Some werewolves take months to learn, while others spend many years in study. 
@@ -291,8 +285,7 @@ Werewolves who join the Hunters in Darkness are those who find their new senses 
 
 **Apocalypse Hunters in Darkness:** The Hunters in Darkness slot right in to **Apocalypse** as a tribe that tends to the wilderness and the Wyld places without the antihuman bias of the Red Talons, or the Black Furies’ focus on Goddess-worship. The Hunters in Darkness instead 
 
-**==> picture [487 x 342] intentionally omitted <==**
-
+**
 exemplify the werewolf as stalker and hunter rather than warrior, a niche that **Apocalypse** leaves relatively unfilled. Boar, the tribe’s totem, requires each Hunter in Darkness to take a territory that she calls her own; Theurge and Galliard Hunters favor territory in the Umbra, while Ahroun and Philodox find a space away from humans—not necessarily a space in the wilderness, but one that the werewolf can live in without having to connect with human society. Ragabash have no traditional territory, taking whatever area suits and is part of the territory of their pack. Even away from their territory, the Hunters in Darkness stalk minions of the Wyrm. Their packs stalk weaker Banes, tracking them back to their tainted lairs. Members of Boar’s tribe are fiercely individual, neither asking for nor receiving help from other packs. Some even leave their packmates behind on a hunt, claiming that they’d get in the way. The Mennina cut themselves off from others so effectively that they spurn the help of other Garou, and some believe that it’s only a matter of time before they break from the Garou Nation entirely. 
 
 **System:** In **Apocalypse** , the Hunters in Darkness draw Gifts from the Red Talons, with a few from other tribes. Their starting Gifts are Beast Speech, Heightened Senses (as the lupus Gift), and Wolf at the Door. Their initial Willpower is 4. Their other Gifts are: (Level 2) Howl of the Banshee (as the Fianna Gift), Sense of the Prey; (Level 3) 
@@ -395,8 +388,7 @@ Ithaeur, Cahalith, and Rahu use the rules presented in **Apocalypse** for Theurg
 
 The Irraka are most comfortable when Luna hides her face. Without the moon’s guidance, they use the gift of deception to walk unseen among their enemies. The Irraka is the first one in her pack to follow a trail and the first to catch sight of her prey. She’s a consummate scout, able to investigate an area or tail a person far better than other 
 
-**==> picture [240 x 673] intentionally omitted <==**
-
+**
 werewolves. When she faces her prey, the Irraka strikes from an unexpected quarter then vanishes back into the shadows, leaving her pack to open up another angle of attack. 
 
 Because they have less of the moon’s touch upon her, many Irraka feel closer to human or wolf than Garou. Thanks to this, it can take a while for an Irraka to bond with her pack, especially as she’s on the fringes when out hunting. Though a natural outsider, she’s not a lone wolf. She needs to be part of a pack, if only so she knows what she’s standing aside from. 
@@ -491,10 +483,7 @@ Though the rules of human socialization seem foreign to the wolf-born, they have
 
 Deeply connected to the soul of the world, the wolfborn are born part of a litter of cubs. The young werewolf soon develops heightened mental capacities—able to reason faster and perform cognitive leaps beyond the abilities of 
 
-**==> picture [288 x 255] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-ness Rulebook .<br>**----- End of picture text -----**<br>
+**
 
 Spirit Magics 
 
@@ -558,8 +547,7 @@ _**Example:** Desmond’s converting Jam Technology, a homid Gift that causes te
 
 Spirit Magics 
 
-**==> picture [238 x 673] intentionally omitted <==**
-
+**
 **Effects:** The effects of many Gifts don’t change by much. If the results of a Gift would modify another roll’s difficulty, it instead applies a bonus or penalty equal to the change. If it applies a bonus or penalty to the target’s dice pool, it still does that. If a Gift manipulates both the difficulty and dice pool of a single action, apply only the larger shift. 
 
 Gifts that add extra successes to an action instead add bonus dice to that action—in the Storytelling system, one success is all an action needs. 
@@ -644,8 +632,7 @@ Rites in **Forsaken** have more unified mechanics than those in **Apocalypse** .
 
 As these rules involve converting existing rites, the timings and successes required may not necessarily match up with the other rites presented in **Werewolf: The For-** 
 
-**==> picture [489 x 348] intentionally omitted <==**
-
+**
 **saken** . If a rite requires the ritemaster to spend a point of Gnosis, it instead requires a point of Essence. The effects of the rite work as indicated in **Werewolf: The Apocalypse** . 
 
 Some rites interact directly with parts of the **Apocalypse** cosmology that don’t exist in **Forsaken** —the Triat, for example, has no equivalent, and loci aren’t linked by MoonBridges. Rites that deal with Wyrm-taint directly could instead affect the resonance of an object or spirit taken from a Wound. While the Rite of Cleansing wouldn’t be enough to close a Wound, it could still remove the poisoned resonance from people. Banes still exist in **Forsaken** as spirits that serve the Maeljin, so rites that affect banes continue to do so. The Weaver doesn’t have an equivalent, though rites associated with her can either affect all spirits of man-made items, or just those associated with stasis, conformity, and permanence—the Storyteller should decide which before the game starts. 
@@ -670,8 +657,7 @@ _**Example:** The Bone Whistle is a four-dot fetish in_ _**Forsaken** . In_ _**A
 
 Note that in **Apocalypse** , a klaive is a specific form of silver fetish weapon. In **Forsaken** , these weapons deal +2 lethal damage, aggravated when used against werewolves, and activating with a reflexive action to deal aggravated damage to anyone. **Forsaken** uses “klaive” as a term for any hand-tohand weapon with a bound spirit to make a fetish. 
 
-**==> picture [289 x 255] intentionally omitted <==**
-
+**
 Traits and Systems 
 
 # Traits and Systems 
@@ -813,8 +799,7 @@ relationship value one another higher than other members of their pack, and that
 
 Black Spiral Dancers are the only werewolves to survive long with Harmony 0. Their only connection to the Umbra—and their only real agency—comes directly from 
 
-**==> picture [238 x 400] intentionally omitted <==**
-
+**
 the touch of the Wyrm. Everything they are and everything they do is to further the ends of corruption and to slay the very spiritual essence of the Earth. 
 
 A werewolf with Harmony 0 who does not walk the Black Spiral has her connection to the Umbra permanently severed. The character is locked into his breed form (metis take either Homid or Lupus form when they lose their last dot of Harmony), and cannot change shape or heal from damage. He cannot use Gifts, rites, or fetishes, and cannot regain Rage—though he can spend any points he has left. Forever cut off from part of his soul, he falls into a deep and painful depression. Some such werewolves take their own lives. Others throw themselves into suicidal tasks in the hope of redemption. None have survived. 
@@ -889,8 +874,7 @@ Modifier Situation −3 Action hurt or killed members of the sept −2 Auspice o
 
 As the pure light of the full moon highlights corruption, so to do werewolves who adhere to Purity Renown burn out the taint of the Wyrm wherever it is found. Purity is about more than just finding Wyrmspawn and flying into 
 
-**==> picture [238 x 676] intentionally omitted <==**
-
+**
 ## Traits and Systems 
 
 a frenzy, though—it is the strength of Rage tempered with the careful planning of a seasoned warrior. A werewolf who holds to Purity knows well when to send his pack on a surgical strike to cut out the heart of a tainted group, and when to engage in all-out battle. Garou who strive for Purity don’t force their views on other werewolves, but they lead by example—and expect their pack and their sept to listen when necessary. 
@@ -1133,8 +1117,7 @@ The main possessed that show up in any **Apocalypse** game are fomori, which are
 
 **Voice of the Wyrm:** Spend a point of Essence and roll Presence + Performance vs. victim’s Resolve + Primal Urge. On a success, the victim loses half his total Essence points. The fomor can also use his tongue as a weapon in close combat, dealing +1 lethal damage. 
 
-**==> picture [238 x 674] intentionally omitted <==**
-
+**
 The Spirit World 
 
 ## ForsAken to ApocAlypse 
@@ -1185,8 +1168,7 @@ For that reason, players should pool their characters’ Totem points and select
 
 Under **Forsaken** rules, remember that you can discount the cost of a totem by increasing the severity of a spirit’s ban. This can help to represent totems that impose heavy Renown penalties, which can in turn help defray the cost of expensive features like pack-wide Attribute increases. 
 
-**==> picture [487 x 517] intentionally omitted <==**
-
+**
 Character Conversion 
 
 ## Character Conversion 
@@ -1307,8 +1289,7 @@ Much as when creating your character for **Forsaken** , think in broad terms abo
 
 Characters in **Apocalypse** are created as werewolves from the start. To that end, the Concept step of character creation involves the character’s life among the Garou by presenting three choices: breed, auspice, and tribe. All **Forsaken** characters are of the homid breed by default; if your character concept lends itself particularly strongly to playing a metis or lupus, discuss that with your Storyteller. Most auspices convert simply enough and your Storyteller should already have told you whether Irraka and Elodoth become Ragabash and Philodox, or if she’s using one of the conversion options presented above. Do check with her if you’re not clear, as some concepts may jump between auspices— the Elodoth who acts more as a spirit envoy than a judge is best represented as a Theurge or Galliard in **Apocalypse** . 
 
-**==> picture [238 x 674] intentionally omitted <==**
-
+**
 ## Character Conversion 
 
 Converting the character’s tribe is reasonably straightforward: find out if the Storyteller’s including the Tribes of the Moon alongside the other tribes of the Garou Nation, using the conversion above. If not, look through your options and see which one fits best. If you don’t know where to start, consider the tribes that are optional lodges to your character’s tribe in **Forsaken** . Note that though many **Apocalypse** tribes have a strong element of ethnicity to them, it’s easy to incorporate that using a character’s ancestors several generations back. 
@@ -1379,36 +1360,12 @@ Jack now has 15 freebie points to spend. First off, he spends two to buy a dot o
 
 Jack checks over Eric’s background and concept and can’t find anything that wouldn’t work in the classic World of Darkness. He notes down the trait alterations for his other forms and is done. 
 
-**==> picture [236 x 76] intentionally omitted <==**
-
+**
 Name: Stalks-the-Truth Player: Bryan Chronicle: 
 
 Virtue: Hope Auspice: Irraka Vice: Lust Tribe: Iron Master Concept: New Journalist Lodge: 
 
 ## ATTRIBUTES 
 
-**==> picture [532 x 549] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-
-**Attributes 5/4/3•Skills 11/7/4 (+3 Specialties)•Auspice: choose 1 free Skill Specialty•Tribe•Renown and Gifts: 1 for auspice, 1 for tribe, 1 of your choice•Merits 7• (Buying the 5th dot in Attributes, Skills or Merits costs two points)•Health = Stamina + Size•Willpower = Resolve + Composure•Size = 5 for adult human-sized Werewolf•** _**48**_ **Defense = Lowest of Dexterity or Wits•Initiative Mod = Dexterity + Composure•Speed = Strength + Dexterity +5•Starting Harmony = 7•Primal Urge starts at 1 dot•Essence=Harmony** 
-
-**==> picture [236 x 76] intentionally omitted <==**
-
-**==> picture [538 x 660] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-
-**==> picture [133 x 57] intentionally omitted <==**
-
-**==> picture [517 x 642] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-
-**==> picture [133 x 57] intentionally omitted <==**
-
-**==> picture [516 x 113] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-Weapon/ Attack              Diff.       Damage    Range     Rate       Ammo    Conceal  Brawling Chart<br>Maneuver Roll Diff Damage<br>Bite Dex + Brawl 5 Strength + 1/A<br>Body Tackle Dex + Brawl 7 Special/B<br>Claw Dex + Brawl 6 Strength + 1/A<br>Grapple Dex + Brawl 6 Strength/B<br>Kick Dex + Brawl 7 Strength + 1/B<br>Punch Dex + Brawl 6 Strength/B<br>A=Aggravated Damage        B=Bashing Damage<br>Armor: _________________<br>**----- End of picture text -----**<br>
+**
 

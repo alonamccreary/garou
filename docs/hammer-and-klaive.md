@@ -1,5 +1,4 @@
-**==> picture [439 x 495] intentionally omitted <==**
-
+**
 By Sean Riley 
 
 Werewolf created by Mark Rein*Hagen 
@@ -10,8 +9,7 @@ Werewolf created by Mark Rein*Hagen
 
 **Layout, Typesetting & Cover Design** : Aileen E. Miles 
 
-**==> picture [162 x 102] intentionally omitted <==**
-
+**
 © 2003 White Wolf Publishing, Inc. All rights reserved. Reproduction without the written permission of the publisher is expressly forbidden, except for the purposes of reviews, and for blank character sheets, which may be reproduced for personal use only. White Wolf, Vampire, Vampire the Masquerade, Vampire the Dark Ages, Mage the Ascension, Hunter the Reckoning, World of Darkness, Exalted, and Aberrant are registered trademarks of White Wolf Publishing, Inc. All rights reserved. Werewolf the Apocalypse, Wraith the Oblivion, Changeling the Dreaming, Werewolf the Wild West, Mage the Sorcerers Crusade, Wraith the Great War, Mind's Eye Theatre, Trinity, Hammer and Klaive, Kinfolk Unsung Heroes, Players Guide to Garou, Players Guide to the Changing Breeds, Tribebook Glass Walkers and Werewolf Storytellers Companion are trademarks of White Wolf Publishing, Inc. All rights reserved. All characters, names, places and text herein are copyrighted by White Wolf Publishing, Inc. 
 
 The mention of or reference to any company or product in these pages is not a challenge to the trademark or copyright concerned. 
@@ -32,8 +30,7 @@ Hammer and Klaive
 
 _4_ 
 
-**==> picture [493 x 187] intentionally omitted <==**
-
+**
 ## _Contents_ 
 
 _Legends of the Garou: The First Klaive 4 Introduction: Wards & Weaponry 12 Chapter One: Objects of Worship (Fetishes in Society) 18 Chapter Two: Born in Vulcan's Fires (Fetish Creation) 40 Chapter Three: Pieces of Spirit (Sample Fetishes) 60 Chapter Four: Power Embodied (Legendary Fetishes) 110_ 
@@ -42,8 +39,7 @@ _Legends of the Garou: The First Klaive 4 Introduction: Wards & Weaponry 12 Chap
 
 Contents 
 
-**==> picture [482 x 272] intentionally omitted <==**
-
+**
 ## **The FirstKlaive** 
 
 There's not yet been a cub born that can keep his mouth shut. If there has, I don't know about him. And if there is a shut cub up trap out there, then I'll tell you, those teeth don't belong to any Ahroun. You hear all about the yappy Rags, so I figure it's time for me to start telling the morons about the drone a young Ahroun can make. About what he's going to do, how he's going to do it; and when he doesn't do it as he inevitably won't, how he's going to do it next time. I know all this, because if it hadn't been for my dear Mum pushing me out a week early, I'd be one of them. And if that hadn't happened, and you think I'm wordy now, you'd be set to kill me already. 
@@ -80,8 +76,7 @@ Alex hadn't moved. Neither had Oliver. I don't think either of them had ever qui
 
 "And you've gotten me pissed off for two reasons now. The first is that you called Camma's Tearful Eye a sword, and she deserves much better than that. The second is that you clearly don't know one thing about klaives, and that means I need to start at the beginning. And the beginning is a Silver Fang story, and I hate spilling a kind breath out of my gob for the damn Ruskies. So keep your ears open, because I won't repeat myself." 
 
-**==> picture [111 x 20] intentionally omitted <==**
-
+**
 "Strange days." Wind-howl remarked, her eyes wavering, yet only a little confused at the strange new world about them. Of all the creatures, only the Garou looked about with any certainty in these times. Something had happened. Everyone knew what — the world had been split asunder. Spirit had been ripped bleeding from the flesh that housed it, creating the world that all see today, and the Umbra most don't. No one knew who—maybe none even suspected what we know today. The Wyrm did this. The Wyrm had finally ended his time as Gaia's brother and had instead declared himself Her enemy. Remember that the countless prophecies that proclaim Gaia's death, the endless dirges sung to Her while she still hears; none of these had been spoken in those days, when the notion of real death was only on the tip of everyone's tongue, yet to fall from it and become a thought. 
 
 In these days, the Garou were custodians of Gaia and the world, first and foremost. Newborn from the blood of animals, plants and creation, spirits had yet to find their feet. In these days, even the trees bled. Animals too fell and stumbled, instincts not yet formed, deaf to the spirits that once guided them. 
@@ -206,8 +201,7 @@ Gytrash arrived right on cue, letting the gates make that wonderful old creak bi
 
 Legends of the Garou: The First Klaive 
 
-**==> picture [524 x 349] intentionally omitted <==**
-
+**
 and waited for their alpha to walk out to meet me. I made sure he could see Camma's Tearful Eye the whole way in. And he didn't take his eyes off it, 
 
 "Evening, Adam." I nodded to him as he came to stand about three feet away from me. I'm a short fellow, so he looks down on me by a lot. 
@@ -252,14 +246,12 @@ And I left them both there. I knew they'd find me again, so I wasn't too worried
 
 But it's always only moonlight and water. 
 
-**==> picture [184 x 229] intentionally omitted <==**
-
+**
 11 
 
 Legends of the Garou: The First Klaive 
 
-**==> picture [487 x 304] intentionally omitted <==**
-
+**
 Fetishism: _A term now obsolete, deriving from the Portuguese fetico (an artificial thing, a made object) and used in a number of contradictory ways in the development of anthropology. Its earliest use by Portuguese travelers in West Africa was used to describe magical charms and figures and, by extension, the religious belief that preternatural power can reside, temporarily or permanently, in a natural or artificial object._ 
 
 — D.J. Crowley, _New Catholic Encyclopedia_ 
@@ -318,8 +310,7 @@ Unlike talens, however, fetishes themselves are often fiendishly hard to create 
 
 At the heart of the concept of the fetish in Werewolf is the ancient Pact between the Changing Breeds and the spirits. Just as the spirits agreed to empower the shapeshifters' rites if properly performed, the spirits also agreed to enter into material shells in order to serve their wielders. What makes this agreement so important, though, is that it isn't a one-sided affair. The oldest rule of 
 
-**==> picture [271 x 724] intentionally omitted <==**
-
+**
 spirit negotiations is that nothing is free; a shapeshifter must offer something in return in order to gain a fetish of any power. 
 
 Similarly, the Pact is between spirits and shapeshifters — it does not include humanity. Thus, a spirit is under no obligation to respond to a Rite of Summoning or the Rite of the Fetish performed by anyone other than a shapeshifter, and spirits are notorious for not doing anything that they are not obligated to do by nature or pact. To many shapeshifters, the privilege of being included the Pact is a huge point of pride, and honor demands that they repay that privilege by treating their spirit allies — in fetish form or no — properly. If a werewolf refuses to let a non-Garou ally so much as touch a fetish of his, it might not be simple selfishness that drives him to do so. It may be a mixture of pragmatic diplomacy and religious belief that compels him to take his fetish tools so seriously. 
@@ -372,14 +363,12 @@ _The Encyclopedia of Religion_ , edited by Mircea Eliade. Not only is this a fin
 
 _The Ultimate Encyclopedia of Mythology_ by Arthur Cotterell and Rachel Storm. Yeah, it's a coffee table book. It's also an excellent coffee table book filled with many, many mythological figures and objects from six different geographical locations. Better yet, it's filled to the brim with great pictures of statues and artifacts and pictures of weapons being hurled about in great wars. If you want visual or mythical inspiration, this is a great place to go. Not a few fetishes in Chapter Three were inspired by the pictures and words in this book. 
 
-**==> picture [361 x 351] intentionally omitted <==**
-
+**
 17 
 
 Introduction: Wards and Weaponry 
 
-**==> picture [484 x 302] intentionally omitted <==**
-
+**
 _Natives who beat drums to drive off evil spirits are objects of scorn to smart Americans who blow horns to break up traffic jams._ — Mary Ellen Kelly 
 
 ## _The Culture of Fetishes_ 
@@ -446,8 +435,7 @@ A smart werewolf should never lose sight of the fact that fetishes arc much more
 
 Taboos are rarely complex; in fact, they're most often exceedingly simple bans upon certain ways of using the fetish. Common examples would be "Only Ahroun may hold the fetish," "No woman who sees the fetish should be allowed to live," or "The fetish may never be used in winter." If the taboo is broken, then dire consequences will result, but what those dire consequences are depends upon what the spirit is capable of delivering, A minor Gaffling might merely refuse to activate the fetish without serious persuasion (increasing the difficulty or Gnosis cost of activation), which happens fairly regularly where lesser fetishes are concerned. Other, more powerful spirits may be able to 
 
-**==> picture [523 x 373] intentionally omitted <==**
-
+**
 deliver their wrath more powerfully, however. A spirit of fire may set alight whatever it touches from that point forward, destroying much of the caern. The actual fetish can also affect the result; for instance, some sound-based fetishes are capable of summoning other spirits to attack or persecute the person who broke the taboo. 
 
 Any taboos that govern a fetish are laid during the Rite of the Fetish. They are the result of a deliberate agreement between both the Garou creating the fetish and the spirit entering it. Many spirits tend to be fond of demanding a taboo but not specifying a particular ban, forcing the Garou to state the terms of the bargain. As a result, cultural biases often play into what sorts of taboos fetishes tend to have. Someone from a highly patriarchal society may suggest the above example requiring women's deaths, but it's all but impossible that a Black Fury would. Other spirits, in particular more powerful ones, are more aggressive and make their terms very explicit. It's their way, or the highway. 
@@ -986,8 +974,7 @@ Chapter One: Objects of Worship
 
 39 
 
-**==> picture [482 x 307] intentionally omitted <==**
-
+**
 _The LORD said to Moses, "Speak to the Israelites and get twelve staffs from them, one from the leader of each of their ancestral tribes. Write the name of each man on his staff. On the staff of Levi write Aaron's name, for there must be one staff for the head of each ancestral tribe." ... The next day Moses entered the Tent of the Testimony and saw that Aaron's staff, which represented the house of Levi, had not only sprouted but had budded, blossomed and produced almonds._ 
 
 Neither man nor Garou exists in a vacuum, and neither does anything he creates. The creation of fetishes is shaped by the culture of the Garou (or Fera) creating it, down to the very sept that they exist in. Even if two Garou are from nearly identical, one tribe septs, they would still attempt to create the same fetish in subtly different ways, for one simple reason: the different people that surround them. All rites are ultimately social, and even the Rite of the Fetish, capable of being performed by a single individual, is in the end, a group effort. 
@@ -1032,8 +1019,7 @@ Hammer and Klaive
 
 42 
 
-**==> picture [521 x 371] intentionally omitted <==**
-
+**
 The aid of a sept in this research is crucial. An elder Theurge who takes the time to instruct would-be fetish makers can be a godsend, providing a wealth of experience and knowledge in the best ways to approach the project: Which spirits would be best suited to do what you're attempting to do? How would you go about finding them? What tactics would work best toward convincing it to bond with the object? 
 
 Failing this, or in addition to this, the connections a Garou possesses become crucial in properly researching the design of a fetish. Mentors can work in a similar manner to a helpful elder, though the experience and nature of the mentor will determine much of his usefulness. 
@@ -1172,10 +1158,7 @@ how well you want it made. The reason things in retail outlets cost so little is
 
 And finally, you can go it alone and make it yourself. This has a whole host of advantages. Spirits tend to prefer a fetish made by the owner-to-be, because the creator has invested more in it and is 
 
-**==> picture [227 x 66] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-likely to treat it better. You don't<br>need to decorate a fe-<br>tish by adding on<br>ornaments after<br>the fact, you<br>**----- End of picture text -----**<br>
+**
 
 can incorporate the decoration right from the beginning and craft a beautiful object as is. There's no risk of discovery from ugly influences, and you don't risk an artist forcing his own unwelcome interpretation on the object. There's only one drawback, even if it's a fairly large one — you need to know how to make it. A lot of good solid Craft ability is a must for going down this road, but the rewards for such effort mean that many would-be fetish creators work hard to improve their ability here. Some even begin to think it's part of the job description: You're not a fetish creator unless you create the fetish, every last bit. 
 
@@ -1525,8 +1508,7 @@ The rite varies highly depending upon the breed performing it and the human cult
 
 Chapter Two: Born in Vulcan's Fires 
 
-**==> picture [488 x 302] intentionally omitted <==**
-
+**
 _All that exists lives. The lamp walks around. The walls of the house have voices of their own. Even the chamber vessel has a separate land and house. The skins sleeping in the bags talk at night. The antlers lying on the tombs arise at night and walk in procession around the mounds, while the deceased get up to visit the living._ 
 
 — Chukchi Shaman 
@@ -1801,8 +1783,7 @@ Chapter Three: Pieces of Spirit
 
 67 
 
-**==> picture [520 x 361] intentionally omitted <==**
-
+**
 When activated and tied in a knot, the cloud string can ensnare the weather in a local area. The weather can then be dragged to wherever it is needed. For example, by stringing an area in the middle of a drought, the Garou could lead the hot weather into a flooded valley and help dry up the rain. Conversely, by snagging a rainstorm, a Garou alleviate drought or put out forest fires. The main difficulty with this is speed— The Garou must walk with the string, not drive or otherwise travel quickly. 
 
 The fetish looks quite unusual when it is used. The knot hangs in mid-air, and the moving weather can be observed by others. A heat wave dragged by any observers can be easily felt, and causes onlookers to break out into sudden sweats. Likewise, clouds visibly move behind the Garou if the fetish drags them along. 
@@ -1901,8 +1882,7 @@ and the mask both become immune to damage from fire. Many wearers deliberately s
 
 When activated, the mask immediately forces the wearer to spend one Rage and shift to Crinos (or the equivalent, for Fera) if not already in Crinos. However, this Crinos form is not the wearer's standard war form. Instead, the wearer changes fur, shape and all other features to look considerably like the war form of the shapeshifter suggested by the mask. However, the illusion is imperfect. Gaia created each Changing 
 
-**==> picture [507 x 361] intentionally omitted <==**
-
+**
 Breed separately and did not intend for each to have the means to copy the others perfectly. (The Nuwisha remain an exception for reasons unknown.) 
 
 Instead, the form produced can best be described as that of the wearer's Crinos form, interpreted in the context of the animal being imitated. As the most instructive example, a Nagah does not possess legs in his Azhi Dahaka "Crinos" form, but instead his body tapers into a long tail. A Garou who had somehow heard of the Nagah and attempted to imitate one with a Serpent Mask will instead produce a creature with a snakelike head, barrel chest, massive arms and legs, and possibly a long snakelike tail extending from the back. Anyone familiar with how Nagah _really_ look will almost certainly not be fooled, but others might be. (Conversely, a Nagah wearing a Wolf Mask would lack the legs of a Crinos in his "false Crinos form"; needless to say, the Nagah find most Predator Masks essentially useless.) 
@@ -2075,8 +2055,7 @@ Hammer and Klaive
 
 76 
 
-**==> picture [523 x 369] intentionally omitted <==**
-
+**
 quickly after learning the Rite of the Fetish or the Rite of Spirit Awakening. In addition, metis frequently develop the knack of making them quite lethal indeed. 
 
 Grass Darts can be made from a handful of grass and a bound rock-spirit. Even a single rock-spirit is enough to prepare twenty of these darts. Even the metis that make them can't (or won't) quite explain this feat. When properly created and activated, the blades of grass become rock-hard while remaining light and thin, as well as quite sharp. Most commonly, the darts are placed within the mouth and spat out at surprised opponents, either singularly or in groups of five. When so used, they do either one level of lethal damage (difficulty 6 to hit) singularly or three levels of lethal damage (difficulty 5 to hit) in a group. 
@@ -2425,8 +2404,7 @@ One of the most common fetishes for the Fianna, particularly among those from Ir
 
 • Messenger Tores (Level One, Gnosis 5) are worn by emissaries, diplomats, or other Fianna messengers to other tribes during times of war. Always made from gold or other flashy, highly visible metal, messenger torcs are bound with the spirit of a young cub or other infant animal. Their heads are shaped in the form of the glyphs connoting "Travel" and "Observant." When activated, the torc sends an empathic message to any who see it, telling them not to attack the wearer of the torc. Those who wish to attack the wearer must make a Willpower roll, difficulty 7; if the torc's wearer is currently engaged in combat or otherwise posing an obvious threat, no Willpower roll is needed. 
 
-**==> picture [524 x 367] intentionally omitted <==**
-
+**
 This message of the torc wearer holds no actual power over those who receive it, but in all save the most bloodthirsty of wars it gives messengers a chance to safely deliver a message and leave afterwards. This is especially true of battles with other Fianna; the messenger torc is a proud tradition that few ever choose to break. However, it does work against any opponents, human, animal or otherwise. Even the servants of the Wyrm have been known to occasionally honor the very temporary truce a messenger torc suggests, although some propose this is done simply to lure other Fianna into walking right into their claws. 
 
 • **Battle Torcs** (Level Three, Gnosis 7) are easily the most common fetish torcs among the Fianna. Made at least partially from hard metals (many also incorporate a softer but more beautiful second metal) and bound with a spirit of Rage, the battle torcs are particularly favored by those Fianna that are both proficient with and switch between unarmed, armed and ranged combat. Quite often they are employed in combination with weapons that can be both used hand-to-hand and thrown, allowing the wearer a strong versatility that a fetish weapon can't provide. Anyone wearing a battle torc makes any Brawl rolls, Melee rolls, or Athletics rolls to hit an opponent with a thrown object at -2 difficulty. 
@@ -2635,8 +2613,7 @@ Most Shadow Lords would kill for one of these fetishes, or at least resort to ve
 
 One problem the Shadow Lords often encounter is that of trust. While they reject the notions of intractable Honor (anything, including personal scruples, must be sacrificed if this means it will aid Gaia), there are times when former enemies must work together for 
 
-**==> picture [261 x 726] intentionally omitted <==**
-
+**
 Gaia's benefit. Curse Bracelets are a way of trying to reestablish trust between those who previously shared none. While many Shadow Lords detest these fetishes with a passion, none deny they are a remarkable example of lateral thinking in fetish design. 
 
 Curse Bracelets are always made in sets of two (or more), and can be bound with almost any spirit, though those capable of great destruction are preferred. The power of the spirit determines the level of the fetish, though not the Gnosis, which is always 5. This is because the spirit gets the cushiest job of all time — it is told to sit tight in the bracelets and do absolutely nothing. What makes the fetish useful is that a number of taboos are also attached to it at creation. The first of these is very simple: "You will never take me off your wrist." All the rest detail the exact nature of the alliance, and what constitutes a breach. Should the taboos be broken, the fetish naturally becomes cursed and begins taking vengeance upon whoever broke the alliance. (The Story teller can adjudicate how this takes place.) Hence, it's a powerful incentive to keep the trust of your allies. 
@@ -2677,8 +2654,7 @@ According to one Egyptian legend, the sun god Atum fired sunbeams as if they wer
 
 Hammer and Klaive 
 
-**==> picture [259 x 728] intentionally omitted <==**
-
+**
 Silent Striders will never fire so many arrows as he did, they're also slightly more inventive than he was. Designed for hunting vampires, Atum's Arrows are made from acacia wood and bound with a sun spirit. They are also split very carefully at two different points, 
 
 When activated and fired, the arrow becomes infused with sunlight, turning into fire. However, the breaks in the arrows shaft cause it to rupture in midflight into three small balls of flame that each head toward the same target in a shotgun-like effect. They thus lack penetration but do considerably more damage against creatures vulnerable to flame such as some fomori and, of course, vampires. 
@@ -3351,8 +3327,7 @@ Hammer and Klaive
 
 108 
 
-**==> picture [520 x 363] intentionally omitted <==**
-
+**
 nent level. At the end of the scene, the wearer loses all but one temporary point in each category, exhausted from the stress of bearing so much internal energy. If the character has no temporary points left 
 
 in any category, however, she gains a temporary point so that she still has one temporary point in each category. Balance is maintained. 
@@ -3361,8 +3336,7 @@ in any category, however, she gains a temporary point so that she still has one 
 
 Chapter Three: Pieces of Spirit 
 
-**==> picture [483 x 308] intentionally omitted <==**
-
+**
 _Then blacksmiths were summoned to forge weapons. For Liu Bei they made a pair of ancient swords; for Guan Yu they fashioned a long-handled, curved blade called Green-Dragon Saber, which weighed a full one hundred twenty pounds; and for Zhang Fei they created a ten-foot spear called Serpent Halberd._ 
 
 _— Romance of the Three Kingdoms_ 
@@ -3485,8 +3459,7 @@ the chronicle ends with the fetish being found (apart from, perhaps, a denouemen
 
 Instead, spend all that time on the other details. If you're making that race against a Black Spiral pack, then spend most of your time on the Black Spirals. Make the antagonists memorable and interesting, because your players will do the work on making the legendary fetish interesting for you. (Just give them enough hints to start wondering exactly what it is and what it will be able to do. Let them speculate.) Likewise, get the plot as neat and complex as possible. 
 
-**==> picture [526 x 355] intentionally omitted <==**
-
+**
 Again, look at the example of _Raiders of the Lost Ark._ The best part of the film isn't when the Ark of the Covenant (inspiration for a legendary fetish if ever there was any) is stuck in one place waiting to be found, but at the end, with the Ark being shuffled about on trucks and transported everywhere. Give your story the same twists and turns, and keep your players guessing. 
 
 And while you have videos out, watch _Jaws_ as well, and observe the way the film builds tension at the start. The shark is half seen, never revealed, but endlessly talked about. Do the same with your legendary fetishes. Build the tension and suspense. If you're going to put the legendary fetish at the end, then take advantage of the long time you'll have to whet your players' anticipation of it. 
@@ -3595,8 +3568,7 @@ The time limit also creates the possibility for a "race against time" chronicle 
 
 Chapter Four: Power Embodied 
 
-**==> picture [524 x 353] intentionally omitted <==**
-
+**
 found because Inihue won't (or might not) come to whomever holds the Sword, but rather to whomever she gave it. Failure to recover the Sword in time means the previous owner's own death via curse. Storytellers who are feeling vicious can also allow for the players to fail in this mission without destroying a chronicle in the process, since the death may come a long time after the curse is laid upon them. (In particular, this is a fine Dark Fate to fall on some luckless Garou with the appropriate Flaw.) 
 
 ## _Hammer of Plagues_ 
@@ -3691,8 +3663,7 @@ So they slaughtered him... and then never returned. And pack after pack followed
 
 Perhaps because nothing so truly evil can ever stay dormant, or perhaps because the Wyrm himself directly intervened, the Book returned again and again. There are Get of Fenris who swear the truth of an ancient legend that saw the book arise in the hands of 
 
-**==> picture [259 x 723] intentionally omitted <==**
-
+**
 a Black Spiral sept, and two hundred of the Fenrir, half of them werewolves and half Kin, died to rid the book from their hands. Another legend comes from the Glass Walkers, who state that the book found Rome and for two weeks the city did naught but kill, rape and eat each other, and yet this tale has never found the history books. That this tribe, who puts more stock in such human history than any other, still shakes at this tale makes many Garou pale indeed. And in the Wild West, a Fianna Ahroun by the name of Seaghdh Roadof-Claws protected his sept from overwhelming forces by daring to read the Book — and write in it. He became possessed and could not stop writing, and his mind grew poisoned. When the sept knew he finally must be killed, four packs died to bring him down, 
 
 Since then, the Book has lain silent and unfound. All fear its return. All dread the prospect of the Black Spiral Dancers finding it once more. 
@@ -3723,8 +3694,7 @@ In the hands of the Garou, the book could be introduced to one of the players as
 
 Finally, the question of Rytolthoka also could be answered. Where is it? Is it a real place in the physical realm? Does it now exist only in the Umbra? Perhaps, given its history, it exists in the Atrocity Realm, Any of the stories involving the Book might end up in Rytolthoka. 
 
-**==> picture [370 x 371] intentionally omitted <==**
-
+**
 125 
 
 Chapter Four: Power Embodied 

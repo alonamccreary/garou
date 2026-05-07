@@ -5,6 +5,18 @@ LETTER_RATIO_THRESHOLD = 0.55
 MIN_LINE_LENGTH = 4
 NL = chr(10)
 
+def remove_picture_text(text):
+    # Remove ==> picture ... <== lines
+    text = re.sub(r'==>.*?<==.*?' + NL, '', text)
+    # Remove everything between picture text markers
+    text = re.sub(
+        r'----- Start of picture text -----.*?----- End of picture text -----' + NL + '?',
+        '',
+        text,
+        flags=re.DOTALL
+    )
+    return text
+
 def is_garbled(line):
     stripped = line.strip()
     if not stripped:
@@ -18,7 +30,10 @@ def is_garbled(line):
     return (letters / len(non_ws)) < LETTER_RATIO_THRESHOLD
 
 def clean_file(path):
-    lines = path.read_text(encoding='utf-8').splitlines(keepends=True)
+    text = path.read_text(encoding='utf-8')
+    orig_lines = text.count(NL)
+    text = remove_picture_text(text)
+    lines = text.splitlines(keepends=True)
     cleaned, removed = [], 0
     in_code = False
     for line in lines:
@@ -30,7 +45,8 @@ def clean_file(path):
             removed += 1
     text = re.sub(NL + '{3,}', NL * 2, ''.join(cleaned))
     path.write_text(text, encoding='utf-8')
-    return len(lines), removed
+    final_lines = text.count(NL)
+    return orig_lines, orig_lines - final_lines
 
 if __name__ == '__main__':
     total = 0
@@ -39,6 +55,6 @@ if __name__ == '__main__':
             continue
         orig, removed = clean_file(md)
         if removed:
-            print(f'{md.name}: removed {removed}/{orig} lines ({removed*100//orig}%)')
+            print(f'{md.name}: removed {removed}/{orig} lines ({removed*100//max(orig,1)}%)')
             total += removed
-    print(f'Done. Total garbled lines removed: {total}')
+    print(f'Done. Total lines removed: {total}')

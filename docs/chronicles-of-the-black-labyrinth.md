@@ -1,19 +1,10 @@
-**==> picture [381 x 408] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-KOEN re<br>v4\ SSoy ~ i ¢ ! pog Mee{ \<br>= : \ -". : s ‘ Dew = OE esA ¥ ra4 i,: i a i / /f<br>2 > C= ae 2 7 ; i. y,<br>x *<br>ff . =~ > Biase a Ad i ys<br>= SS Beene» a at is: y<br>ofa SesNr me SaTsne iey<br>} _ ’ A<br>er<br>a i ee ~ ) jos | tl ein 7 aed<br>**----- End of picture text -----**<br>
+**
 
 ## : 
 
-**==> picture [211 x 282] intentionally omitted <==**
+**
 
-**----- Start of picture text -----**<br>
-“Fes: SALTATIO Go<br>Chronicle oftheNN<br>SES pVOSs: SALTAT OS<br>Ss OA TBESS SALTATIO pAexes<br>fey “i —<J OR: S. CAT Lee LONE<br>Ae LID.<br>OS Oss Pvon CONS.<br>LSSK:5 DEPRAVANe NY<br>SPY S. FIpe> oN<br>5 TARAS ONG<br>Ss, FALNO)<br>of 3 Ove<br>U &<br>**----- End of picture text -----**<br>
-
-**==> picture [245 x 22] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-A Forbidden ‘Tome of Wyrmish Lore<br>**----- End of picture text -----**<br>
+**
 
 being a compilation of narratives and documents from many sources in various times and lands, collected by divers hands and exhaustively annotated for the further enlightenment of neophytes and initiates. 
 
@@ -107,10 +98,7 @@ I came to the decision to publish at this particular time when, while watching t
 
 Egbert Reeve, RedBletter Press San Francisco, 1970 
 
-**==> picture [241 x 199] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-aan 5 SS<br>gs a * fiie y e) e MS<br>Ye, 4 Sanne Se<br>if a Pi OoASIN Ls<br>; ore A<br>este A ~@? :<br>‘pase3 &<br>**----- End of picture text -----**<br>
+**
 
 eponymousIn 1735, Lord Alfred Craven publishepy Chronicle of the Black Labyrinth, the which was progenitorpresented to ofKing the Georgedsinve lume younmanuscript **w** hold. Theform avowedbeforeintentionits publication,of this work,was to expose a vast network of intrigue and conspiracy directed at the British royal line in particular and the cultural integrity of the English nation in general. Lord Craven, a retired warhorse and self-styled scholar, had spent most of his career defending the crown against Charles Edward (the “Old Pretender” who sought to reclaim the throne for the Stuart line) and was grievously wounded in the first Jacobite uprising some twenty years before. The first half of Craven’s work is a masterpiece of circular reasoning which rivals many modern paranoiac tractates, interlaced with specific accusations against many members of the king’s court and the Parliamentary government, presented in the Grand Inquisitorial style. This conspiracy, which Craven calls the Black Labyrinth, stretched across the British Isles and beyond, implicating most of Europe as well as the American colonies, and was described in such a way as to render any response which might be made to it an admission of guilt. Pinpointing the source of the conspiracy in Scotland, he does not stop there; the second half of the Chronicle works its way backward through history, tracing the unbridled malice of the Scots and their co-conspirators to the actions of dark supernatural entities whose origins are lost in the mists of prehistory. 
 
@@ -128,10 +116,7 @@ Trying without success to establish a branch of the Pretanic Order (as the broth
 
 Frater I*I, Keeper of the Dark Orb and Gazer into the Abyss San Francisco, 1968 
 
-**==> picture [231 x 372] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-a / “Wa UW veut<br>A NY, NS, Ye fi<br>Y<br>sy et he ce tie<br>AY *<br>‘7 «4<br>Ny<br>**----- End of picture text -----**<br>
+**
 
 b 
 
@@ -145,10 +130,7 @@ u< <8ov~ ATi6@ Y, A az Lo Von Br XV RNC Nar oN y> iNO :
 
 THE EPOCH OF CALAMITY 
 
-**==> picture [238 x 142] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-y ad e<br>1A eS CEN 5 Letters<br>Si<br>**----- End of picture text -----**<br>
+**
 
 The contents of this chapter are taken from the British Museum Harleian MS 3859, sometimes referred to as “Nennius’ History of the Britons with appendices,” but commonly known to modern scholars as the British Historical Miscellany. The latter title is the most appropriate, for it is nothing more than a hodge-podge collection ofdocuments with no attempt at inventory or categorization, and contains, among other things, Latin orations, part of a sermon by St. Augustine of Hippo, and an obscure Scythian geography. Acquired by the Harleian Library in 1729, it has been dated to the latter half of the tenth century and attributed to the scriptorium at St. David's. The original Chronicle of the Black Labyrinth ends with a very garbled version of the following account, which Lord Craven probably derived from second- and third-hand translations, having been denied access to the Harleian Library because of his impolitic vehemence. Frater I*I has endeavored to produce a readable modern translation, but the decayed and worm-eaten condition of much of the manuscript resulted only in the fragmentary text below. 
 
@@ -194,10 +176,7 @@ to his people only in a detached, sad sort of way; I surmised that the ruling fa
 
 [A]nd there it is, Legate. This will of course be my last missive for some while, but my next communication should be of the best tidings; soon we shall drive the Celtae into the sea and redraw the Roman border to encompass all of Caledonia! [T]itus Germanicus, Centurion, CVIIIth Cohort 
 
-**==> picture [355 x 200] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-ri SN AF<br>AGN YY y)<br>ee) (6<br> IK . || 4o- eo}<br>y<br>¥ [M]<br>. eed<br>\ i y :<br>**----- End of picture text -----**<br>
+**
 
 Chapter One: A Centurion’sion’s L Letters 9 sis J, only two10 completlete letters of » Germanicu.icus. TON ThesetheyareuJeret scleral nei T posted to Rome, itit is unlikely Rise SRY that Germ ha ve carried them witr h him mtointo the ae RAN RON Pieslands. le is Frater . they were somehow pres fiSoH \\BS YSAY ; NNaikAt: aNW * sere rac r retrieved by -yilagie unaaniN Vasva : Thoughnanceed compiler.anicus= beliefis se: by Nenniusd by the psddiff erence in » NN : aw S aecondition between ther {jo hile the \s AX)ie ANA:fy uateKY \ RY:t~ two lettersinitial' had beeumn andcopiediedintot laterin Kaveaboiatahe manus follows. W filumi“yhNW ESNAY A.a“yy fi na. tedesnainitialrrativeleletteris inin Germanichemf each theoryandparagricus’ theT naowaphrrativeleftnuscript thaunfinis.ainished), thawas“erredfoldedthe followod into: N\AS&AN N\ iN NG E tethe back cover of th e MS , probablymfor hand,later inclus. ion as an fa“ap ASNSERNSN i DENSae 6 Pendix.sag RS ARS | cei a . NY ANY a oe ih What fo 9é may have indee. ies of letters to NYARIA;iis iN: NYAD\ANYVauhiyil, iit \) nyVeaeveoe Y),:be RY:VaAsV3goe Incitationcitatusung,nswered.but.llowsthown; wiedecayepersoMor. naldande‘journal k;likely,frliagmentaryJ beguntheseorn: se otes, asafragnstatefrom sinentslePave:ssiwhic isecom{ichsource queshe in_: . ot NY WM , Germanicustended to wrtite his. report backba to Rome5 upon his, tr.umphant _ ANRW 4 WA £ ‘4 =ilk AWN REN ) 4 i \ eavining Eboracum,nl, we passeed the ruinin **s** ¢of f ththe Tower WASawx SANKNAN rsi)NK \ ofF Trajan 7c ances piassed betw **e** en Brennusweand hissis "4 SAAYS Wa +} NES ere wasas furt ing. Late ’ a Wee ree. ur part> 7 a little of the r, a Cymric> relate i d AW. Ns **S** iVHy{ **\** men,that— and ° Strange who, orhadesto r q1 himvdleaditie accusatosatorily,hated“Sou net“ye tmnnatindhav ” AI,‘eN\(:SSYSSthy)YSSN} j ANNSNi4 us‘ m,Brennusan d they ucsha Il remember. TSASNSA~~AENS a; y‘ 4 eesvs esf ge rag‘ , [...]ove coun trysici side Je isis beautifulbez btmin ies SparSpartan star **k** rness. Vast ‘ rollingThefieldsvat heathe r stre tch bene ath the gray, skies;face itlie ills rollently inin s, in; othe rst h eyy jutjut atodd angles SSNLEANSESSSS Sf ve. ’ B: \k| \N4" -with tteacherous yg **l** ysomebare plaro **c** ek.7 asked|; Bren nus i . | “ [ worl ] but UE t hink no t that the la rock riled ou see **i** t now. When Writs SAY for Ny aesBE AASWN 3 le ff **ir** stst cameland a was alw alkeed. for th thames; had not \ yet-t Gd divide he earth was p ulling bac k her mantle Nest VPAM\\ } oOmy Tivided thehunt=edt_ reindeer, bisison and nhammo Ni areas RASSSASANS) \\\\“\\ the plains.‘ a an!! For 1 eople,le KesQaSN‘ oN\\ i.My ve **an** dice,our andmema wkories nos **t** ,retch mn-tch ckba farthermine. th anis anyrou melc even "imagine! SSSeSSSANNe j hills,“Whenand lushtheforestsoceanssts coveredrose,se, wetmuchwereof.drivetheivencoucountrysback side.into: tMyhe weAS! owm totem, the Lion, flourished here, as well as eer. las the red d : SAN wiild boar, and ma ny other animals, wtho becam e extinct as 8;es the wildern ess dieted: ” YNN AN les rR)iy filehe sq ualolor of: thesse folk isis deplorablbl **e** .. They» havre no proper dwellings,ings, but l **i** veve mosstly in ea tthen mou nds. I ha— 
 
@@ -215,10 +194,7 @@ This next portion appears to have been written immediately after the event it de
 
 [...] overturned, showering sparks and spilling embers onto the side of the tent, which became an instant sheet of flame. Swiftly grabbing my [...] “—filthy little savages have played us for—” then was cut short with a wet tearing sound [...] flashing swords in the firelight, glistening faces of men crying out in pain and fear, growls of huge [...] blood and more blood as my gladius bit deeply [...] away with a handful of greasy matted fur, then turned |...] face out of a nightmare, tiny piglike eyes blazing sickly green with fury, surmounted by great batlike ears notched from many battles; but the mouth was the worst, opening at an awkward angle, almost sideways, splitting the face vertically, jaws which sprouted fangs not in natural rows but every which way [...] low and bubbling in the back of its throat, slavering a viscous drool which caused the ground to smoke where it dropped [...] see over its bent leathery shoulder, Brennus, oddly transformed [...] feral burning gaze 
 
-**==> picture [354 x 140] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-hae ee {\\ Rely), \ as BS Stites ye<br>YU! STN WW} </] i y, Hf, ij Pre A<br>oeeinesBeat 7 VAL, } Th Whyyp, : ; AYss <vat tn<br>**----- End of picture text -----**<br>
+**
 
 | 
 
@@ -240,10 +216,7 @@ This next passage was obviously written later, under less turbulent conditions, 
 
 The Chronicle of the Black Labyrinth 
 
-**==> picture [370 x 551] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-“These serpent-folk were wise in a SA sod oath |<br>us of the Vermis of old, before the \ SH, Mg jm uy pe on etcneen”” ight Y<br>madness came upon the Textor. It was ue ESI) Aa ae H}<br>the old Vermis who maintained the tH é WiC saegySN Y, Ney H\<br>balance between Textor and Feritas, B\\\ NY ON Nun OMe a it<br>taught us. The Vermis had ancient | ae tilly er« RATE : eK Lh ays<br>whichpent-folk, were as sacred placestotheser- —/ AREY és ysTN a i (auenea<br>for | believe that they did / TERIA ND } Ki ea | waa a<br>not truly understand the madness of Va ted 1% (i0 K N y f ORR |<br>the lands of Caledonia. Recall thar, “CSERNENSG ‘ on Levi, KEN WY |<br>though his numbers, weapons and re-__, /, RRew aah er, K Mimutenge eng<br>sources were vastly superior, yet did 4 CE Bl i rata We,<br>our small raiding parties of allied Picts v RL AR eae on We Wee Monts<br>and Celts eat away at his supply lines. AAA ANS et BERN Hang<br>Understand that this hatred and ab- Lear NSS |4) wae<br>horrence, which your Empire so ca- A. AERA  NS 7 Wa<br>sually engenders, is such a great force XN yeas Sr 4 a<br>that it can prove your own undoing, ‘ V "a Ly 4<br>as well as the doom of those you seek<br>to conquer. In my younger days, my hi<br>hatred for Rome was such that even | Zi<br>myself was moved to call upon that Hi<br>we [“...] at least one centurion that By)Ye<br>ing know of who was one of the walk- | tie |<br> dead, those that burn in the sun’s Gr" aly<br>light and that slake their thirst with Ap he |<br>the blood of the living. Among his Sng’ aii fyi i<br>century were those that the Gaels ee as 'f pA |: ni ih ey i<br>name fomori, men who had been pos- » WY Mr: shy ay 4 iH<br>sessed by evil spirits and whose bod- ETT UE NR NG otal [EM ge iy BON,<br>nipies' inane> Poa ; ; . RFADS gt ORMR yet 9J iy hs<br>thehad been warped into weapons for y y Cy Danae ogt oas OEM<br>Vermis. Many among my people HY (ee ‘es SSS Rt ci ig Nyt ese gay,<br>believed that they had the aid of the Mi; WieA iii £5 oe iircd<br>is well-nigh impossible knowing the TATit if} iAMQ MALifGAMneldesdeth MNel bhi NGZK A<br>**----- End of picture text -----**<br>
+**
 
 13 
 
@@ -257,10 +230,7 @@ vigilance of us Picts. In any case, they made their way over the Grampian mounta
 
 “Then, out of the lands of Damh Brugh, Crom Cruach and Moch Maugh"®, came the reports — the omens. First, there were many stillbirths among the cattle, and the bodies of the calves were twisted and hideously undeveloped. Then, it was said, goats began to drop kids with three, five or seven legs, three eyes, or two heads. Things without faces which kicked once then suffocated. My grandfather, who was king at that time, sent men into those lands to investigate. What they told upon their return would shrivel the heart of all Pictdom. 
 
-**==> picture [364 x 184] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-“The people of that land had kept a terrible secret from the rest of us: it had not only<br>been their livestock that had been accursed, but their own offspring as well. Children had<br>been born twisted and monstrous. Of those who survived their birth, most were killed by<br>alae e bhais \ MS | Appt, y thp phy \ MAPLE AAA,<br>Mvp STMU, eM MU eS LE Citra Al<br>Won i A is tcses YA AMA ien MOH To. <* Ne)<br>i fy) we x ux Ly r VOB SES OBO AIX /<br>**----- End of picture text -----**<br>
+**
 
 14 
 
@@ -276,10 +246,7 @@ Chapter One: A Centurion’s Letters
 
 15 
 
-**==> picture [364 x 547] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-entrance too massive to shift [...] only my sword had been taken from me, so, with flint and<br>steel and the few dry scraps | could pull from the straw bedding [...] just make out a large<br>mound of what seemed to be bodies [...] here, a broken Celtic sword, there, a fine leather<br>breastplate, shredded like paper, and there the frayed crest of a legionary’s helm. I stepped<br>toward the mound, and something round slid and scraped beneath my bootheel [...] even<br>with half his face sheared off, | recognized the cruel twist upon the greasy lips of Drusus, the<br>Iberian sergeant. None shall mourn his passing [...] the heads of over a dozen Celtae, tied<br>together by their hair like a rotting bunch of grapes [...] fingers, and segments of fingers, all<br>lined up in neat rows by some idle hand (counting the days, perhaps’). Upon one freshly<br>severed knuckle I saw a brass ring that my young adjutant had been so proud of. Gods<br>above, what could I have been thinking, to bring him on a mission like this? Poor Quintillus.<br>You died without ever even having a fat girl [...] rolled the great boulder carelessly aside,<br>(g fi<br>wi )<br>\ hy<br>yh Pe, yf /<br>aN NA ng<br>I,y { Neeuiget ‘, ve 4 J x My<br>Ly nn a Ph,<br>iw “ , Lad ,<br>¥ hers fer<br>A ix fev7— Myé Ws oNIN<br>ff  y f wt \ \y fWhi yeeanh<br>iss f eau ca Yr OR<br>’ PAN ’ a ‘ AON ,<br>i 4 "! LF Wal<br>ie ON eee aie 3 4 if<br>i 1 fterts « PRET GT RN 4 ‘<br>( fitsRY| WANAeeaAge (Me<br>ve {t:8 ee fh 4<br>CRHil Dl 1 AGcei  OM,woe<br>San)re a B AU & AXYYNX \ dy Oe WESaT4 i<br>Nay wy sae WN Ae |<br>Nees hi se Sane<br>Netty:\" 3: Mt Ney : WLhath Lg<br>VN“nityge aihe 1wih orgayer b 7]<br>We a<br>6 an ti<br>Me IN<br>**----- End of picture text -----**<br>
+**
 
 16 
 
@@ -287,25 +254,9 @@ The Chronicle of the Black Labyrinth
 
 and pushed its bulk through the entrance [...] not thé-sleekAdble wvelf-heads I once saw running through thetrees-Where-Pgrew up, bua twisted bat-eared monstrosity, like those that attacked us at the eamp{[...] through its slavering jaws, it barked something that sounded like “Come!” [...] down still more narrow slick-walled passages, resounding with a droning whining wail [...] into a hissing crowd of glowing eyes bobbing in the pitch blackness [...] now almost deafened by that wailing sound [...] with a touch as cold as ice. My [...] clenched tight with fear and [...] coiled about my heart, constricting until I felt sure it must burst [...] suddenly, a single tiny flame, no larger than a candle’s [...] could see that the nerve-wracking wail was coming from a half-dozen hollowed thighbones, through which air was being forced from a large glistening bladder or stomach-sack [...][“JHAAA-KAKAKAKAKKENNNGH! AHAAYII! FEEEEEBAK!” and still thevhissing [...] [“] ULLOQOOOGHMOOLLAGH! BAASH! BAAASH! BAASH-KAYEEEAAGH! [“] [...] lighting up Brennus’ face, battered and bruised almost beyond recognition, only inches from mine [...] inside my head, “AHAI BASHKAAI!” Then, in an oily, seemingly familiar tone, “Remember whose man you are, Titus Germanicus! Remember the mission that brought you here! [“] [...] streams of blood, rivers of blood, flowing into a vast wine-dark ocean of briny gore[...] days? Or only hours? I can scarcely see what I am writing, and I know not why | continue is) 
 
-**==> picture [2 x 2] intentionally omitted <==**
+**
 
-**----- Start of picture text -----**<br>
-
-Salve, Legate: 
-
-It is my pleasure to report that the King of the Picts may be removed from the list of Rome’s greatest enemies in Britannia! In the absence of their tribal leader, Pictish harassment along the wall can be expected to subside, allowing for more concentrated action against the remaining wild Celtae. Initial attempts to ally with the Picti proved unfeasible and unnecessary, especially when I was suddenly reminded of the conversations we had those nights at your villa high above the wine-dark Adriatic. Expect in future post the salted trophy-head of King,Brennus, the last of the fabled “White Howlers,” for your patfon’s collection, and the’ end jof the warring season hopes to find me once again at your villay sharing that ¢uridusly thick and briny private vintage you keep. 
-
-Titus Germanicus, Eboracum!? 
-
-**==> picture [322 x 487] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-MEN a @<br>ee Ms 2 eS CS EE Soe”Sa a \ —— :<br>ye Fre: ». = Ate as 2 fis ng y xe $<br>UMSOe<br>BatsDw OO<br>**----- End of picture text -----**<br>
-
-**==> picture [206 x 48] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-Chapter Two:<br>Fabulae et Cantae Scotti<br>**----- End of picture text -----**<br>
+**
 
 Lord Craven's original Chronicle of the Black Labyrinth made extensive use of Scottish lore and legend, as derived from the medieval compilation Fabulae et Cantae Scotti, which is believed to have been assembled some time in the twelfth century. Much of what Craven quotes is nothing more than common fairy tales which Frater I*] has deemed of little relevance to the present volume. Also, any example of harshness and brutality among Scottish custom is cited as a means of furthering the blatantly inflammatory purpose of Craven’s work. His tenacity in digging up any form of slander and insult against the Scots is to be admired, however. The following quote from the Roman poet Prosper adorns his original title page, and is especially interesting in light of the ophidian revelations of the previous chapter’s document: 
 
@@ -321,15 +272,9 @@ Yer breech-cuff cinch up ladde or lasse For theyre sure to comme ‘roon Up frae
 
 19 
 
-**==> picture [163 x 14] intentionally omitted <==**
+**
 
-**----- Start of picture text -----**<br>
-Chapter Two: Fabulae et Cantae Scotti<br>**----- End of picture text -----**<br>
-
-**==> picture [379 x 291] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-a By the ninth or tenth century, the Picts had virtually<br>( OQ { disappeared from the pages ofhistory as a distinct people.<br>¥\ cat ‘ (hy, This is mainly due to the ascension of Kenneth Mac<br>Pay (ai aan (a ST, Alpin, who united the Picts and Scots ina single<br>fyy et VgLE ) .Cxi oy 4 ‘bzy Ay outkingdom.side that of theMac family.Craven Alpin wastakes Pictishgreat onpains his mother'sto point<br>a)...” 00.07 FS 8) Wy According to Lord Craven, the corrup-<br>A 1S: or wi tion of the British royal line occurred near the<br>; (oy co) . beginning of the fourteenth century. King Edward<br>Cm, c. 3 )j “Longshanks,” whose atrocities against the<br>(3)Bs RSS‘;eae«i. hi “S S GN" Scotswife toare legendary, Scotland as ansent expendablehis son’s envoy French to<br>Bc o.% MY] sion she was raped (at least by Craven's<br>"\ 4 Pele ONY BIER) the rebelling Scottish tribes. During this mis-<br>»s POUR : 49Ny account) by a Scottish rebel of Pictish de-<br>weoofon yr 2 ON: ffTo or scent, and, unknown to her husband, Ed-<br>ward II, conceived the child who succeeded him.<br>The corruption inherent in the Pictish bloodline did<br>not manifest itself immediately, for the reign of Edward III is known to history as the “zenith of<br>chivalry,” but found its fullest expression over one hundred years later in the “twisted and malign<br>form” of Richard III, as eloquently portrayed by William Shakespeare. (Perhaps Craven relied too<br>much on the Bard’s version of history, for Richard was not in actuality so infirm. Or perhaps the<br>Bard was aware of this secret history of Craven’s.)<br>**----- End of picture text -----**<br>
+**
 
 Craven's Chronicle dwells at great length upon a descendent of Richard III’s, one Edmund, Duke of Edinburgh, Laird of Roxburgh, Selkirk and Peebles (these latter holdings were eventually usurped from him by a malicious Scottish noble, presumably of a non-Pictish line). Apparently, upon assuming his title, Edmund quickly degenerated into a somewhat inept schemer and conspirator, a “horvide little manne, with a heart as blacke as his kettle.” Craven refers to Edmund almost exclusively by the name with which he is known to history, Edmund the Black Adder. Though Craven states that Edmund was burned by the Witchfinder General without any legally acknowledged progeny, Frater I*I notes that the Blackadder family name recurs throughout British history, until the bloodline was finally terminated on the fields of Europe during the First World War. Another portion of Craven’s historical scholarship is worth noting, for it demonstrates the preternatural vitality and fortitude of the Pictish families that interbred with the serpent-folk Brennus described in the previous chapter's document. Responding to accusations that captured Scottish border reivers were being tortured and executed in inhumane ways, one John Carey writes to Lord Burghley in 1596: 
 
@@ -365,19 +310,13 @@ Within a week the foundations for the church had been laid. But when the mission
 
 “Why didn’t you tell me that we had begun building on the swampy bog?” “Because you hadn’t. ’Tis fine ground for building.” 
 
-**==> picture [362 x 574] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-Chapter Two: Fabulae et Cantae Scotti 21<br>‘ ey > Aaa “Very well, then.”<br>ee Fh ‘<" <j The missionary consulted with his ar-<br>‘3hG7 gas * GM el Chitect and masons, and all agreed upon<br>ae! (( 7" cs EAS the solidity of the ground, though none<br>i ‘N could explain the disappearance of: the<br>SF ia ie [ we foundations. Work began anew, and in an-<br>Ka) - 22S SS other fortnight the framework of the church<br>A % Axea Megleg-..SSSNS hadtroublb e senwereerected.vexing Butthe construction.before long moreThe<br>Vy en a) $. \ > a g<br>. SeayFRG ersaa \NSsseteggXY = workmenrorkmen becamebecame tired,tired, theirtheir workwork sloppy,sl :<br>i as dy) rr AMX ASS Bae a fact many of them attributed to bad<br>A, \ Ta 2) dreams, and some complained that they<br>: PN e LY, y YY aR I ;<br>z rs S fs $5 {i if A i x5.) See} were completely unable to sleep on account<br> (Soe? Wat Gl it ~ « Re 4 of terrible rumblings from deep within the<br>4 B/C- ae \, \RYShA) bey4/ ri SS oeA earth. Also, tools,‘ materials and supplies‘<br>SsSines S {4 () iy)eyyit ' GD: Wi‘ &s had begunr to disappear‘ fromHdthe worksite<br>¢ aw ( WN Aly me overnight. Angrily, the missionary once<br>px ‘4 oY yA Filta . again confronted the village elder.<br>PSs \ a4: Do you wish to impede the Lord’s<br>See’ ee BUYS \ ew y P<br>‘Se Grs) Wai} } jee work here?”<br>+ RE UNH& ihe Y<Sgwa F]i( WY) S oe’ ,. Havedo not.you or your people been steal-<br>> Wh ole « () \* Y aoe =~ t y i<br>|(YQ) an-~ovre ,Ba'ee Hyj ee.DAsa xwe~ 84 ing things“We have fromnot. our” worksite?”<br>Sa ai “2 ' = Ny, && ae a<br>; > ms) * ‘ me : F i<br>ea [=] “NeOe “ea,f % fe ) ©Sa , fOrng// LEN) ran Thehis gaze missionaryacross narrowedthe dark  hishills eyeswhich and<br>(A ws. S ><br>a WisiaS ( ( aN Y huddled close about the area.<br>le*.“Obi. AMEE.)\g aeemt“ABC:veegreSOS=  ASS-<aSPmattaL a oe aTReese« "2y4 ty:Ma‘‘ ’gh?Ifies IN aisae eigi gion?”F ««No,”Dohe any asked.” the:  elderother answered.people7 live«“Noin people.this re-”<br>ese- NCa.SSSSSe cenaera ,= y edoye | Very well, then. : ss<br>aSSS Sa And so work continued, but slowly, for<br>iSiSt)i (enerees ~ rheeato. , 8Seem. 3 eeeBN darknessthings still came,vanishedand somefromof3 thethe mensite leftwhen: to<br>mye: Zee ~w Zk a tbe ae et pee<br>a Ek ex met gaat “A 4s return to the south, complaining of ill<br>NSMed4 EafeePe ae oOesp} aejeEamasactaag)sBdese,be| eae / rr trackshealth. onAthefewgroundreportednearby,findingprints: strangewhich;<br>we, NOE, -3* SE tee 7 acme - in =) . y, Pp<br>hsn/a % atBe = raySe ioe Wis- is seemed to have-  been left.  by tiny misshapen<br>: oe uy Ss bia vs ‘od hands and feet, but with a broad groove be-<br>soe Le \ 3%s = =p - mq tween them, as though a body had dragged<br>ik a zy ¥: Lat Oe along the ground. Superstitious whispers<br>mete > eee and murmurs arose among the men, but the<br>aes Sagem §6missionary endeavored to put them at ease.<br>22 eit SNe eR ee aoe Oc ats<br>**----- End of picture text -----**<br>
+**
 
 22 
 
 ## The Chronicle of the Black Labyrinth 
 
-**==> picture [382 x 328] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-“Fear not, good men. It seems that the<br>jestvillage children are having some cruel | Ray |) = :<br>this at our expense, but we cannot let Ek Ss Sl) Gl ) f<br>the deter us! Remember above all, it is ov) Ss y) (aie<br>Lord's work which we are doing!” Ay i Wo 3 HAL 4 cm<br>But in time, as the situation grew worse, a fi 4 ie t.<br>all the men left, the stonemasons, the car- oe IV go WS<br>penters, and even the architect himself. Un- Sf ; \=><br>daunted,daysing the nearly the missionarycompleted setchurch abouthimself.to finish-For wf acntahA KOSSNy =‘aig: 5<br>out  he labored, and many of the villagers came 0) “Us ) \<br>to watch. Some smirked coldly, and some mar- } My (i th 2<br>veled at the effort he put forth as he hammered in dh . a<br>nails while keeping time with his Latin chants: or Ng<br>“In nomine Patri (BAM!), et Filii(BAM!), et 4 . @S<br>Spiritu Sancti (BAM!).” 3 “J<br>Finally the building was completed, and the yf<br>missionary bade all the village folk to come and N@® RI 1<br>attend the first services. eS YH jetty : :<br>But the elder declined, telling the Yi jase BY net<br>missionary, “It was forbidden long ago GOREN Ags ‘ bier as SS<br>that such work as you have done aET / | » a”<br>should be done, and all your stone and “Ts<br>woodfor it ismustthe soonland returnitself whichto the landwill notfrom allow whence suchit things.arose, iFJ FF )<br>The Paradise and Salvation which you have offered to us<br>are not for us to accept, though they do sound quite nice.”<br>**----- End of picture text -----**<br>
+**
 
 Furious, the missionary returned to the new church, there to pray for guidance and the strength to persevere. So loudly and vigorously did he pray that all the village could hear him and his clacking rosaries well until nightfall. 
 
@@ -389,10 +328,7 @@ And so it remains to this day. It is now referred to as “Damburrow Pit,” and
 
 23 
 
-**==> picture [362 x 573] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-Chapter Two: Fabulae et Cantae Scotti 23<br>A Missionary s Letter —— res<br>Dearest Merciful Father, Pa Te ) Moh E i<br>ago withI left thejoy abbeyand  atcourage lona severalin my monthsheart, iy.a >»). de<br>heading -> === pet ( Yi y x ies<br>Highlands,northwestbent uponintothethetaskCaledonianof bringing E=== @ a, Ke Ce<br>the good news of the sacrifice of Jesus the : HALEyi e7; heAf Geen,1 figRE<br>Christ to the unenlightened savages dwell- VLR J aya we<br>ing therein. eeeSy 3 ef5 N&<br>The folk in the regions nearest tothe ARG i} Ba é a <<br>abbey received me well, for they were al- ESI : oo 3 \e a " ;<br>teady informed of our good work, and FG i , \ “ane 4<br>treated me to such generosity as their mea- = ie) : | ‘ \\<br>ger lives allowed. As I progressed beyond Fe > KE WEY!<br>the - V4 bits] \\<br>lowlands, however, I found myself less SS = ii Be \<br>pose was subjected to taunts and derision ee __uurme A a, WB}<br>welcome, and at times even my noble pur- RS le { S| A\ e<br>by the more degenerate inhabitants of 6DS fy 4, 4 y<br>these simple villages. But my faith was == ANS ~~. A YV i |<br>strong, keeping me in good cheer, and | =~ «/ AY a | BS an RE<br>was not deterred from my mission. EA pe ts i! ma ite -<br>I will speak now of the events of yes- ffl oe | 1 q - 3<br>terday: | was entering the region known Ab: SN af) \\ \\ : :<br>as Damburrow, a place which my local in- aq “ss aii; \ X | ’<br>formants described as being of evil repute. es age? | i \ WS /<br>Thereforefold repetition did I offortifymy morningmyself with prayers a three- and Corn' eePAR | \‘ “\ia, Mi<br>a doubling of my ablutions. = H \2.' J Ee y]<br>The greater part of my day upon the RR¥ p .*, tT ARS 7<br>road passed without event, save for a per- "4 » Yi aX |: - sup, ”<br>vasive ominous feeling which I attributed \ Re E 24<br>to the locality’s aforementioned reputa- ; s <* Be |<br>tion. As the sun began to sink into the ‘ 1 ' its<br>lowlands at my back, however, I found &/ | i. ‘z<br>myself subjected to a puzzling, and then | = 3) |<br>sickening, sight. Near the crest of the hill 3, | |<br>just ahead, a short way from the road it- es z<br>self, could see a young lady — a mere slip Syst '<br>of a girl, really — bending herself to a la- If a * | \<br>bor more suited to a strong grown man. ay = 4 : \<br>My pity for her increased when she turned - = - ¥ i<br>to one side and | could see, silhouetted —— : \<br>against the twilight, her belly, which was —— : WS WW<br>heavy, almost unnaturally swollen, with eaten =o = WS Ro<br>**----- End of picture text -----**<br>
+**
 
 24 The Chronicle of the Black Labyrinth 
 
@@ -400,24 +336,15 @@ child. I quickened my pace, hoping to take up her task and spare her any further
 
 Equipped with only a short dull kitchen blade, she hacked away at one of the low twisted trees of the area. The lowest branch, some two and a half feet above the ground, she had removed at about a foot away from the trunk, a task which must surely have taken her the full day’s work alone. Now she diligently worked to sharpen the remaining stump, pausing often to test the point with her already chafed and reddened thumb. and As I drew near, she seemed to find some satisfaction with the completion of her task, tossed away the kitchen knife. Then she faced the tree with a look of firm resignation set into her cherubic features, and, grasping the trunk with white-knuckled hands, pulled herself onto the protruding limb with such sudden force that the sharpened point must have passed completely through her womb. her | imagine that some wordless cry must have passed my lips as | leapt forward. Grasping around her chest, I tried to lift her up and back, off of that impaling branch. She swore at me in her strange highland tongue, and twisted in my arms. Angling herself anew, she clawed her hands into the bark ofthe tree and heaved once more, nearly dragging me off my feet. This time the wooden stake emerged from the transfixed fruit of her gender and pierced my own side as well. 
 
-**==> picture [363 x 294] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-There are no words for the horror which filled my breast and rose in my throat as her<br>body slumped from my arms to dangle obscenely to one side, the jagged punctures in her<br>belly spewing gouts of blood and strangely colored womb-essences, painting the tree and<br>my robes a hideously bright olive-streaked crimson. And as the life flooded from her, I<br>could have sworn that the harsh set of her face softened with peace and relief.<br>Some time passed before | was able to choke back my disgust and tend to her body.<br>Whatever the evil that had infected her heart and brought her to this abominable end, she<br>at least deserved to be beneath the ground by nightfall. To this end I scraped out a shallow<br>—6kAZaea), oas aol(4i Chea [i, - \ eeOe~~.a» \\1Sy<br>1D) uo eS « : ta firs<br>Bolasyur MOWED » LS!a3 4 lSs<br>Wy. 3: ee #/ jz) AS) a “Sa<br>2 PS ye < 4) \ .<br>uS ise; L144 (¢/LLLALAN bee”<br>y > ged h, M jo G —_*<br>AF== a eNO2s Y A ‘ By RAY @ XAi \WSsse 7<br>**----- End of picture text -----**<br>
+**
 
 Chapter Two: Fabulae et Cantae Scotti 
 
 25 
 
-**==> picture [366 x 550] intentionally omitted <==**
+**
 
-**----- Start of picture text -----**<br>
-- Wit eon tes . EP crave by the roadside, which | intended to<br>at thee1 OLSaj  ae * ae< coverati withvith stones.2 ;B But whenth the time:  came-<br>Beso NPIS tah ae angers © to carry her carcass to it, | felt something<br>sa OR ee eee inside her mangled belly writhe and con-<br>ex,ah Oe2 aewee , aa =: ff y vulse, and I fled shrieking. . into. the gather-<br>peak ae A g A ing gloom.<br>tpce - as VS hasPa “ \y"‘ A + yf | awokeP the eenext morning- =  soaked with<br>7 4fPqj a =e | \y dew and chilled stiff from sleeping on the open<br>i, Se | 4} . nS oO .\ } ] ground. I had only strayed a little ways from<br>\( Zn Fes Meas \ USS9 the road, still within sight of that horrid hill-<br>POL ih. AS aangSF) top tree. From my new vantage, | could see<br>uN17 <aMOTE ~ 2 eeeROSS IR \ ee around the next bend in: the road to where a<br>or" "ya wt 4, Sars<br>ae ae Vigry, me, de ae cart or small wagon sat askew, one wheel<br>ie Mv Dat cover was woven with the same colorful cross-<br>V] oats ops” “ee “By lodged in the roadside ditch. The tattered<br>See Meee striped pattern as the girl’s cloak. Since the<br>i iis - ee daylight had somewhat dispelled my fear and<br>TF. as fe Ray Ma revulsion of the events of the previous<br>pieaS Fpnn ae evening, | moved forward to investigate.<br>yt M2ee... ee WithinAce the wagon lay a figure5 frozené<br>k<br>j Le gee = in a posture of violent death, face twisted<br>Ea . a oe im agony, hands clutching at empty space.<br>JA “0 ie ‘WA. Though obscured by shadow and swarming<br>2 le oc a flies, this person was clearly the twin of the<br>pf Vf / 7,es ofA- f ff, girlmake uponout theof thehill,contoursand, fromof her whattorso,I couldshe<br>4 <4 eee ; appeared to have been in the same ad-<br>7 1) &: fae, : - 7 Py<br>°<br>%, io Lg 433 vanced state of pregnancy as her sibling. 1<br>. f ?4 sm “ turned- awayi to take a deep= breathtat - and steel<br>an ies FG ‘ myself against another vision of carnage,<br>‘y JZ yb , then leaned forward into the shaded inte-<br>” BP ot rior of the wagon.<br>y Sy. Ng i The poor girl’s legs lay at sickeningly<br>if ‘aY ffs , 4 skewed angles in* a pool ofc still-uncongealed*<br>igi y ’ y Mis gberore. hips,Despite thereP the wassoaked no mistakingskirts plastered that the loweracross<br>i 4p SS half of her body had been pulled apart with<br>ee1Z ne mee such force that the pelvic girdle lay in two<br>ee i, / / a- Se =ae shattered pieces..  My stomach twisted;  withinstig<br>peommegcs _dewiehe te, Seats! $e and my gorge rose, but it was not until |<br>Re Peeks = had begun to turn away to retch that the full<br>a AE <P ae is Roe somerset = horror of the scene struck me.<br>Ns hae nae as nae Benevolent Father, when I come toa<br>Se SS<br>nal relations before even the first flowerings<br>pos- et Roe land where young girls are forced into car-<br>**----- End of picture text -----**<br>
-
-**==> picture [361 x 576] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-26 ' .<br>rh ie<br>Wiig<br>of womanhood are upon them, I know that ll Ay ‘<br>it Pi rs,<br>is nothing less than my sworn duty to : aA yy<br>bringLord the righteous moral teachings of- our CaseTf  i ef. fz<br> and Savior unto such peoples and to >), ¢ ne RR ate coal<br>teach them the proper way to live. aa. \\ if , AS<br>land And, Gracious Father, when in sucha [\ 3 : flies (i! Eyes "4A<br>| find evidence of such an obscene ( eee. By) bp. vy<br>practice as the slaughter of unwanted in- , Sar aS iy “f- By)<br>fants, yea, even to the point of prenatal }\ (jes Siem Aas PL! £2 f/<br>ue P P : eH Ei. Oa Ap<br>infanticide, | know that my task shall be \\ Os Se ge rs Zé ys»<br>all the more difficult, and so even more \ Wit 22 io) 4s<br>But, Merciful Father, I have seen a ff 7 — J iN )<br>thing in this land which has shriveled my , Al AC y<br>heart within my breast, and I can no longer eX Mg ‘A 14, if J,<br>feelLove andthe ceP r ovta i dence.nty and Thereguidanceis in thisof Yourland \ AleHn ct. a\ a\e)ey#3ae ae (<br>such an evil. that even Your Son,a our Lord 1 \\ A] TraeGN + TL. Re?~ a  [SBry =<br>and SaviorSaar JesusALChrist, would turn hisAas face } ny!3 ThyIN| | St eeeeRif Je’-<br>away and weep with despair. I cannot bring FF f j Haas as Sx<br>Your sacred Word to these people, for that } re4 rr y WV hiket<br>Word is now no more than a mockery to ig ey af<br>me, as it must surely be to them. THT. \ % fe. é, eS :|<br>For, when I turned away from the grisly / } a ¥. f) if<br>vision within the wagon, my eye fell upon ; f é fN )<br>a bloody track which meandered across the é f ant ; { 5 Ae<br>road and disappeared into a verminous ( t iNe.. Auge ii l Wun<br>bolthole beneath a rock beside the ditch. S y DF ee a \ A<br>The source of this track was the wagon it- \\ F iff ae i ‘| \\ "a af eS<br>self, as though something had pulled itself } y Ni i 7<br>out of the wagon and along the ground, - AD j if im | ({ é<br>dragging its long and twisting body with tg 4H/ AAAS \\ :<br>tiny clawlike hands. And know that it was f : wd Wy ) \ }<br>no human force which tore this girl apart, aD LZ f Vi |<br>but that she was rent asunder from within. \\ \ | fer 4 \ \ l\ ANY TH<br>doninglife. I shall my mission,not ask norYourfor mercytakingformyaban- own \ ‘| il1 ite KietW) / | NP ANY,A /<br>will | know that the deepest pits of Hell } aie, J, | TA<br>this beworld. a welcome relief from the horror of WW’./\\ & /f Ye)) WWEmy“hl thif S ,Ss<br>(unsigned) i he \ iy Ms VA fj \ a Comet<br>By) q ~ Wes<br>\ AS y y) A At ff Stee. 4<br>**----- End of picture text -----**<br>
+**
 
 Book Il: 
 
@@ -431,10 +358,7 @@ Book Il:
 
 THE EPOCH OF CONSUMPTION 
 
-**==> picture [240 x 237] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-EB <A MALAY a we<br>1 Se<br>oeees Ghar© nter. hreet<br>The-Irial ofthe —  Blackaf 2  Monk#<br>OF<br>meiSs =<br>——————<br>**----- End of picture text -----**<br>
+**
 
 Legends of the Black Monk are to be found throughout Europe, and are ascribed to nearly every century of the Medieval era. In researching these legends, Frater I*1 has come to the conclusion that the person described in this chapter’s document has served as a role model for many clergymen throughout history, whose quest for truth led them beyond the fold of the decadent and hypocritical Christian faith. The greatest accumulation of Black Monk legends occurs in England at the beginning of the fifteenth century; there are many place-names throughout the British Isles that echo with his impact. Prof. MacLish was of invaluable assistance in positively identifying the Black Monk as a Scotsman of Pictish descent, who around 1400 set out to spread his faith across England and Europe. The author is indebted as well to Prof. MacLish’s anonymous source for obtaining a copy of the following document, which specifically links the Monk to Gilles de Rais, the historical source for the legend of Bluebeard, which parallels the legends of the Black Monk in many ways. 
 
@@ -454,19 +378,13 @@ the soul of any who dare (ook it in the face. For that very reason shall this, t
 
 L Be hereby known that, for so long that there is no record to contradict it, there has stood, in the province of Gours, the church cathedral of Mantes, having as its head bishop the “Reverend Father Jean de Malestroit, who did recently depute and ordain by Letters Apostolic Friar Guillaume Q)-2, bachelor of Holy COrit of the Order of Dominicans, to exercise 
 
-**==> picture [345 x 222] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-=a—— WN 1 “Ne<br>“e i a ‘a | =<br>a ».<br>dl | fi Sa 1,<br>i \ VY!<br>\f, ! ¥} i<br>ain Line<br>ER Wiig os uy<br>**----- End of picture text -----**<br>
+**
 
 Chapter Three: The Trial of the Black Monk 
 
 33 
 
-**==> picture [354 x 250] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-uN. Sar be eT<br>Lad } \\ , _ hr Wr:Ny aT ,<br>5 Om | ~- y<br>Ls NY) ae<br>Mm | ee MR, a) \<br>' i ANS 21 \ a /<br>\ a . S iP. ~ Pr<br>**----- End of picture text -----**<br>
+**
 
 the office of Inquisitor of the faith and of heresy within the realm of the said bishopric, which he did com monly, publicly and famously this is an attestable fact and known to all. 
 
@@ -478,10 +396,7 @@ ILL Items that, at the time of his arrest, the said Friar had in his possession 
 
 The Chronicle of the Black Labyrinth 
 
-**==> picture [352 x 263] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-i! bays 2 mete<br>‘ = - : AN GYg , ! a<br>\ ne Pan ae tS fe i<br>2 > ive7 TS<br>~ on} 5010 a vi Be SN R e<br>(we / ~~ 7, are SAH <A) Di<br>ye De ne 2 >is \. z ~<br>é oA t ‘ .<br>eae SAS SE TA AOS<br>**----- End of picture text -----**<br>
+**
 
 Mantes, aged seven or eighG thus it transpired, and this is a true rendering. 
 
@@ -503,10 +418,7 @@ OTL Item that upon the fifth day the Inquisitors devices were applied to the bod
 
 TX. Items that this said procedure was repeated upon him the next day, and the next, and for nearly a week thereafter all without appreciable result, until it was decided by the officers of the court that this course of action be terminated as futiles thus it transpired, and this is a true rendering. 
 
-**==> picture [351 x 237] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-SRT YS we \<br>Cie —— ee a = ra<br>i) PE NEN: “y 3 ¢<br>i” Gat “A. NV<br>i yee BS<br>= =) \ ;<br>Ae aes VAN 5. v Mi<br>rN =~ E ~ = : z i.<br>ps 4 es ee, ee Pe Gat<br>**----- End of picture text -----**<br>
+**
 
 36 
 
@@ -524,10 +436,7 @@ Chapter Three: The Trial of the Black Monk
 
 37 
 
-**==> picture [366 x 515] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-Eustache ‘Blanchet, a priest from the diocese of Saint<br>Mala, who apologized on Gord de <R-s behalf for not<br>answering the court personally, explaining that his<br>thereliege  tohad attend disembarked the conventionupon aofFamth e dEstates2 to Bourges. General<br>currently in session, and furthermore CDilord Blanchet<br>explained that Friar Couis le Fif had indeed been en-<br>gaged in the retinue of Cord de R- for some while, but<br>had been dismissed when it became clear that his of<br>fernsive character was too great of a burclen for the good<br>men and women of the household to suffer and offered<br>to demand depositions from many of his men to at<br>test to this fact, at which the court pronounced itself<br>satisfieds thus it transpired, and this is a true render—<br>ing<br>XCOL Item?’ that, when the court concluded that<br>no further confession was forthcoming and the process<br>of extraction discontinued, Friar le Fif immediately<br>presented himself once more and waxed voluble upon<br>Sy SVS » =<br>CG ey Tas Ie<br>iy ri ALPS XY a<br>i | eee oe :<br>L Wie ote) SY<br>:<br>—mip ¥ ESRI<br>**----- End of picture text -----**<br>
+**
 
 38 
 
@@ -569,10 +478,7 @@ Chapter Three: The Trial of the Black Monk
 
 4] 
 
-**==> picture [366 x 541] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-/ ly tts SANN  C4<br>‘Ny << D d<br>ey er<br>Y/, p;, Se eee es Cy Wai<br>yan BK ~~ aye<br>(% Ons Se ok Lt Wel<br>aA Wa: ey i CO = 09 ih<br>Op SOA Zan es Way,<br>WOT Ss<br>(QUZ le Wes SN) ES<br>cent cattle®, a conjurer abettor and adept of forbidden<br>arts, that he lapsed and relapsed and continues in her-<br>esu, that he offended Divine majesty, that he commit<br>ted the crime of Divine high treason against the Gen<br>Commandments, against the rites and observances of<br>our “Holy, (other Church, that he damnably sowed<br>the most flagrant of errors, which are noxious to Chris~<br>tian believers, and furthermore that he shamefully vio-<br>lated the jurisdiction of said TReverend Father Cord<br>‘Bishop of Nantes, for which degenerate behavior he<br>has nove incurred the sentence of this court, namely,<br>that he shall be taken from this place to another place,<br>where he shall be subject to every, manner of punish”<br>ment and purgative mortification, until he might re-<br>pent of his sins, at which time he shall be publicly<br>burned at the stake until nothing but ashes remain.<br>which are to be scattered to the antipodess thus the<br>verdict of this court is rendered truly, notoriously and<br>publicly,<br>**----- End of picture text -----**<br>
+**
 
 42 
 
@@ -580,22 +486,13 @@ The Chronicle of the Black Labyrinth
 
 SEN eposifion of The Sxecufioner ce), Che undersigned’sergeant of The ormeyat az | taki eos beeen. icp autfiorify EZ over The execufion of The infamous fierctic and murSES fever Siar Conis le Fit does Gereby make account of said’ execution To The bishopric of Mantes, After several weeks ofing mostfrom ingeniousle fit and’Torfures, afer fienowas repentanceseen To seemed”be conversingTo be fortiicom-with fis Torfiurer in a friendly and’ casual manner if was deemed” by thie court That execufion sould, proceed fortinwit i. When (ed To The take, le fif was pelted from all sides with rofTen eggs and” decomposing truil offal and” excrement, fling by The good” Christian fR of The city, This treatment fie recetoed” in manner uct unlike graciousness, and ‘1 befell fim licking These subAances from fis check and’ savoring Them as Thougii They were sweet and_pleasing To fim, As fie was being bound’ to the stake. fie raised” fis gaze To The balcony of The catfiedtal’ wfiere The officers of Te court watched” The faggots were (it Geneat hi fits fet, and he spoke, saying “Beidd ury time witli you is ended’ and’ Though Tam no mor, sf ary crimes shall uf cease Sr the spirit which drives me is within you alsa and is fed with The power you accrue Afiai, Angul Afiai, Mactrad Co Lam the worm, The great dragon of alT fife, beside whick your God and” your dewil are but a bickering fatfier and” son. and” ‘I am come into your midst To reflect your true faces and remind” you of sgour True nafiire ‘TI consume sour fearts using fatied” as Ruife and desire as fork, Afiai, AGoral Afiai, Carnalal ‘I am the cater of souls, swallowing sour fives in ury ever qrowing fiunger and” begdting monsters upon your wives and daugfiters, Afiai, orud Afiai, Calibel Scatter ury asfies as you wilT To thie ends ofworldT?the cartsGe continued’thus do ‘ITocAittehicry outforththusmyorsawscometo Time, engulfTie mot (ong after Garbarouswilclies would fave suftocated” fromThe smoke, fiurling Geen and’ evil namesaf fisvanquiskers uni fiis Gocky fad” pat consumed”fiis TongueToThs **u** chs dodegree‘I sf ThatTo reconlno moretheGr **e** ventat fi coulof fiisbe de-forced” Aruction, a matterof_ public and” famous Rnowledge Sergeant Stepfien de Guillaume, Arury of The Cord of Mantes 
 
-**==> picture [136 x 32] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-Nt apter Four:<br>**----- End of picture text -----**<br>
+**
 
 ## ugrimage of loung Journeyme 
 
-**==> picture [60 x 19] intentionally omitted <==**
+**
 
-**----- Start of picture text -----**<br>
-uaestor<br>**----- End of picture text -----**<br>
-
-**==> picture [188 x 29] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-3 ie e aie poly }) ag)<br>**----- End of picture text -----**<br>
+**
 
 The Pilgrimage of Young Journeyman Quaestor is a fascinatingly miserable example of what the early Renaissance called “drawing-room plays,” plays which were meant to be read but not performed (perhaps the most famous example of the form is Milton’s Samson Agonistes). First published in 1582, the Pilgrimage was printed in just about every Western European country, but the definitive version is considered to be Guy de Mer’s French edition. The compiler admits to taking some modernistic liberties with the present translation, as de Mer’s highly arcane and formulaic French would, if translated literally, make the whole text so obtuse as to be insurmountable by readers of this age. 
 
@@ -607,10 +504,7 @@ Eventually his quest leads him to a subterranean chamber in a fictitious Eastern
 
 ## The Chronicle of the Black Labyrinth 
 
-**==> picture [373 x 302] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-re. One secret society appears throughout the narra-<br>< eee St ae tive as a ruthless enemy of Quaestor’s, and, indeed,<br>rate ees me . of all true seekers of enlightenment, named the<br>ie pees »% Order of the Rose. In citing the Pilgrimage as a<br>ey “modern proof” of the extent of his con-<br>FY eae %  spiracy, Craven hints obliquely thathe him-<br>oe. et self made contact with this Order. Though<br>Po be directly identified with the<br>ah: MS j ial | 3Bi : theyOrdercannotof the Rosy Cross, or<br>id 4 Be Rosicrucians, it has been Frater I*I’s<br>f - 4% ” bem< experienceand to thisthatdaythiscontinuesgroup istoquiteact co-real<br>ae vertly and viciously against all true ini-<br>Bs | tiates.<br>7<br>a Some mention must be made of<br>bb. the slight but notable parallels slight but notable parallels but notable parallels notable parallels parallels between<br>3, ae this document and the more commonly document and the more commonly the more commonly more commonly commonly<br># ASS , known Rosicrucian manifestos. Of<br>-< foremost importance is the revelation<br>of the Supernal triad, spread via the<br>Rosicrucians through virtually all of<br>modern western occultism in a devolved<br>and degraded form known form known known as “Cabbalah.”<br>ec ner “ee Prof. MacLish was generous enough to<br>£€ eb share with Frater I*] with Frater I*] Frater I*] I*] his own commentary upon own commentary upon commentary upon upon<br>**----- End of picture text -----**<br>
+**
 
 a Some mention must be made of bb. the slight but notable parallels slight but notable parallels but notable parallels notable parallels parallels between 3, ae this document and the more commonly document and the more commonly the more commonly more commonly commonly # ASS , known Rosicrucian manifestos. Of -< foremost importance is the revelation of the Supernal triad, spread via the Rosicrucians through virtually all of modern western occultism in a devolved and degraded form known form known known as “Cabbalah.” ec ner “ee Prof. MacLish was generous enough to £€ eb share with Frater I*] with Frater I*] Frater I*] I*] his own commentary upon own commentary upon commentary upon upon the late medieval text of one Flavio, a descendent of the Black Monk. The climax of Flavio’s narrative anticipates the Adversarial Dispute almost point for point, but is reached after a symbolic series of labors and tests which Prof. MacLish has revealed to be a somewhat clumsy allegory for the Dance of the Black Spiral Labyrinth itself. This is only indirectly echoed by de Mer, whose unnamed ultimate secret society uses a nine-grade hierarchical progression where the initiation of each grade corresponds to each circle of the Labyrinth. This is recapitulated by the Adversarius at the beginning of the Dispute, and elaborated by Quaestor at the climax. 
 
@@ -618,15 +512,9 @@ Chapter Four: Ex Disputandem...
 
 45 
 
-**==> picture [397 x 529] intentionally omitted <==**
+**
 
-**----- Start of picture text -----**<br>
-Quaestor: Where am I? ua foscink,Ria<br>Adversarius: Where thou hast always been, ES ine tn fp i<br>at the center of thine own being, intheheart ~ E Paces =<br>of all Mysteries. ee ae a<br>Quaes: Why am I here? Ss hig, © 3<br>ae i 4s<br>Adver: Thou, Quaestor, who art Master of : % ss gs ‘ oN a<br>the Pentangle, Wielder of Blade and ss a Se 7<br>Brandisher of Stave, Gazer into the Depths, |~ Sg ca ’ ie :<br>thou hast scried unflinching into thy heart “4 bh<br>of hearts, thou hast roared with the gusto of 4 ~ \ ;<br>Phrensy, thou hast persevered in the face of JP ;<br>Defeat, unlocked the Riddle of Passage and : a 4<br>Danced the Duet of Death; Thy soul hast | +<br>| been Sundered and cast afar, yetthe Union | ‘ q<br>of thy true Will with the Will of the World 4 3 3<br>hast made thee whole and brought thee thus | mae ' 3<br>far.' Yet thou dost ever seek the Greater Un- i 2 ae 4<br>derstanding, the Secret of Secrets; do speak 7 2as q<br>now of thy worthiness to enter into such @ a ,<br>mystery. Ber BS" 2<br>Quaes: | have traveled farand accumulated © Riek og %<br>much in the way of lore; I mark the cycles | a3 Weare i = Fs<br>of earth and heaven in my brow; my gaze ameer<br>penetrates the firmament and | have dis- i ee ra<br>cerned the threefold way of the Supernal. 4 ih Sf cee.<br>al . ie<br>Adver: What is meant by “Supernal?” eS a<br>| Quaes: That word denotes that which is be- a vat ih ¥ 3<br>| yond the Abyss, the chasm across whichone 4 j } .<br>cannot be carried by reason nor intellection, | a *<br>| for the minds of men are dark and dense, 4 a<br>| admitting of no subtleties. The Supernal is 7 2<br>beyond knowing directly through any ofthe | oe<br>Realms Visible or Invisible?, but is reflected 7 =<br>in them all, as it is the source of them all. a<br>| Adver: How then can this be known? 4 P pe<br>Quaes: All teachings tell us that man isa | re 4 -<br>| microcosm, that all Realms are reflected in “nal eae<br>him, though but dimly, just as the Supernal 3 “\. See<br>| is but dimly reflected in all the Realms of |@ : a<br>**----- End of picture text -----**<br>
-
-**==> picture [389 x 312] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-Bi: Bh , aa igs >. : 4 g the world. To know<br>[tae a os at \ © this microcosm is to,<br>4 Soe. as & as I say it, “polish<br>ee P o o : ee © one’s dark orb,” mak-<br>i oe f i, m ing of one’s mind a<br>: as . bas “Se = smooth reflective<br>Say aes + sphere, so that whatso-<br>Se. See sever is outside may be re-<br>he ay Pak flected upon the inside,<br>— ary a wv a and that which is furthest<br>Ya *» outside, which is to say, the<br>¥ i ic I soe — Supernal, may then be seen<br>: ae iad at the center of one’s own<br>“ay ™~ .a . a thisbeing.processWhosoevermay take theis abletitleto“Keeperperfect<br>oe of the Dark Orb.”<br>: aw Sa Adver: Name the threefold way.<br>Pee: rete ee = Quaes: That which is Supernal may<br>a not be named, for all names are fi-<br>sian tia nite and limiting, and are thus be-<br>nasi “ low the Abyss.<br>3 eet oa Adver: But that thou shalt perform the<br>al Ss naming, thou shalt not pass from this<br>; ce chamber alive!<br>**----- End of picture text -----**<br>
+**
 
 : Quaes: Foremost among the Supernal, Bh the First Principle of all Creation, is oe the Unity. It is the source all things, "i the fount from which flow all the mani; fold forms and forces of all the worlds, -s and the end to which they all return when their cycle is complete. , Within the Unity, All is One, Pome, All is within the One, just as hi ra 4 the One is within All. Every ae f o a extreme finds its complement, ae unuiedl x and all opposing aspects of Cre‘i a ‘ ation are reconciled. 
 
@@ -638,60 +526,7 @@ Quaes: By that which forms the border of this brass plaque, the serpent swallowi
 
 3 a a 
 
-**==> picture [77 x 3] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-
-f 
-
-if 
-
-, , c 
-
-rie R ts » a es ~~ (+3 ee ~ 4% Ras ‘ gt - Jj 4 ve : yO > Pe 
-
-» 
-
-e Oe 
-
-® ws at ea 7" tee” 2 ‘ 
-
-**==> picture [2 x 2] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-
-lt 
-
-* 
-
-**==> picture [2 x 5] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-
-bi ee 
-
-%, ude 
-
-48 
-
-## The Chronicle of the Black Labyrinth 
-
-Quaes: From the Unity emanates the Supernal Dyad, the opposed and yet interdependent twins of Force and Form, of Becoming and Being, of Time and Space. The first emanation is formed from the Urge of My the One to know Itself, to reach out to all that is not Its Self . whereby It may look back and regard Its Self as distinguished * ' from what is not Itself. It is this first action, the reaching out, i a - | but not the looking back, which is considered the first partof "¥ . — the Dyad. This action is the move~ ; ; a ment which initiates the beginning “ih es |) Sa eS of time, and the force which mm aS . > ee +" “ drives all things to change" ; a T +i . through time.’ ’ a Ba) us Adver: How is the first emana| %, “Set : « tion reflected in this world? = oF s Quaes: It is reflected in the goa J at ; ing forth of men and in their i , Pp going to and fro, their interac¥ 3 . tions mounting, as is only natua, na Me, ral, into conflict and strife. Hence ~ ESE as may it be named Beast of War. 7 0 é = Adver: And how is it reflected in the ~ te individual? i. . ks ad/, Quaes: It is reflected in the action of will,» i de | ? in man’s going forth to impose his will upon the "yj ? te world, for this is the greatest strength of man, the Urge sd + of the Unity acting through him. The purest expréssaa ' sion of this strength is by its own nature expansive and = explosive, and so is called Rage. In my youth, | found that | ra é ofI could, Beast ofthrough War. my Rage, change my shape and wear the face Be a 5? 1. >eeSiang eo. es Adver: Speak now of the second emanation. Bei. A a oe " Quaes: The second emanation is also the Urge of the One to know Itself, oe Be ed id: ownbeingaction,the completioncontainingofand that swallowingUrge. Forthatit is actionthe Unity’sby being consciousknowledge of Itsof it, Saeed. a) esas,ong(= and being furthermore conscious of that consciousness. Here it is that distinction is made between the One’s Self and that which is not Its Self. The Unity has thus separated Its mind from Itself, but, through the cyclic action of the Urge, seeks to reunite. 
-
-Chapter Four: Ex Disputandem... 
-
-49 
-
-Adver: How is the second emanation reflected in this world? 
-
-Quaes: It is reflected in the knowledge of all the actions and interactions of men, in accord with the first emanation. As it follows naturally from Beast of War, it can be seen in the women administering to the dead and wounded from battle, thus containing and dissipating the energies of conflict and strife, clearing the way for understanding, and the developing of culture. Thus may it best be seen in the writing of history, where the actions of men upon each other may be unfurled and laid out like a great net or Web.* 
-
-Adver: And how is it reflected in the individual? 
-
-**==> picture [13 x 7] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-=<br>**----- End of picture text -----**<br>
+**
 
 Quaes: It is reflected in the contemplation of past actions, wherein the energies of Rage are grounded and dispersed. This tightens the cycle of self-awareness, for it is the hunger of the mind consuming itself. Hence may it be named Eater of Souls. 
 
@@ -711,28 +546,19 @@ Quaes: One must know the “Dance of the Labyrinth,” which is to say, one must
 
 Quaes: One must follow in backward fashion the spiral of unbalance, gathering up the strands of the Web of distinctions and separations, following one’s own Urge back to the source of all Urges. All Urges are in this sense thoughts of Beast of War, not conscious thought but pure will to action. Union with one’s Urge brings action without thought, tearing aside the Web by the use of Rage, freeing oneself from the Eater of Souls. By this way is the tail returned to the serpent’s mouth, defiling the Defiler by restoring the true balance. 
 
-**==> picture [373 x 349] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-‘ ' 7<br>ps ee SALTA’ = | (ES<br>NSO) Spe T10 co Ley,<br><q OR: S. CATT, RNS<br>AS DIN;<br>SADCSS DEPRAV ANEVINO]<br>Sy su: o EIDe> Oy<br>ASP Uo PARA WE WO<br>oe A £6<br>Sy O\e<br>S) &<br>K<br>a ff Be / Y<br>ae: AS poe<br>**----- End of picture text -----**<br>
+**
 
 Chapter Four: Ex Disputandem... 
 
 51 
 
-**==> picture [346 x 348] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-.yp,<br>LAY =pSyAV,<br>AVY fi] <N<br>\ayy WwD<br>| V4<br>A\V, \vab<br>AY} K VIN WIY R/IH R oa<br>BSNAY Mi Sh WIG A|K S|R B ZZra<br>SS) A FIAi BIB KhiL K Lo<br>KN NY a,<br>QNI R M|Sh KiL W/R N WIS?<br>SS w AIG EIL GIP L SS<br>an<br>ia |A Ge Ric tw s| fg<br>i Z Le<br>\vara wy<br>CANRLPN VIF KiV_siM_ RIAASAYA<br>< 7 ie me d ><br>2466%. <:GC) ay<br>**----- End of picture text -----**<br>
+**
 
 Adver: Gaze ye then upon the Spiral Labyrinth, and name for me its turnings. 
 
 Quaes: The turnings of the Spiral are ninefold, being three divisions of three subdivisions each. These are the expression of the soul’s initiation into the Supernal Mysteries, with each emanation being reflected in and acting through the other. The outer three circles are the domain of the Beast of War: the first is the realization of the Unity within, which is the Defiler acting through the Beast of War; next is Rage, the Beast of War acting through Itself; third is the Eater of Souls reflected in the Beast of War, preparing one for entrance to Its own domain. The middle three are the Eater of Souls’ domain, with the fourth circle being Its own influence in teaching one Its ways; fifth is organized battle, the Beast of War acting through the Eater of Souls; and sixth is the Defiler preparing the way for entrance into Its own domain. Finally there is the domain of the Defiler, with the reflection of the Beast of War demanding one’s adherence to the way in the seventh circle; in the eighth 
 
-**==> picture [2 x 8] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-|<br>**----- End of picture text -----**<br>
+**
 
 ‘\ % "as Ft circle, the reflection of the rd te { if ry wi Eater of Souls tests one’s uné et ely A: gece) | f derstanding of the Mysteries. i. ae oe * ee In the ninth and final circle, the Defiler acts through Itself _ ~¥f aei. 3 at ey§ Ey . aessindBiaA to dispel the deception of sepaj eae ed ey rateness. Thus is the soul of one | Bare ae ; g eae ; reunited with the Soul of All.’ & ae a es Adver: Thou hast spoken all the a ; ois fi names truthfully and in earnest. e "ee Sai 4 Thou mayest now leave here 7 “2 ¥ ‘, ak Quaes: | cannot leave, for yy US ae Bi 4 be there isnothing beyond thischam4 = 4g, 2 ae ” ; ber.| have never been any place but | $f "9 Mi Soka oe ce here, in the center of all Mysteries. \ ae. 2) a? oe % ce a Adver:forth and Go know forth thyself now, Ithroughtell thee! thy Go ac- .*\ Sh“oyTe ¥ Ie, <ii? 2 aero ae: a tions, as is thy Urge! > ‘ a Quaes: I have no more Urge. There is — “¥ye ee ‘a no action to be taken. | know nothing. a =. %, - Thus I am nothing. re aS J : he :4 Adver: Quaestor? . We 5 a = Adver: And so his voice is si- A= sie lenced, his mind consumed and ee a ath, q his body dispersed. So too shall a4 4 Fe 2 we. poe. I pass from existence, for I was yeh ee[oS] \ L na “0m ? never anything other than his ae ae 4 bi, 3 own need to know himself, always pay ih) \, Bs les ’ hidden from him in the shadow cast i =. ae oak = f[3h] ins by the light of his scintillating intelli& ta MN 17 tthe Ed gence. As he is now nothing, so must I “a Pes * Pe as 4 be. And so to you Dear Reader, | bid = “ae Ff Bias 2 farewell. i ete Fe fe : ; Adver: Yet still I hunger.... Te we a 4 : f eee F af Tae aA yh fi. 
 
@@ -778,10 +604,7 @@ Chapter Five: Professor Webley
 
 59 
 
-**==> picture [366 x 551] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-verge of locating that vile creature’s lair and A derisive snort exploded from my com-<br>driving an iron spike through its black heart, panion.<br>had not those dolts at Scotland Yard called “Now, | Lnow your feelings regardin<br>in that blasted reductionist of theirs! Hismed- such societies, old man, but I would scout<br>dling proboscis so befouled the entire inves- you that, without their assistance, you would<br>tigation that the undead beast was able to never have had a chance in damnation of<br>makea clean escape!” cracking the Case of the Hysterical Char-<br>day toWith me. this “And ut t hiserance, so demoralizedall became you clear th a ts | w ithoman!” Throughmy cane, | instructed a series ofthe discd r ivereet nudgesto in<br>you've not done a lick of work since! Good pass the Tower and London Bridges, and in-<br>Lord, Wayland, is it any wonder that this stead cross the Thames at Blackfriar’s, foras-<br>black mood has enveloped you? I can much as to spare my delicately bal-<br>see now that Providence was 7 | ‘ anced companion from breath-<br>well at work in bringing me ‘peMLL ; ai ing the psychically tainted<br>here tonight.” beni Ficrreamnann ment atmosphere of<br>that,“Eh?old man?”How's Sah.gf eye  MiTITHfVee I 4 Whitechapel.?All the way up<br>Webley’s ORR S { ie * Set : Farringdon Road I<br>ect had alrea ASS j , 9 2 : ot the tavor he<br>mae“ . i BAY § | f z a ‘ pone: hme<br>altered ad a) \<br>ably. With the Zea  Vv i eetah eyse af A: ® tj f * ‘ y @ owedfor their the Orderassis-<br>mention of the oe a . ’ a2$m tance in the<br>“blasted reduc- =e 4 3 R | j aforementioned<br>Higa:othadhis the returnedeyes.oldreeNowtire tohe — &§ a| \ aePe,‘sl  Ma zyee witi m e teefeSse nsabsentlyteredended pledgejawithmut-atohis<br>leanedwith interestforwardand* \ aes* kindserve atthemany fu-in<br>zeal, jaw and brow set ki / ture date. “That<br>hard, steeling himself for bx A) V date is now!” |<br>yet another plunge into the ‘~~ concluded tri-<br>sinown.and icy depths of the Un- turned1 west at a.St. Pancreas’.umphantly as we<br>“T can see that you are game already so | “But really, old bean,” the Professor<br>won't waste time. Make your ablutions and ejaculated back at me, “the very thought of<br>don some fairly formal attire, while I flag grown men — and grown British men at<br>down a hansom. I shall explain on the way that!— prancing about in dresses and aprons<br>into town!” macro cee wog gibberish as they at-<br>“yy? : sd ” __ thelilvery to idea‘ siof nyit threatens wands uponto unhinge ‘P swords,me<br>old Kent Road, “so don’t set your hopes for afford Be distract himself with such empty<br>adventure too terribly high. It alae con- pomp! His tirade, of which this was the abo<br>cerns the Order of the Oriental Fellowship, amble, lasted the length of Euston and<br>in which, as I have no doubt mentioned to Marleybone; 4 impassioned wee this venting<br>you : of spleen that Webley scarcely noticed as we<br>er  upon many occasions, | hold the degree P E<br> Adeptus Minor.”2 passed by the much-reviled Baker Street.<br>**----- End of picture text -----**<br>
+**
 
 60 
 
@@ -799,10 +622,7 @@ to turn up tonight. Some kind of wise man names, the Gaels, the Cymri, and so fo
 
 The Chronicle of the Black Labyrinth 
 
-**==> picture [360 x 142] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-[RE ae | { ‘i \ prea m Ai el iid<br>re? oS (oe eee: ere PR<br>Be—— @ 4 | ~s 0 ay“tay4 ~ ’ a . ¢<br>ao Oe \ Pt aa | ~*~<br>Se ahig sate Pbileslh * ge oH ge be sb ill 4) & fn ?<br>Renal \ee” eel , woe «ae re<br>Neil 2 id Pa oe ayy =<br>**----- End of picture text -----**<br>
+**
 
 Wives’ Auxiliary has made him absolutely United States’ captains of industry.° (I don’t indispensable.” mind saying that I was somewhat unnerved As I spoke I scanned the room like a by what I perceived as knowing smiles which scout surveying the field of battle. The passed between these extremely powerful men Limehouse contingent was clustered at one and the crude members of the Scotch guard end of the Magister's Table which dominated who seemed to be stationed at strategic posithe hall; behind them stood their dour and _ tions throughout the hall.) Elsewhere I could grim-faced highland regiment. At the head make out Dr. Harold Zettler, a German phyof the table, Sir Humphrey, our Chief Magus, sicilan who had become an incseactng frewas engaged in a characteristically passionquent guest of the Order, and good old Pete atecursions”harangueinto os the Fellowship.“unbalanced Coollyalien observ-inCulliford,lowship by anhis ex-clergymanseemingly insatiable drawn to theappetite Feling this from the Honored Guests’ Table were for mental activity. Two other faces I disrepresentatives from some of the wealthiest cerned did fill me with some degree of hope families in the western world: the current that sanity might be restored to these proscion of the Kromrich family of Switzerland, ceedings after all: one was Dr. Gunther long-timeested in thefriendsdoctrinesof theof Orderfamilial muchreincarna-interDesggoruntesFreud's, makinga himharshthecriticonly saneof Sigmundvoice to tion; Arbulent and Van Gelding from New come out of Vienna these days; the other was York; and | was able to recognize another Dr. William W. Gull, a freemason and perAmerican amongst them, a Mr. Jeremiah sonal attendant to the Queen, whose reputaLassater, whose excellent business sense and tion for wisdom and benevolence represented firm control of Premium Oil had catapulted to our Fellowship a shining example of the him to the enviable position of 6ne of the triumph of reason and science in the modern era. 
 
@@ -830,15 +650,9 @@ The Chronicle of the Black Labyrinth
 
 picting scenes from the mythopoetic history Harry Brashman’s wife will not let him acof the Order. cept visitors. Not long ago I saw young I scrambled for the Chamber portal, and Wiggins on Bond Street, but when I atI pride myself upon having the presence of tempted to strike up a conversation with him, mind to shut ant bar the ‘oor before any of he pretended not to know me, and threatthose | things could escape. Unfortunate 2 ened to engage the constabulary if I ever acthe zodiacally tiled ceiling of the Temple costed him again. Chamber was not proof against fire, and by Upon occasion, for want of anything the time I managed to drag myself back upmore meaningful to do, I stand before the stairs, the entire Lodge-house was filled with charred lot at Cavendish Square, and tears smoke and pandemonium reigned as friend fill my eyes as I consider that that blackened and foe alike were crushed in the struggle to pit is the closest thing I will ever know to a evacuate the structure. memorial for the finest human being of whom nee it has ever been my incalculable privilege to . . There make the acquaintance: Great Britain's preis now no evidence to show that : lti bi eltat 4 . the , : miere consulting spiritualist investigator, Order of the Oriental Fellowship Cer psfossor Wayland Wilbutorce Weble existed. Lord Craven died in the fire, and y y- 
 
-**==> picture [271 x 283] intentionally omitted <==**
+**
 
-**----- Start of picture text -----**<br>
-»<br>wf ? &<br>hn<br>% ‘ 4 wat<br>j .<br>.<br>r i, 7 | y . .<br>oe oY 4 ee<br>Pitt Wy ts Pr 7 é RK<br>“Ae od baled sf " .<br>{ i * : ny — ,<br>{ or a<br>**----- End of picture text -----**<br>
-
-**==> picture [321 x 71] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-Chapter Six:<br>The Rites of the Laird of Demborough<br>at Phelegma Abbey<br>**----- End of picture text -----**<br>
+**
 
 The contents of this chapter were discovered by Frater I*! at the former site of Phelegma Abbey in 1964. As the reader will undoubtedly discover, they comprise the axiom schemata of the present volume, and the profundity with which they have affected the compiler will be so greatly in | properevidence understandingas to go without of allmention.the precedingCollectively chapters,theyas formwell asthe providingclearest aand practicalmost manualprecise keyofopera-to the tions for all who would serve the Wyrm. 
 
@@ -850,15 +664,9 @@ The contents of this chapter were discovered by Frater I*! at the former site of
 
 his excavations when a chorus of primal howling erupted from the surrounding mountainsides. Inquiries proved that no wolves have been reported in the area for nearly a century. Frater I*I’s subsequent researches into the history of Demborough and its mysterious Laird brought him to Prof. MacLish, who recounted that he had once met the Laird. “He was once a tall and lanky man,” the Professor recalled, “but had suffered from a severe spinal curvature which, coupled with other deforming ailments, made him a strange gnomish figure. His hair, when he allowed it to grow, was straight and black, and when his head was shaven a livid streak of scar tissue could be seen on his scalp. His clear gray eyes shone with an inner brilliance, that penetrating gaze which betrays great spiritual accomplishment.” 
 
-**==> picture [314 x 163] intentionally omitted <==**
+**
 
-**----- Start of picture text -----**<br>
-The Rite of the Knowledge and Conversation of the<br>Meeljin Incarna<br>and of the<br>Evocation and Union of the Urge<br>prepared and performed<br>by the<br>Laird of Demborough<br>at<br>Phelegma Abbey<br>1923<br>**----- End of picture text -----**<br>
-
-**==> picture [167 x 16] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-Of the Officers and their Stations:<br>**----- End of picture text -----**<br>
+**
 
 ## The Saltortuor 
 
@@ -992,10 +800,7 @@ After intensive examination and testing by the Deprovocator, the Saltortuor must
 
 As above, in reverse. 
 
-**==> picture [289 x 152] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-Liber 0.0.0:<br>| On the Grades of Initiation,<br>With Their Titles and Duties,<br> Reference to the Challenges Encountered<br>within the Black Spiral Labyrinth<br>Inscribed by Frater R*U<br>from the words of the Laird of Demborough<br>Phelegma Abbey,<br>1919<br>**----- End of picture text -----**<br>
+**
 
 ## 0’ Catellus 
 
@@ -1009,10 +814,7 @@ Chapter Six: The Rites of the Laird of Demborough
 
 73 
 
-**==> picture [239 x 181] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-TN. S: SALTATIQ Cae<br>Kise pV OS: SALTATI QPS<br>Cy Aex TRES: SALTATIG ? Lee SQ<br>D Ages VOR: S. CAT Ler LONE<br>CHAS LON<br>SAGs S: FIDE > Oy<br>SP Us PARA NENG<br>Se A Lo<br>SSS IALNO)<br>U By<br>**----- End of picture text -----**<br>
+**
 
 The duty of the Cognitus shall be to demonstrate his personal knowledge of the Wyrm through the expression of his Urge and the steps of his own personal Black Spiral Dance.’ Praecogitae 
 
@@ -1108,10 +910,7 @@ Upon the attainment of the grade of Phallactus, the Dancer shall be raised to th
 
 In the Ninth Circle of the Black Spiral Labyrinth, the spirit that shall test the Dancer is the Vermiculum, the Little Wyrm who is but the shadow of the true Wyrm of Balance, and the most absolute degree of the test of the Ninth Circle shall be that only one of the contestants, Dancer or Vermiculum, shall emerge whole and unvanquished from the Labyrinth. 
 
-**==> picture [267 x 269] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-7<br>WOsey. 8<br>wy Q No Ze. ay bs<br>RHEE reSer sats i—/* WB<br>OG @eese seit: ee Z a<br>ae Dl /KQRSRD!<br>Rg e NOSpe<br>50/4/91 9\\ oa<br>ZINC<br>**----- End of picture text -----**<br>
+**
 
 |§<br>B<br>E|—<br>+ 3<br>><br>&<br>&<br>fa<br>2<br>2<br>8<br>&<br>‘Ss<br>7<br>2<br>3<br>g 2<br>2<br>¢<br>A<br>a<br>te<br>eg<br>a|3<br>1<br>Se<br>a8<br>4<br>Sze<br>;<br>Seg 8<br>Bei Fe<br>Sul3<br>Eo es<br>Sagt §|rm<br>p<br>r}<br>so<br>&<br>S$ ¢§<br>JY<br>ba<br>Qs<br>ea8<br>Es<br>b6<br>25|
 |---|---|---|---|
@@ -1125,10 +924,7 @@ In the Ninth Circle of the Black Spiral Labyrinth, the spirit that shall test th
 
 The Chronicle of the Black Labyrinth 
 
-**==> picture [267 x 152] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-Viber CCC:<br>On The Procession of the Epochs,<br>The Evocative Keys of the Urges,<br>and<br>The Maeljin Incarna Attendant Thereunto<br>Inscribed by Frater U*R<br>from the words of the Laird of Demborough<br>Phelegma Abbey,<br>1923<br>**----- End of picture text -----**<br>
+**
 
 Often of late, many of my students have come to me wishing to learn in more detail the lore of the Pretanic Keys, or Pretanic Calls, also called the Keys of the Epochs, or the Evocative Keys of the Urges, etc., and of the source of the terrific psychic energies which these calls of evocation can unlock. To the end of furthering these students along in their Dance through the Black Spiral Labyrinth, the Laird of Demborough deigns to reveal this Liber C.C.C., wherein shall be listed all of the Major Keys, the Urge-Wyrm represented by each, and their attendant Maeljin Incarna, animistic Totem-Spirits (when known), and servitor creatures. The prerequisite for this course of study is Liber W.W.W.: Of the Triatick Wyrm. 
 
@@ -1146,17 +942,11 @@ Chapter Six: The Rites of the Laird of Demborough
 
 79 
 
-**==> picture [354 x 210] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-WKSh AY:<br>the strands of frigidity and .\e Vee<br>K V In the quadrant defined by x e \ a;<br>Sh slime, there splattered forth all & NY “\3 ) 7 \ y/<br>W the liquid portions of the bs x : NAR y<br>Wyrm’s carcass, all the biles, Ny vg<br>humors and ichors, and the spirit within j AA)<br>them was Wakshaa, the essence of Toxin. wo \N ae ( i} "4<br>The Pretanic Key of the essence of ° my Ss /|<br>Toxin is WKSh, the root of the Pictish Qa ay > Sen<br>Wakshaa. The demands of this essence are 3 :<br>tended to by the Wakshaani, the rippling a ¢ # -<br>Wakshaateratomic leaves of purple-streaked venom. y <2 ae. — eS fen \<br>within its commandsHouse, that theof allDancersacrifices shall madedrink Ti.ra VaAe. — et? agS : c<br>deeply of the fluids of the victim’s body, most<br>especially those found in the regenerative organs.<br>**----- End of picture text -----**<br>
+**
 
 The Maeljin of the House of Wakshaa is Lady Yul, the Mistress of Toxins. In the West does she preside, arising from a pool of purple poison, her belly swollen to drop more of her toxic twisted brood. 
 
-**==> picture [359 x 210] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-FRM<br>A Bx In the quadrant defined by the strands e ay :<br>of fever and encrustation, there flared ee : He<br>R forth all the burning portions of the 1}<br>the spirit within them was Furmas, the JR \ - A:<br>M Wyrm’s carcass, the heart and blood, and = (4) :<br>essence of Balefire. = SS) , ty =<br>the The Pretanic Key ofthe essence of Balefire is FRM, TN esetoy ae MA yy =<br>root of the Pictish Furmas. The demands of this J -: @P =<br>essence are tended to by the Furmlings, the orbs of :{ “ 4 =<br>irradiant burning plasm. Furmas commands of all sacri- FEA” * ‘ : =<br>fices made within its House, that the Dancer shall en- 9S 7 . \ =<br>gorgethe MasterThehimself with Maeljinof Hellfire. ofthe the HouseheartIn theand ofSouthFurmasblooddoesof is the Lordhe victim.preside, Kerne, [ieFEF yee ) ==<br>thin and weak with flesh of boiling lava, upon a flam-<br>ing chariot trailing sulfurous black smoke.<br>**----- End of picture text -----**<br>
+**
 
 80 
 
@@ -1194,10 +984,7 @@ BShKAi | Ai B The Pretanic Key of the Urge of Beast-of-War in the House of Furma
 
 The Chronicle of the Black Labyrinth 
 
-**==> picture [43 x 66] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-GREE<br>ie E<br>E R<br>**----- End of picture text -----**<br>
+**
 
 ie E The Pretanic Key of the Urge of Beast-of-War in the House of Hoga is GREE, the root of the Pictish GREE. This Key plunges the Dancer into the black pit of the Wyrm’s hopelessness. This Urge is said to be the only Urge E R | possessed of a reasoning mind, for sadness and loss may only be comprehended through intellection. As the Urge of Despair, GREE finds favor in the victim whose own hopelessness brings them willingly to be sacrificed. 
 
@@ -1235,10 +1022,7 @@ The Maeljin of Eater-of-Souls in the House of Furmas is Knight Entropy, the Wyrm
 
 This Urge calls to its aid the Puppets of Meat that cavort in the rotting carcasses of violated innocents, and the raw-headed necrophagous Skull Pigs. 
 
-**==> picture [46 x 34] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-IThGG<br>iL CG<br>**----- End of picture text -----**<br>
+**
 
 iL CG The Pretanic Key of the Urge of Eater-of-Souls in the House of Hoga is LThGG, the root of the Pictish LETHARGG. This Key calms the Dancer with the peace of the Wyrm defeated. This Urge, the Urge of Apathy, is the c; Th spawn of GREE, thus to release from the pit those that were burdened by care. As the Urge of Apathy, LETHARGG finds pleasure in the victim brought low through illness, misfortune and their own helplessness, to such degree that they may be aware and yet uncaring of their sacrificial status. 
 
@@ -1282,10 +1066,7 @@ a S The Pretanic Key of the Urge of The Defiler Wyrm in the House of H’rugg is
 
 The True Dancers hail the Green Dragon (“Destroyer of Life and Crusher of Enemies”), whose breath of green balefire scorches the earth, as totem of, and intercessor for, this Urge, but only the greatest and strongest among their number know the counsel of the Green Dragon. They say MAHSSTRAC is most impressed with the victim who has believed himself to be the master of the rite at all times up to the moment of sacrifice. 
 
-**==> picture [85 x 24] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-Afterword<br>**----- End of picture text -----**<br>
+**
 
 It was the compiler’s decision to present these documents in proper chronological order, so that the historical Procession of the Epochs, detailed in Chapter Six, can be clearly seen. This is, however, not an exact representation. Beast-of-War has never failed to be most visible in human events, as any current installment of the evening news plainly demonstrates. Chapter Three, placed in the following Epoch, that of Eater-of-Souls, still reverberates with the disclosure of Beast-of-War’s phallic nature. Likewise, in the documents of Book III, the empty echoes of the Epoch of Consumption, believed to have ended prematurely around the sixteenth century, can still be heard. (The compiler holds the belief that each Epoch was intended to last a full millennium, or one thousand years, of the common era. This premature ending of the Epoch of Consumption is most curious, for, with the discovery of the American continents, it is clear that Eater-of-Souls stood ready to engulf the world, thus claiming all of humanity in preparation for the Epoch of Corruption.) And of course, the touch of the Defiler is felt throughout the work. 
 
@@ -1385,10 +1166,7 @@ tex: heze a fukin cop chuck! less cut him! chuck: he aint no fukin cop nither te
 
 so we can be totaly self sufishint wen the hole shit house goze up in flames! frawtair: wel teknikly speeking only the tru dansers can travil to the reel mowfayan labber rint for only thay can ware the form of raje strong enuf to servive the danses of eech serkel - chuck: aw fuk that noize! thats just bushit thay yuze to keep us upity kinfoke in our plase! Ju no what thay call me? the monkee boy! bobby: zat becuz of that band you tryed out for? chuck: was i tokkin to you bobby? shut up! monkee boy spost to be garu speek for son of man wel thare gonna be kissin my wite monkee ass wen im thru! dint 7 have my in site wen my godam mother abandint me to the state? fuk yeh what better way to lern wut kind of werld of shit we liv in? dint i lern the danse of raje to keep all them big blak diks out of my as? dint i Jern no fukin endurints duin my time in every joint in the land? aint i bin duwin the danse of cuning arown my puroll ofiser ever sins i got out? dont you fukin dare tel me i aint lernt how to serve the werm! [a sound of hitting and puppy sqeel thru muzel] ile show them what the son of man can do buncha inbread mutha[sound of polise sirin] tex: cule it man we got cumpiny. chuck: muve over and lemmee tok to him. git them cuvered up, bobby. an make dam shur thay stay qiyet! [van stop and polise sirin stop] polise ofiser: lisints and rejistracion, please. chuck: yessir rat cheer sir. ime reel sorry if 3 wuz gowin over the speed limet, sir, but yu no how theze dezert hiwaze can git to yu. polise ofiser: cud yu step out of the vehikul, sir. [van dor open and thay talk more out side but i can not heer what it is to tipe it.] bobby: dont yu wurry nun, mister frawtair. ole chuck, heze got hiself a way with theze fokes. and yu wunt no it to look at him, but he got sum friends in hi plases too. just be cule. [other van door open] chuck: hay boize gess wut? ju remember that bizniss we had out at ole man ak brite’s plantation a yeer or 
 
-**==> picture [1 x 2] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-|<br>**----- End of picture text -----**<br>
+**
 
 so bak? well this ole boy heer he works for a frend of ak brite’s, doncha? bobby, pull that blanket bak and see wut we can spair for our gud butty heer. [puppy wines and caje rattels] bobby: thet thair is the runt of the liter, sir. chuck: yep, heze a runt awrite, but heze a brite one. lookit them ize. that size, dont take em long to lern wutz wut. hell, i wuz a runt muself and looky how i turnt out! [all laugh] polise ofiser: now i dunno, mawdluns bin handin down sum rite hevvy pollisy on this kinda thing. chuck: wel sheeyit wut the ole man dont no aint gonna hert him nun! and sides yu sho up at yer nex tudoo with a prime 1il peece like thisun, ole blubals probly shit a brik and primote yu rite on the spot! aint i rite? polise ofiser: hel. is rite cute aint he? git down! chuck: gowan! with our complimints! tell wutsiz ass mawdlun i got plenny mor wair that cum from. polise ofiser: wel yu fokes be cairful then. i sispek one of the deputeez in this nex town is ordor of the roze, but i aint pegged wich it is yet. giddown! chuck: thanky much and yu hav a nise day sir! [van dors all close and driving again] chuck: condisendin muthafuker! bobby: gruvy. way to go chuck! tex: my main man chuck! greese them poms! frawtair: do yu feel it wize to expend our valubil cargo in such a cavileer manner? chuck: frawtair, if thairz one thing i lernt, its that our daddy pervides fer us. he duz! i mean aint this his werld weer livin in? his epuk, like yu say? dont yu think heze awreddy set out sum other 1i1 bundul of sweetnis for us, huh? to make us up fer wut we give up in his caws? wy, ile bet we get another one rite in that pasinjerz seet befor we yuze up a haf a tank of gass! tex: fat chants chuck! weer in the goddam dezert! chuck: o yee of liddul fathe! frawtair: now reely chuck! dyu think our father wud 
 
@@ -1402,10 +1180,7 @@ chuck: wel i wunt no bout all that—
 
 tex: hedzup chuck! preemo jale bate at one oclock! bobby: got dam! howzee do that? chuck: i got eeyess pee from elless dee! pull on over tex. she looks like she needs to see a frendly fase. bobby git them cuvered and make shur thay stay quiyet. now wach close, frawtair, ile sho yu a trik i lernt from a ole six degry inishiyut in holliwud. bobby: she got pritty legs. [van stop and dor open] gerl: [voise of yung gerl] hi! are yu gize hedded all the way to ellay? chuck: we shurly will be passin that way darlin! wunt be no trubul to drop yu off thair! clime on in! gerl: far out! [van dor close and thay go agin] chuck: so howed yu cum to be out heer in the dezert all a lone? gerl: o ime goan to vizit my big sister she lives at veniss beech and i got a ride out of frisco with this old dude yu no and he wuz reel nise at ferst but after a littel wile he startid to like cum on to me yu no so i made him stop the car and let me out. chuck: wel yu otta be cairful babe. hichin roun like this, yu never no wut kind of creep yu mite cum acrost. gerl: o gad yu soun jus like my mom and dad! if thay new i wuz out heer like this thade give me a reel tanning! bobby: heh ile bet. chuck: bobby. now yu no thay just wurry like that cuz thay luv yu. gerl: yeh i gess. but thay dont unnerstan— chuck: thay dont unnerstan that yu gotta get out and live yer oan life. get out and eksperients the werld yerself! heer babe, rap yer lips roun this. gerl: o far out! i did this befor onse —ffffff— in ninthe grade my best frends boy frend got sum —ffffff-— but any way o my gad yu are just so rite! its like yu no thay want me to be this littel miss perfeck huze just this like littel vershun of them yu no so thay can sho me off to thair frends wen thay have partys and stuff. like for my berth day last munth thay-— 
 
-**==> picture [2 x 12] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-|<br>**----- End of picture text -----**<br>
+**
 
 tex: dont bow gard thet thang gerl. gerl: o sorry heer. but so any way thay got me this gruvy littel alfo romayo like cuz i got my lerners permit yu no but wen thay gave it to me its like sitting out in the drive way with this big ribbin around it and its all pink! bobby: wut the car? gerl: yeh its this like reely ugly lectric pink and thay are sposed to no that i just hate pink and i sed unt uh no way ho zay and my daddy looks at me like i just bit him or sumthing and smacks me and makes me go to my room like i was the one that mest things up! tex: yer daddy give yu a pink alfo romayo? dam thats ruff. gerl: yeh wel i let my best frends boy frend take it out for a laff and he totult it and then i got to find out wut a reel but hold my daddy reely is. i got like scars i can sho yu. 
 
@@ -1439,10 +1214,7 @@ Art: Ron Brown, Mike Chaney & Matt Milberger, John Cobb, Andrew Mitchell Kudelka
 
 Layout & Design: Aileen E. Miles 
 
-**==> picture [177 x 89] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-en "7 d-- Kate<br>v %ay 730 PARK NORTH BLYD.<br>Pe ; Sm cf Sue 128<br>va CLARKSTON, GA 30021<br>WHite WOLF] USA<br>**----- End of picture text -----**<br>
+**
 
 ## GAME STUDIO 
 
@@ -1452,14 +1224,5 @@ The mention of or reference to any company or product in these pages is not a ch
 
 PRINTED IN THE USA. 
 
-**==> picture [1 x 5] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-
-_ 7 . ¥ pot iis re SSWELEeS A DEWELEeiCROCLOSESSs WOWyAAST ARUNNEES YOUvane? OERSenter: MRSwee YURAR Seee nonce*DISVELL aoS eas: nm Aone —SBBo Saveeee SUL=ttnSS eteCo eS.se PonteSeny ee HenReo4S Key]‘ sien weenF cen el‘ en4 : AWW[etre] 2 SSE CUA SNS SEES Sh EN aatiee eeoe pete)cay SET,en weg c . rya ae § eS 75 ; a eSsoe FinmemaWerr COWSatsye (eSAe soe TGSRal ie leoe SERSA ee OeA eRCSa eStenSaat. Se ea a 3 5s Be bao: oe zs Sen teal NR SaS ee Saas See Wye Asa A Say \bvg abst Bee CLS DISS. SLES CRS: VIS TOT. SS Ws MSSneesrrI SS Soesre MsWe+ eSlve SSIS,Ate PSeroSonbe SSOeeeSE LSae -Sy/sass WolfENA eee niece:ew ee theSeecrs ‘etcOw ew os eeVee ONenne Sanse opsesee ees Qn als Steen Sala eee nm Sen lacie AyyeitalentAh oesaiictars Serene Ss me eS Saee Se ~Y--s Seeere See NSBisavarVY enDeen: eee aAeece -~ Gears : < : ~--/Ly, SORWee JUCREweKe reSeeeeeyea we as SeBIS SSSSameaS ywfeES. LSnenLOSSES,Been ce reSSae SSSIae lt enENTSwe TAAMeseaee reve Seete BeDA SeSenaSS ee meSerneee, eneeete ewAY eeneSce Sows we ee Ae een alee fe Sheen < ow Fh ot Ve mee ee NS eS SRS et Se eS syrr Ym eee Vee Sisarewy ~ si S eee Shee Steee eeCk ee b=eeealin BK en39: canine* * ote . eeeleé ~ens CRs ses92 Sales~ MisTes3 a we ee ASO Se ee Se OS Moe sree SS SAAT imam fan em me eu Seda ei BPA Sete ia. (on eae hee a} sha able by clelig Bind Bo SNE) Shel SOS ROS, WD one Wats UO UGA See. Uipe Aes;Paeee: AnndeSotaVe RUSNOR Serenain CESSESwaetieted WesSeoce telnSUS BOSSESVf eae ef Pe! Pb eistevals te oF SS Sou Pp yoy ae ¥ " S " ew we YS So ee ae ne We SSS SSS OS ae. eee WS Vfl = ay) gt ent Ax Wisse Pas Nee ee eS ReteeweSra Bg fas A OE ey aad et rcptNie Os aes DY) ca “aN SO a ee Ps - SIAN sn 35 LB x nb ES Se - SS OY SEIN MAPA ATEN eeeeet emis 
-
-**==> picture [43 x 7] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-Scanned by<br>**----- End of picture text -----**<br>
+**
 

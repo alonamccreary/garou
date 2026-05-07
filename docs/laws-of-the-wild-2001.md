@@ -1,14 +1,8 @@
-**==> picture [78 x 200] intentionally omitted <==**
+**
+**
 
-**==> picture [407 x 32] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-William Burgess (order #57466)<br>**----- End of picture text -----**<br>
-
-**==> picture [98 x 9] intentionally omitted <==**
-
-**==> picture [139 x 89] intentionally omitted <==**
-
+**
+**
 ## 
 
 ## 
@@ -120,32 +114,25 @@ William Burgess (order #57466)<br>**----- End of picture text -----**<br>
 ## 
 
 ## 
-
-**==> picture [8 x 16] intentionally omitted <==**
 
+**
 ## 
 
 ## 
 
-**==> picture [409 x 27] intentionally omitted <==**
+**
 
-**----- Start of picture text -----**<br>
-William Burgess (order #57466)<br>**----- End of picture text -----**<br>
-
 ## 
 
 ## 
-
-**==> picture [10 x 13] intentionally omitted <==**
 
+**
 ## 
 
 ## 
 
-**==> picture [13 x 9] intentionally omitted <==**
-
-**==> picture [253 x 17] intentionally omitted <==**
-
+**
+**
 ## 
 
 ## 
@@ -413,9 +400,8 @@ William Burgess (order #57466)<br>**----- End of picture text -----**<br>
 ## 
 
 ## 
-
-**==> picture [307 x 239] intentionally omitted <==**
 
+**
 ## 
 
 |oyed with<br>ciers and|this sort of pull. CEOs, bankers, stockbrokers, bank tellers, yes-men,<br>loan agents are found among such work.|
@@ -457,16 +443,13 @@ William Burgess (order #57466)<br>**----- End of picture text -----**<br>
 ||Abuse grants for personal use($250)|
 ||Have minor medical research performed on a subject|
 
-**==> picture [18 x 21] intentionally omitted <==**
-
+**
 ## 
 
-**==> picture [307 x 243] intentionally omitted <==**
-
+**
 ## 
 
-**==> picture [307 x 185] intentionally omitted <==**
-
+**
 |cost|Effect|
 |---|---|
 |1|Get free representation for minor cases|
@@ -498,8 +481,7 @@ William Burgess (order #57466)<br>**----- End of picture text -----**<br>
 
 ## 
 
-**==> picture [307 x 209] intentionally omitted <==**
-
+**
 |mittees to|the mayors of major cities or Congressional representatives.|
 |---|---|
 |cost|Effect|
@@ -1380,8 +1362,7 @@ William Burgess (order #57466)<br>**----- End of picture text -----**<br>
 
 ## 
 
-**==> picture [305 x 628] intentionally omitted <==**
-
+**
 ## 
 
 ## 

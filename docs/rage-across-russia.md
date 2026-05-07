@@ -59,8 +59,7 @@
 
 ## 
 
-**==> picture [102 x 2] intentionally omitted <==**
-
+**
 ## 
 
 ## 
@@ -134,9 +133,8 @@
 ## 
 
 ## 
-
-**==> picture [298 x 4] intentionally omitted <==**
 
+**
 ## 
 
 ## 
@@ -154,11 +152,9 @@
 ## 
 
 ## 
-
-**==> picture [12 x 2] intentionally omitted <==**
-
-**==> picture [122 x 13] intentionally omitted <==**
 
+**
+**
 ## 
 
 ## 
@@ -239,16 +235,13 @@
 
 ## 
 
-**==> picture [6 x 2] intentionally omitted <==**
-
-**==> picture [126 x 2] intentionally omitted <==**
-
+**
+**
 ## 
 
 ## 
 
-**==> picture [12 x 2] intentionally omitted <==**
-
+**
 ## 
 
 ## 
@@ -278,9 +271,8 @@
 ## 
 
 ## 
-
-**==> picture [2 x 2] intentionally omitted <==**
 
+**
 ## 
 
 ## 
@@ -395,8 +387,7 @@
 
 ## 
 
-**==> picture [38 x 5] intentionally omitted <==**
-
+**
 ## 
 
 ## 
@@ -432,17 +423,15 @@
 ## 
 
 ## 
-
-**==> picture [572 x 783] intentionally omitted <==**
 
+**
 ## 
 
 ## 
 
 ## 
 
-**==> picture [36 x 3] intentionally omitted <==**
-
+**
 ## 
 
 ## 
@@ -452,9 +441,8 @@
 ## 
 
 ## 
-
-**==> picture [6 x 2] intentionally omitted <==**
 
+**
 ## 
 
 ## 
@@ -475,14 +463,12 @@
 
 ## 
 
-**==> picture [166 x 293] intentionally omitted <==**
-
+**
 ## 
 
 ## 
-
-**==> picture [8 x 3] intentionally omitted <==**
 
+**
 ## 
 
 ## 
@@ -491,8 +477,7 @@
 
 ## 
 
-**==> picture [303 x 4] intentionally omitted <==**
-
+**
 ## 
 
 ## 
@@ -568,9 +553,8 @@
 ## 
 
 ## 
-
-**==> picture [100 x 2] intentionally omitted <==**
 
+**
 ## 
 
 ## 
@@ -585,8 +569,7 @@
 
 ## 
 
-**==> picture [186 x 13] intentionally omitted <==**
-
+**
 ## 
 
 ## 
@@ -598,9 +581,8 @@
 ## 
 
 ## 
-
-**==> picture [19 x 4] intentionally omitted <==**
 
+**
 ## 
 
 ## 
@@ -613,18 +595,15 @@
 
 ## 
 
-**==> picture [185 x 7] intentionally omitted <==**
-
+**
 ## 
 
 ## 
 
 ## 
-
-**==> picture [165 x 2] intentionally omitted <==**
 
-**==> picture [19 x 2] intentionally omitted <==**
-
+**
+**
 ## 
 
 ## 
@@ -644,31 +623,26 @@
 ## 
 
 ## 
-
-**==> picture [22 x 2] intentionally omitted <==**
 
+**
 ## 
-
-**==> picture [23 x 8] intentionally omitted <==**
-
-**==> picture [10 x 2] intentionally omitted <==**
 
+**
+**
 ## 
 
 ## 
 
 ## 
 
-**==> picture [88 x 24] intentionally omitted <==**
-
+**
 ## 
 
 ## 
 
 ## 
-
-**==> picture [47 x 3] intentionally omitted <==**
 
+**
 ## 
 
 ## 
@@ -689,8 +663,7 @@
 
 ## 
 
-**==> picture [48 x 3] intentionally omitted <==**
-
+**
 ## 
 
 ## 
@@ -702,22 +675,17 @@
 ## 
 
 ## 
-
-**==> picture [50 x 3] intentionally omitted <==**
 
+**
 ## 
 
-**==> picture [70 x 4] intentionally omitted <==**
-
-**==> picture [99 x 2] intentionally omitted <==**
-
+**
+**
 ## 
 
 ## 
 
 ## 
-
-**==> picture [17 x 4] intentionally omitted <==**
-
-**==> picture [781 x 22] intentionally omitted <==**
 
+**
+**

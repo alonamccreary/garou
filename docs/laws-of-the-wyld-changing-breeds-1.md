@@ -1,5 +1,4 @@
-**==> picture [207 x 156] intentionally omitted <==**
-
+**
 ## 
 
 ## 
@@ -344,8 +343,7 @@
 
 ## 
 
-**==> picture [14 x 3] intentionally omitted <==**
-
+**
 ## 
 
 ## 
@@ -545,9 +543,8 @@
 ## 
 
 ## 
-
-**==> picture [3 x 7] intentionally omitted <==**
 
+**
 ## 
 
 ## 

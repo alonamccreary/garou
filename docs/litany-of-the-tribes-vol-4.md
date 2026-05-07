@@ -32,10 +32,7 @@ Cover Design: Aileen E. Miles
 
 **Kathy** "Felicia" **Ryan,** for sharing a vacation (and her clean laundry) with the Devil in cat's form. 
 
-**==> picture [166 x 98] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-735 PARK NORTH BLVD.<br>SUITE 128<br>CLARKSTON, GA 30021<br>USA<br>G A M E S T U D I O<br>**----- End of picture text -----**<br>
+**
 
 © 1997 White Wolf Publishing, Inc. All rights reserved. Reproduction without the written permission of the publisher is expressly forbidden, except for the purposes of reviews, and blank character sheets, which may be reproduced for personal use only. White Wolf is a registered trademark of White Wolf Publishing, Inc. All rights reserved. Werewolf the Apocalypse, Stargazers Tribebook, and The Werewolf Players Guide are trademarks of White Wolf Publishing, Inc. All rights reserved. All characters, names, places and text herein are copyrighted by White Wolf Publishing, Inc. 
 
@@ -1202,10 +1199,7 @@ backpack (traveling on all fours when nobody watches). If you could find some fr
 
 **Equipment:** Battered notebook and journals, rucksack with minimal camping equipment, photocopies of Snyder's "Smoky Bear Sutra" to hand out to the unenlightened. 
 
-**==> picture [51 x 12] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-Stargazers<br>**----- End of picture text -----**<br>
+**
 
 **Quote:** _Do not mistake my ignorance of your modern world for stupidity. I see the delusion which you live more clearly than you._ 
 

@@ -114,8 +114,7 @@ Tobias Sjögren, Martin Elricsson, Shane Defreest, Dhaunae DeVir, and Karim Muam
 
 Ric Connely, Lucas Greene, Patrick “Stout” Gerrity, Derek Howard, THE Jason Hughes, Ariel Kaiser, Paul Lukis, Jennifer Harris Palmer, Baron Saterbak, Michael “Hollywood” Tomasek Jr., Tristan “Queen Moon-Moon” Turner, and Brendan S. L. Whaley 
 
-**==> picture [146 x 199] intentionally omitted <==**
-
+**
 © By Night Studios, LLC and White Wolf Publishing AB. All rights reserved. www. white-wolf.com. Werewolf: The Apocalypse, Storytelling System, Black Furies, Bone Gnawers, Children of Gaia, Fianna, Get of Fenris, Glass Walkers, Red Talons, Shadow Lords, Silent Striders, Silver Fangs, Uktena, and Wendigo are trademarks and/or registered trademarks of White Wolf Publishing AB. All rights reserved. 
 
 This book uses the supernatural for settings, characters and themes. All mystical and supernatural elements are fiction and intended for entertainment purposes only. This book contains mature content. Reader discretion is advised. 
@@ -132,8 +131,7 @@ Alona McCreary (Order #15311115)
 
 Alona McCreary (Order #15311115) 
 
-**==> picture [261 x 148] intentionally omitted <==**
-
+**
 5 
 
 Table of ConTenTs 
@@ -180,8 +178,7 @@ To Josiah, who still felt fire crack his bones, Áine was a bright flash of life
 
 “Whiskey. Neat. Doesn’t have to be fancy.” She requested, tucking her legs neatly under the bar. “That’s good,” Josiah responded, “Because we don’t have anything fancy to serve you.” She smiled, flashing bright white teeth, “Perfect.” 
 
-**==> picture [59 x 9] intentionally omitted <==**
-
+**
 The flames started at his feet, wrapping around his heels and weaving themselves into his calves, until his skin turned orange, like molten metal, from their caress. He reached his arm down, his hand gently stretching into the fire as if to test its temperature. He pulled it back, watching the fire blacken his skin and the heat crackling his flesh, revealing wet, pink meat beneath. Even when the acrid stench of burning hair and flesh reached his nose, he did not scream, but watched as it consumed him from the outside in. Behind his eyes, he felt a terrible anger pressing outward. When it reached his heart, the ecstasy and the pain of that final consumption made him cry out. 
 
 Suddenly, small, rough hands shook his shoulders. 
@@ -222,8 +219,7 @@ Josiah felt rage, righteous and white-hot, rise up in his throat. It needed him 
 
 “Enough!” a woman said from behind them. The need to strike and be struck ebbed for a moment, and he saw Áine. The blonde woman struck a final brutal blow against his temple, and he fell to the ground, unconscious. 
 
-**==> picture [59 x 8] intentionally omitted <==**
-
+**
 “I vote yes. He defended someone who was smaller and weaker than his attacker, without reservation or care for his own well-being. The spirits answered him too. You could see that.” Josiah, barely conscious, recognized the voice as the old man from the bar. Someone dabbed at the agony that was his left eye. 
 
 Alona McCreary (Order #15311115) 
@@ -256,8 +252,7 @@ Alona McCreary (Order #15311115)
 
 Alona McCreary (Order #15311115) 
 
-**==> picture [397 x 134] intentionally omitted <==**
-
+**
 _“Fairy tales do not tell children the dragons exist. Children already know that dragons exist. Fairy tales tell children the dragons can be killed.”_ 
 
 —G.K. Chesterton 
@@ -360,10 +355,8 @@ And yet dark realism does not mean circumstances are completely hopeless. There 
 
 ## Playing a Werewolf 
 
-**==> picture [169 x 23] intentionally omitted <==**
-
-**==> picture [68 x 11] intentionally omitted <==**
-
+**
+**
 The myths and legends of werewolves can be found in cultures around the world, and they predate recorded history. 
 
 Such creatures have been known by many names, such as the French loup-garou, the South American Luison, and the Mesoamerican nagaul. Popular retellings, drawn from ancient tales such as the Volsunga Saga to more modern movies and television shows, have romanticized these myths. 
@@ -832,8 +825,7 @@ Alona McCreary (Order #15311115)
 
 Alona McCreary (Order #15311115) 
 
-**==> picture [358 x 198] intentionally omitted <==**
-
+**
 _“A Garou can ask for no greater recognition, because no greater recognition exists. The Record is immortality, pure and simple; as long as the Garou survive, so will the names of their heroes and traitors.”_ 
 
 — The Silver Record 
@@ -882,8 +874,7 @@ Those born beneath the new moon are the tricksters of Garou society. They challe
 
 Those born beneath the crescent moon are the mystics of the Garou. _Theurges_ have a natural affinity with spirits and can speak with them, either persuading them to join their causes or forcing them to do their bidding like sorcerers. Theurges provide frontline defense against banes and other corrupted creatures that invade the Material Realm. They are often considered wise and great healers of the soul and the body. 
 
-**==> picture [80 x 102] intentionally omitted <==**
-
+**
 ## Philodox 
 
 Those born under the half-moon are the arbitrators and judges of the Garou Nation. The _Philodox_ are charged with keeping the traditions of the Garou. However, they also strive for balance and harmony amidst the 
@@ -902,8 +893,7 @@ Those born beneath the gibbous moon are filled with passion that bursts forth in
 
 ## Ahroun 
 
-**==> picture [99 x 102] intentionally omitted <==**
-
+**
 Those born beneath the full moon are the natural warriors of the Garou. No werewolf is incompetent at fighting, but _Ahroun_ excel at it. They often lead the Garou during times of war or when no Philodox are available. 
 
 ## Breeds 
@@ -928,8 +918,7 @@ The World of darkness
 
 Alona McCreary (Order #15311115) 
 
-**==> picture [96 x 145] intentionally omitted <==**
-
+**
 The Litany of the Western Concordat 
 
 34 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE _Garou Shall Not Mate With Garou Combat the Wyrm Wherever It Dwells and Whenever It Breeds Respect the Territory of Another Accept an Honorable Surrender Submission to Those of Higher Station Respect Those of Lower Station, for All Are of Gaia The First Share of the Kill for Greatest in Station Ye Shall Not Eat the Flesh of Humans The Veil Shall Not Be Lifted Do Not Suffer Thy People to Tend Thy Sickness The Leader May Be Challenged at Any Time During Peace The Leader May Not Be Challenged During Wartime Ye Shall Take No Action That Causes a Caern to Be Violated_ 
@@ -1216,8 +1205,7 @@ Alona McCreary (Order #15311115)
 
 of the creatures to Earth, and she turned her face away from him. This is the tale of why Coyote sings to Luna every night, in hopes of gaining her blessing once again. 
 
-**==> picture [90 x 153] intentionally omitted <==**
-
+**
 ## _Historian’s Note_ 
 
 _Although Garou have their tales of how the world began, each breed of Fera maintains their own legends. While there are some similarities found between these different tales, each breed has their own unique view on how the world came to be._ 
@@ -1276,8 +1264,7 @@ Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE
 
 Alona McCreary (Order #15311115) 
 
-**==> picture [8 x 44] intentionally omitted <==**
-
+**
 discovered a brave new world tainted by banes and monsters. Together, they cleansed the continent of the Wyrm; trapping the banes they could not destroy, discovering new kin, and helping found human civilizations. 
 
 Arrogant from their victories and showing dominance, the Silver Fangs plunged the Garou Nation into a vicious conflict with the Fera known as the _War of Rage_ . Animosity between the Garou and the Fera first surfaced during the Impergium. Fera breeds complained that the Garou targeted their kinfolk during raids against humanity to purposely limit their populations. The Garou countered that their leadership of Gaia’s children was challenged by the Fera’s continual disrespect of the werewolves’ role as protectors of Gaia, and that it was necessary to show dominance to ensure the security of the Material Realm. 
@@ -1446,12 +1433,10 @@ The World of darkness
 
 Alona McCreary (Order #15311115) 
 
-**==> picture [133 x 109] intentionally omitted <==**
-
+**
 ## The Prophecy of the Phoenix 
 
-**==> picture [148 x 50] intentionally omitted <==**
-
+**
 ## _Historian’s Note_ 
 
 _The Prophecy of the Phoenix has been translated numerous times from the original Arabic transcription as foretold in the year 600 CE by the prophet Simeon Abd al Hakim, deed name “Fire Walker”. Translations throughout the centuries have seen many small divergences. What follows is a new transcription given to me by the Garou Nation’s foremost linguistic scholar. This translation has been several years in the making and may provide new insight into the Age of Apocalypse._ 
@@ -1544,8 +1529,7 @@ A new War of Rage between the Garou in the Pure Lands seemed inevitable, as the 
 
 Age of the Storm: Industrial Revolution to the Wild West 
 
-**==> picture [111 x 103] intentionally omitted <==**
-
+**
 _The Incursion cost the Garou a large chunk of our collective soul for our failure to live up to Gaia’s ideals. We bought some of that back in the battle against the Storm Eater, paying in blood and tears. I believe that’s when our tribal alliance became a real nation. — Verity Argyris, Black Fury, Historian_ 
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
@@ -1576,16 +1560,13 @@ The minions of the Wyrm cared little for tribal politics and attacked all Garou,
 
 Horrific umbral storms devastated the Umbra and pierced holes in the Gauntlet, leaving a wake of _Broken Lands_ . Spirits wreaked havoc on the Material Realm, spreading disease and devastation. Moon Bridges shattered, and Garou were thrown around like ragdolls as the storms raged through the Umbra. 
 
-**==> picture [87 x 87] intentionally omitted <==**
-
-**==> picture [79 x 87] intentionally omitted <==**
-
+**
+**
 On December 28, 1890, the Garou Nation rallied as one to perform the Rite of Still Skies. The Stargazers returned to the world from their monasteries and retreats, determined to put an end to this threat. As the werewolves joined together against their common enemy, thirteen Garou Legends, one from each tribe, sacrificed themselves at thirteen different caerns to bind the bane once more. 
 
 ## Age of the Weaver: The World Entangled 
 
-**==> picture [79 x 74] intentionally omitted <==**
-
+**
 _The Garou always imagined that the Wyrm was the greatest threat to Gaia. The Weaver ascended to dominance over the Material Realm in the 20[th] Century, and she seems unlikely to let the world out her web now. — Verity Argyris, Black Fury, Historian_ 
 
 The World of darkness 
@@ -1602,8 +1583,7 @@ The Great War to End All Wars erupted on the European landscape on July 28, 1914
 
 In 1915, Premium Oil changed management, taking advantage of the chaos of war, rebranding itself as _Pentex Incorporated_ . This corporation garnered influence throughout the next few decades, surviving the Great Depression and becoming embedded in the government, the military, and nearly all aspects of industry. 
 
-**==> picture [122 x 78] intentionally omitted <==**
-
+**
 With minions of the Wyrm and fomori heading the company, Pentex swiftly rose to prominence, expanding its horizons beyond the oil business. It established Endron as the oil subsidiary of the company, and Pentex began to expand into a wide array of fields, starting with research and development. In time, despite Pentex’s ability to fly beneath the radar, Garou discovered the truth behind the company. Unfortunately, the Wyrm is smart and insidious, and werewolves found that every attempt to squash the rapidly expanding mega-corporation failed miserably. (Additional information on Pentex can be found in **Chapter Fourteen: Allies and Antagonists: The Wyrm** , page 662.) 
 
 During the 1930s, another tragedy befell the world of Garou; few truly realized its significance until much later. Mara the Scream, a cunning and powerful Black Spiral Dancer, tricked almost the entirety of the Bunyip tribe into a deadly trap that erased them from their home in Australia. Rumors exist stating 
@@ -1672,14 +1652,10 @@ At the dawn of the millennium, the Stargazers formally seceded from Garou Nation
 
 Once again, the bindings that imprisoned the Storm Eater began to falter as Anthelios, the Eye of the Wyrm, seemed to negate the Rite of Still Skies. Dark storms brewed in the Umbra, threatening the integrity of the Gauntlet. 
 
-**==> picture [86 x 87] intentionally omitted <==**
-
+**
 Age of Apocalypse: The Rise of a New Generation of Heroes 
 
-**==> picture [280 x 166] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-The Greeks defined the word ‘apocalypse’ as the end of<br>this world and the beginning of the next. Today served<br>as the soil for what might grow a better tomorrow.<br>If this is true, then the next world will begin with<br>the Age of Heroes.<br> — Verity Argyris, Black Fury, Historian<br>**----- End of picture text -----**<br>
+**
 
 ## **2000 CE to the Present** 
 
@@ -1735,12 +1711,9 @@ Kisasi, the leader of the Ahadi alliance, added her voice to Albrecht’s and ca
 
 And one by one, the last thirteen caerns were secured for Gaia, save for one. 
 
-**==> picture [72 x 75] intentionally omitted <==**
-
-**==> picture [69 x 75] intentionally omitted <==**
-
-**==> picture [74 x 74] intentionally omitted <==**
-
+**
+**
+**
 **The Battle at the Sept of the Crescent Moon** 
 
 At the Sept of the Crescent Moon, where the Storm Eater intended to cross into the Material Realm, the snow-covered 
@@ -1763,8 +1736,7 @@ Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE
 
 Alona McCreary (Order #15311115) 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 ## **The General of the Dark Brigade** 
 
 Shazear is a monster of legendary proportions. One of the Zmei, dragons hunted by entire tribes, he managed to somehow avoid the binding laid on his brothers and sisters. With the aid of his perfect shapeshifting ability, he roamed around the world undiscovered for ages. Fascinated with humanity and its evolution, Shazear has one driving goal beyond his epic curiosity: freedom. No matter what service he must endure, what oaths he must swear, or what burdens he must bear for centuries, Shazear wants nothing more than to be free of the ties that currently bind him and the threat of more being tied around his neck. 
@@ -1775,8 +1747,7 @@ Shazear has yet to recruit his siblings to the effort, rightfully fearing their 
 
 (For more information, see **Chapter Fourteen: Allies and Antagonists: Zmei** , page 674.) 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 and Evan Heals-the-Past in its claws. The Gauntlet closed, leaving the beast, Albrecht, and his packmates locked in eternal battle on the other side of the Umbra. 
 
 Somehow, before disappearing forever, the High King spoke to the Garou Nation one last time, despite being lost through space and time. Albrecht spoke with the power of Gaia’s voice, leaving a final message of hope that has since become known as the Last Words of Gaia; although these words were apparently meant to unify the nation, they later splintered it into two divisive factions. 
@@ -1789,22 +1760,19 @@ The war had been won, but it felt like a pyrrhic victory at best. Only thirteen 
 
 The world was fading. Perhaps it had already died, and merely the embers of life remained. 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 ## **Return of the High King** 
 
 Many believe that former High King Albrecht is now dead, slain in his final battle with the Storm Eater. Some hold out hope that he and his pack are merely lost in the Deep Umbra, trying to find their way back home, and that they will return before the end of the Age of Apocalypse as foretold in the Phoenix Prophecy (see page 50). 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 The World of darkness 
 
 59 
 
 Alona McCreary (Order #15311115) 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 ## **Last Words of Gaia** 
 
 “Hope is not sundered; wake me, and a new age of harmony shall begin.” 
@@ -1813,16 +1781,12 @@ Each listener heard these words in her native tongue. As a result, Garou have ho
 
 Even those without a true language still felt the words of Gaia, sent in emotions and thought, translated through the filter of their own minds. No matter the reception, the truth of these words remains the newest and most contested prophecy within the Garou Nation. 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 ## **The Reconstruction** 
 
-**==> picture [64 x 45] intentionally omitted <==**
-
-**==> picture [69 x 45] intentionally omitted <==**
-
-**==> picture [93 x 27] intentionally omitted <==**
-
+**
+**
+**
 The caerns served as Gaia’s spiritual life-support, and after their destruction, many old sources of gnostic energy began to fade from the Material Realm. Celestine spirits no longer spoke directly to Garou. Many believed that Mother Gaia was dead, and now the world only existed on the embers of her former glory. Storms continued to devastate the Umbra, making it impossible for the Garou to escape the Material Realm and find a new Gaia. 
 
 Some Theurges argued that Gaia only slept, recovering from the attack and marshalling her strength to once more reach out to her children. With her disappearance, the Celestines and Incarna among the spiritual hierarchies increased their presence, actively working with Garou and Fera alike to reestablish pacts forged in the dawn of time. Werewolves scrambled to learn and disseminate the new pecking order and perform the chiminage required to upkeep these new relationships. 
@@ -1857,8 +1821,7 @@ Strife continued to be rampant on the Council, as each faction attempted to sway
 
 of power of Garou and Fera alike. Both the Concordat of Stars as well as the Sanctum of Gaia struggled to codify their opinions on the best way to handle the Bite and the new Garou who were born from it. The danger to the kinfolk willing to undergo such a rite, as well as the staggeringly high possibility of failure, made the decision of how the nation will handle this event a staggeringly difficult one. 
 
-**==> picture [73 x 216] intentionally omitted <==**
-
+**
 ## _Historian’s Note: The Plagues of the Garou Nation_ 
 
 _There is ample evidence to support a yetunsubstantiated theory that some unknown enemy visits an unnatural, clearly supernatural, plague upon the Garou Nation. The Age of Tragedy saw a plague of madness and deception infect powerful members of the Garou Nation, causing their decision-making processes to become suspect. The Age of Ruin gave rise to the Flaying Plague, a physical sickness that slaughtered massive amounts of Garou, Fera, and their kinfolk, while sparing non-supernatural humanity. The Age of the Weaver gave rise to the Metamorphic Plague, a Wyld-borne plague that seems to have affected only the Black Furies, increasing the number of non-Metis male children born to the tribe. There were other plagues defeated by unknown heroes long-forgotten._ 
@@ -1875,12 +1838,9 @@ Alona McCreary (Order #15311115)
 
 ## **An Uncertain Present and an Unknown Future** 
 
-**==> picture [64 x 53] intentionally omitted <==**
-
-**==> picture [96 x 53] intentionally omitted <==**
-
-**==> picture [77 x 53] intentionally omitted <==**
-
+**
+**
+**
 The topic on the lips of every Elder in the Garou Nation is the problem of the High King’s open seat. The Phoenix Prophecy claimed that Albrecht would be the last king before the end of the Apocalypse, but he disappeared in the battle against the Storm Eater. However, he left behind the Silver Crown at the Sept of the Crescent Moon. The Council of Tribes agreed that a new High King should be anointed until Albrecht returns. However, the spirit of Falcon that once powered the ancient artifact is no longer bound within its shell. The council has determined that whomever is finally chosen to assume the role first must prove themselves and find a way to convince Falcon to once more inhabit this ultimate symbol of leadership. Only then can they be crowned the High King or Queen. 
 
 The strongest contenders are currently Margrave Josef Konietzko and Queen Sabine “Silver-Swift” LaCoix. Their support is split along faction lines, with the Silent Striders refusing to support either due to the warning of Simeon Abd al Hakim. 
@@ -1891,8 +1851,7 @@ The Ahadi proved that cooperation was in their mutual interest for survival, as 
 
 “Endure” is the new watchword of the Age of Apocalypse. The tribes of the Garou Nation have changed and evolved to do just that—to endure in a time when each new day brings about a new travesty that kills any remaining hope of a better tomorrow and takes just a little more from them. As it turns out, the Apocalypse was never a final battle, or the end of the world, but a decades-long war over the soul of the Earth. 
 
-**==> picture [72 x 145] intentionally omitted <==**
-
+**
 ## _Historian’s Note: Personal Note on Evolution of the Black Furies_ 
 
 _The Metamorphic Plague visited upon the Black Furies during the Age of the Weaver birthed a new generation of children of both genders in equal numbers within this tribe. My mothers were among the first to keep children who were born male. I remember the pride on their faces during my Rite of Passage, when Pegasus looked into my heart and proclaimed the truth. Afterwards, they embraced me not just as their daughter, but a sister of the tribe._ 
@@ -1919,12 +1878,8 @@ strikes. A few whisper that this is the beginning of a new Impergium, intended t
 
 If this world is impossible to save, it won’t be because the courage of the Garou Nation faltered. The Age of Apocalypse is a time to forge new heroes and legends to seed the next age. They stand ready to shed their blood for their mother and for all that’s been lost. Will you join them? Will you rage? 
 
-**==> picture [355 x 357] intentionally omitted <==**
-
-**==> picture [121 x 12] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-The World of darkness<br>**----- End of picture text -----**<br>
+**
+**
 
 63 
 
@@ -1968,8 +1923,7 @@ The scent of chili and cornbread wafted out of the kitchen as the Cubs entered t
 
 Rickard shook his head once, filling a bowl with the thick food. “It is our duty to protect and provide for our kin, to aid you as you aid us. Now, tell us everything you know.” 
 
-**==> picture [59 x 9] intentionally omitted <==**
-
+**
 Snowflakes whirled through the air, an eerie silence blanketing the land. The dark gray Lupus form—David—stood still, yellow eyes glinting as he scented the air. The Uktena paced back and forth; the fur on his hackles rose. He could feel it in the air; something was coming. 
 
 The massive black form of Rickard swiveled his head as the smaller Uktena raced towards him. With a snarl, the Alpha shifted back into his Homid form, his eyes blazing. From behind him, Ingrid appeared out of the snow, a deep frown creasing her brow. 
@@ -2012,8 +1966,7 @@ Alona McCreary (Order #15311115)
 
 Alona McCreary (Order #15311115) 
 
-**==> picture [327 x 198] intentionally omitted <==**
-
+**
 _“Conflict always begins the same way between the Garou and the Fera. The smallest slights make brothers and sisters forget that they are a family under Mother Gaia.”_ 
 
 — Amy Hundred-Voices, Uktena Galliard 
@@ -2324,8 +2277,7 @@ Chapter three: tribes and Fera
 
 Alona McCreary (Order #15311115) 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 ## **The Rise of the Concordat of Stars** 
 
 Although the Shadow Lords led the formation of the political group that would become known as the Concordat of Stars, the Children of Gaia were integral to the faction’s ideological rise. Powerfully drawn to the theory that healing the Triat holds the greatest potential to end the conflict of the Age of Apocalypse, the Children of Gaia took it upon themselves to promote the worth of this core idea throughout the entire Garou Nation. They traveled throughout the world, hosting moots, leading debates, and inviting any who would listen to hear the worth of the concept. 
@@ -2334,8 +2286,7 @@ Some say that the Shadow Lords arranged this effort from behind the scenes, so t
 
 Having succeeded in seeing the Concordat of Stars take shape within the Garou Nation, the Children of Gaia are now turning their attention outward. They seek to share the Concordat’s ideas with the Fera and even with other supernaturals inclined to support the concept of allying with the Weaver. 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 ## **Lupus** 
 
 Despite the fact that the Children of Gaia are growing as a tribe, their Lupus breed is actively dwindling. The tribe has taken steps to preserve its remaining Lupus, with many now residing on government-protected preserves or hiding on their Homid cousins’ rural lands. Recently, the tribe has reached out to other tribes whose Lupus populations are on the rise, seeking to give natural unions the opportunity to arise among wolf kinfolk of separate tribes. The idea has not yet been widely embraced by the other tribes, however, leaving the Children of Gaia still seeking ways of nurturing their Lupus. 
@@ -2466,16 +2417,14 @@ Chapter three: tribes and Fera
 
 Alona McCreary (Order #15311115) 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 ## **The Fianna and the Fae** 
 
 Once, the ties of blood and oaths between the Fianna tribe and the fae were thought to be unbreakable. It took a broken heart to shatter those bonds. Since the Samhain Princess laid her curse upon the Fianna tribe, those relations have become an uneasy pact of avoidance. Neither side wishes to antagonize the other and cause the uneasy truce to become outright war. 
 
 The fae themselves feel the same, not wishing to bring down the wrath of one of their own with the power to curse an entire tribe onto their own heads. This wariness has led many fae to avoid Fianna altogether, to sidestep any hint of partnership with their former allies. While the Tuatha de Fionn still dedicate themselves to trying to find a way to repair this relationship, the rest of the tribe focuses mostly on not causing it to worsen. The change in relationship has also shaken many in the tribe who used to define themselves as much by their fae heritage as their Garou natures. 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 ## Fianna Breeds 
 
 Family ties are incredibly important to the Fianna. Breeds tend to intermingle, but more importantly, lineages, brothers and sisters, and the ties formed through a shared childhood are what gives a Fianna strength. 
@@ -2550,16 +2499,14 @@ Chapter three: tribes and Fera
 
 Alona McCreary (Order #15311115) 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 ## **Curse of the Samhain Princess** 
 
 After a bitter quarrel, a jealous fae leveled a curse upon her lover, the Ard Righ. So powerful was she that the curse affected all members of the Fianna tribe. To this day, Fianna, especially those of the Tuatha de Fionn, study the words of the Samhain Princess in the hopes of removing the curse she has laid upon them. 
 
 “Where once you brought me joy, you have turned that joy to sorrow. Now you and yours will feel my pain whenever you lose that which you care for, just as I have lost what I once cared for. Until true joy pierces the shell encasing my heart in pain, so mote it be.” 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 ## Appearance 
 
 The wolf-forms of the Fianna inspire equal parts awe and terror. Like the dire wolves of fairy tales, they draw the eye and capture the imagination. They are large, with shining red or black fur, and their howls can rend the heart with joy or sadness. In Homid form, they are typically eye-catching, handsome of feature, with very pleasant voices. 
@@ -2702,14 +2649,12 @@ Get of Fenris gifts can be found in **Chapter Five: Gifts** beginning on page 22
 
 Get of Fenris merits can be found in **Chapter Six: Merits and Flaws** beginning on page 306. 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 ## **The War of Rage** 
 
 Long ago, there were many kinds of shifters on Gaia’s earth—werewolves, yes, but also wereravens, werebears, and many other non-wolf breeds. During a dark period of history known as the War of Rage, Garou turned on the Fera. The Get of Fenris were leaders in this charge, attempting to force the Fera into submission or extinction. The sagas say blood flowed like rivers, and some Fera breeds were entirely eradicated. Although the Fenrir were not the only Garou committing atrocities, they were some of the most outspoken, and some Fera, particularly descendants of those in the War of Rage, still hold grudges against the tribe. 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 87 
 
 Chapter three: tribes and Fera 
@@ -2824,14 +2769,12 @@ Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE
 
 Alona McCreary (Order #15311115) 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 ## **Seasonal Rite** 
 
 On March 15 each year, the Glass Walkers practice a prominent seasonal rite called “The Little Rite.” A celebration of those without whom they could not succeed, it consists of thanking those who go mostly unrecognized but maintain the structure upon which society is built. Taxi drivers, barristas, dry cleaners, and maintenance men and women are just some of the people who are thanked and celebrated for the work they do. This rite also reminds the Glass Walkers who perform it of their purpose as the warders of humanity, and it encourages them to never forget the past. 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 ## **Random Interrupts** 
 
 The camp of Random Interrupts works to free civilization of Wyrm Taint by ensuring that information, technology, and advancements are kept as free as thought. Tech-thieves, internet pirates, downloaders, hackers and Net Neutrality lawyers, members of this camp are often idealistic and quick to act. The Interrupts are willing to break the laws of man’s society—and on occasion, Garou society as well—in order to keep information free and to encourage civilization’s advance. 
@@ -2968,14 +2911,12 @@ Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE
 
 Alona McCreary (Order #15311115) 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 ## **Winter Packs** 
 
 What once began as a discreet project has become the secret hope for many Red Talons. At the Council of Winter, attendees realized the need for a dedicated effort at restarting the Impergium—with or without the assistance of the other tribes. Since then, Winter Packs have begun to form among the tribe. Initially, these began as cubs reared from birth to fight against humanity, but the notion has quickly spread among the Red Talons. In growing numbers, Winter Packs have formed, whose members meet in secret to carry out quiet purges of humanity. While the groups themselves are a poorly kept secret, individual Red Talons remain guarded about their membership when dealing with non-Lupus. However, as word of the Winter Packs has spread through the Garou Nation, little has been done about them. Their strikes are typically well-planned, leaving little damage to the Veil. Many who would oppose them view the rebuilding of Garou society a more pressing issue, while others secretly applaud. According to rumor, a number of Lupus from other tribes have begun talks to start working jointly with the group, worrying many that support may be growing outside the tribe for a second Impergium. 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 ## Appearance 
 
 Red Talons gravitate towards brown and gray hues, with those of purer breeding stock possessing a dark red coat. In Homid form, Red Talons can appear as any race, but are typically well-muscled, unkempt, and maintain a distinctly feral air about them. 
@@ -3098,15 +3039,10 @@ power to destroy other Garou, and use only the thinnest of premises to justify t
 
 The masterminds behind the break from the Silver Fangs, the Lords of the Summit camp composes the most ruthless politicians and dealmakers within the Shadow Lord tribe. Where once content to rule from behind the throne, they have emerged from the shadows to take what they consider to be their rightful place. Composed of the aforementioned politicians, corporate officers, and lobbyists, members of this camp are smooth talkers with a penchant for manipulation at the highest levels. While the Lords of the Summit can be ruthless in their goals, many of them fully believe they are doing what is best for the Garou Nation and Gaia herself. Too long have the Silver Fangs been content to stand in one place. It is time to accomplish the tasks that Gaia has set for them. When a goal must be accomplished, it matters little how, only that it gets done. 
 
-**==> picture [433 x 19] intentionally omitted <==**
+**
+**
 
-**==> picture [95 x 10] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-The Storm Eater<br>**----- End of picture text -----**<br>
-
-**==> picture [78 x 78] intentionally omitted <==**
-
+**
 During the War of Rage, the Shadow Lord tribe did the unspeakable—they eradicated an entire breed of Fera. When the last of the Camazotz—werebats—died, the Shadow Lords heard firsthand the desolate cry of extinction. Thereafter, a tremendous bane known as the Storm Eater emerged, hunting down Shadow Lords as though compelled by a ferocious vendetta. 
 
 Commanding both the power of the Weaver and the Wyrm, it was a storm of destruction. Most werewolves thought that the Storm Eater was destroyed in December 1890, via the sacrifice of the Rite of the Still Skies. Hidden in the deepest pockets of the Umbra and in the dark, secret caves of the long-lost Camazotz, the Shadow Lords uncovered portents that hinted at the Storm Eater’s return. Sadly, the Children of Thunder lacked the context to properly understand these signs, and their eventual realization came too late. The greatest warriors fight using all of available weapons and knowledge; the tribe came to believe that if the Garou had worked closer with the Fera earlier, the spark that ignited the Age of Apocalypse could have been snuffed out before it began. 
@@ -3133,8 +3069,7 @@ Shadow Lord merits can be found in **Chapter Six: Merits and Flaws** beginning o
 
 While a Shadow Lord realizes that some things that cross the bounds of honor must be done to keep the Garou strong and Gaia safe, they still realize they will have to pay the price for these choices. When a Shadow Lord is assigned a negative moniker, the Renown loss penalties are doubled, as Grandfather Thunder punishes her for the ultimate transgression—getting caught. 
 
-**==> picture [289 x 167] intentionally omitted <==**
-
+**
 99 
 
 Chapter three: tribes and Fera 
@@ -3199,16 +3134,14 @@ Although the Silent Striders as well known for their connections to the lore and
 
 Much like the Homid-born of their tribe, Lupus Silent Striders come from many different regions around the world. The tribe’s most populous bloodlines of Lupus 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 ## **The Curse of Sutekh** 
 
 As the vampire Sutekh fell to the hands of the Silent Striders, he issued one last curse against them: “By the names I have spoken, O Lupines, I curse you. I place my mark upon you, that you shall be forever severed from thy dead fathers and mothers. I damn you with my touch, that never again shall you rest in the lands of thy people. May the names of your ancestors be forgotten, and may their ghosts fade from hunger in the Duat. As I was cast out, so then shall you be exiled, voiceless and lost forevermore.” 
 
 The words of this curse are forever imprinted in the minds and soul of each Silent Strider. She carries this burden on her person, knowing that until the curse has ended, she will never find peace within the homelands of her ancestors. 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 101 
 
 Chapter three: tribes and Fera 
@@ -3269,8 +3202,7 @@ Silent Strider camps tend to be broad societies with few levels to their organiz
 
 The Harbingers are heralds of prophecy, usually delivered in the form of dire warnings to septs on the eve of terrible events. Foolish is the sept that dismisses such warnings as mere doom-saying. Harbingers seek out and meticulously preserve records of visions and prophecies of all kinds. Each Harbinger is constantly on the lookout for a catalog of signs that might indicate the imminence of a particular prophecy. This camp is home to some of the tribe’s most renowned warriors. These Garou look danger in the teeth and confront it, always seeking to warn others as they rush headlong towards the enemy. An old Harbinger is often one of the most cunning fighters a Garou will ever meet. 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 ## **Remembrance Names** 
 
 Most Silent Striders adopt an Egyptian name or a Greek translation of an Egyptian name. These _remembrance names_ are selected after one’s Rite of Passage to venerate particular ancestors and maintain a cultural link to the tribe’s long-lost homeland. This practice reminds the tribe of what it has lost and what it seeks to recover, as well as helping to foster a strong sense of tribal tradition. 
@@ -3279,8 +3211,7 @@ Some Egyptian names are never selected as remembrance names. These include the n
 
 In addition to remembrance names, Silent Striders frequently have more conventional _deed names_ , either personally chosen or thrust upon them by general acclaim. It is common for tribe members to prefer one name for everyday use and reserve the other for ceremonial activities. Which name is used for which activity varies from Garou to Garou. 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 103 
 
 Chapter three: tribes and Fera 
@@ -3305,32 +3236,28 @@ Those among the Silent Striders who boast pure breed are often described as simi
 
 All Silent Striders suffer from the Curse of Sutekh: the loss of connection to their ancestor spirits and a supernaturally inflicted compulsion to wander. Silent Striders cannot possess any dots of the Ancestors background, and they pay an increased cost for the Territory background. A Silent Strider pays an XP cost calculated at new level x3 for the Territory background, instead of new level x2. This cost cannot be reduced. 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 ## **Eaters of the Dead** 
 
 While most camps have open membership, or are “open secrets” within the tribe, there are a handful of truly secretive groups among the Silent Striders. The most infamous of these is the Eaters of the Dead. 
 
 The Eaters of the Dead once held a revered place in society as ritualists who, through the gruesome practice of eating a subject’s brain, could preserve the knowledge of the recently deceased. Although they never operated openly, the Eaters of the Dead went fully underground when it was discovered that the Rite of Dormant Wisdom was tainted with the touch of the Wyrm. In their exile, the society’s members have taken to consuming the brains of vampires and even fouler creatures, becoming monstrous mockeries of their former selves, now corrupted by knowledge best left alone. 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
 104 
 
 Alona McCreary (Order #15311115) 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 ## **Outposts** 
 
 Some Silent Striders have an easier time putting down roots than others, building strong local relationships or finding other reasons not to wander. By far the most common and prestigious motive for a Silent Strider to settle down is to maintain an outpost. 
 
 Silent Striders often travel by fluctuating routes and circuits. It is impossible for each tribe member to maintain a safe house near every important stopover. If a Silent Strider manages to suppress her wanderlust long enough to build a safe haven, reflected by purchasing dots of the Territory background, she is expected to maintain this valuable resource and share it with the tribe. Other Silent Striders will come to the outpost for a few nights to find lodging, food, and other resources for their journeys. A Silent Strider with the Territory background who eschews such visitors, or who does not provide the expected resources, will often develop a negative reputation within the tribe. 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 ## Gifts 
 
 Silent Striders gifts can be found in **Chapter Five: Gifts** beginning on page 233. 
@@ -3339,8 +3266,7 @@ Silent Striders gifts can be found in **Chapter Five: Gifts** beginning on page 
 
 Silent Striders merits can be found in **Chapter Six: Merits and Flaws** beginning on page 308. 
 
-**==> picture [361 x 86] intentionally omitted <==**
-
+**
 105 
 
 Chapter three: tribes and Fera 
@@ -3463,14 +3389,12 @@ Silver Fang gifts can be found in **Chapter Five: Gifts** beginning on page 236.
 
 Silver Fang merits can be found in **Chapter Six: Merits and Flaws** beginning on page 308. 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 ## **Madness** 
 
 Popular misconception says that members of the Silver Fangs tribe are “mad”—though rarely is such said within hearing of the Silver Fangs themselves. The burden of their intense focus to master a specific field, fighting style, or weapon; and their relentless quest for personal perfection affects their attitudes and socialization. These issues make them more prone to the Harano, or spirit-sorrow, and can make them hair-triggered in battle or in their personal life. Nevertheless, Silver Fangs see overcoming these small instabilities as a natural part of life. They are simply another test to prove a Silver Fang is worthy of the mantle of leadership among the Garou. 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 109 
 
 Chapter three: tribes and Fera 
@@ -3621,14 +3545,12 @@ Stargazers merits can be found in **Chapter Six: Merits and Flaws** beginning on
 
 In her Lupus form, a Stargazer tends to be light and lean, as opposed to the fierce muscular build of her brethren, often colored a brindled gray and black. It is not uncommon for Stargazers to be born with two different colored eyes— one the brilliant green of the Tibetan Black Wolf, and the other gray or blue. These Stargazers are considered blessed among members of the tribe, believed to carry a mark of favor from Chimera. 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 ## **The Middle Way** 
 
 Members of the Stargazer tribe hold themselves close to the path of the Middle Way. Their beliefs are influenced by the Noble Eightfold Path of Buddha, and serve as a guide to achieving _Arhatship_ , or _nirvana_ . Although some Stargazers feel these beliefs are too archaic for the modern world, they all strive towards achieving the same balance and completion of self that the path teaches. Through this, they believe they will find deeper understanding of the self and the inner balance that is integral to the tribe. For Garou who find themselves thrust into a world at war, this is often a difficult path to walk. One must maintain her personal balance and harmony while attempting to affect the world around her. 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
 114 
@@ -3671,14 +3593,12 @@ Chapter three: tribes and Fera
 
 Alona McCreary (Order #15311115) 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 ## **The Concordat of Stars and the Uktena** 
 
 Opinion about the Uktena’s surprising entry into the Concordat of Stars is sharply divided. Many believe that the Uktena have simply succumbed to their insatiable hunger for knowledge and that somehow the Shadow Lords have offered the Uktena something they could not refuse. The Wendigo recall well the story of the Three Brothers who first visited the Pure Lands and the unbreakable patience of the Uktena. Their faith in Elder Brother is cracked, but intact. Time will tell if the Uktena have their own agenda; but for now, they aren’t talking. The only thing that everyone agrees on is that it’s impossible to know the mind of the Uktena tribe. 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 to replace the Wyld in their hearts, but thanks to their slow, methodical acceptance of technology, the Uktena have begun to organize and coordinate strikes against the Wyrm’s strongholds across the world. 
 
 Despite the tribe’s new openness, Elder Brother remains as mysterious as ever, clinging to secrets and exhibiting a hunger for knowledge. The time will soon come when all is revealed, and the tribe’s store of secrets will save the world or damn it. 
@@ -3697,14 +3617,12 @@ in the American Southwest, the Mesoamerican regions, and South America. The rema
 
 The Lupus minority remain a respected and vital part of the Uktena community, reminding the Homids of the spirituality of the Wyld and to roam the wilderness to seek answers. They have started mating with a mix of wolf breeds, producing a surprising number of new strains of wolf kinfolk, from the Maned Wolves from South America to the Great Planes Wolves. Uktena Lupus feel a strong kinship with the Wyld and tend to be the ones who strive to protect the last few refuges for their kinfolks’ habitats. They spend a good deal of their efforts exploring those areas, hoping to find fertile ground for new shard caerns. 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 ## **Diaspora: The Scattering of Seeds** 
 
 Many Native American Uktena were removed from their homelands, scattered and sequestered across the United States. Because of this forced removal from their sacred lands, they share a collective sense of loss with other communities that have undergone a diaspora. Jews from the Middle East, Africans forced into trans-Atlantic slavery, and South Asians involved in the coolie trade have been decimated, marginalized, and cast out from their homelands, too. The shapeshifters from these cultures found willing allies in the Uktena tribe, sharing their esoteric knowledge and traditions. The Uktena are unified in their fight against the Wyrm. 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
 116 
@@ -4079,8 +3997,7 @@ Clan leaders are often female; however, there are several clans led by male and 
 
 Nearly all Ajaba gravitate to a clan, although clan membership is often fluid and fluctuates regularly. Ajaba are intensely pack-centric creatures, and they are rarely found operating alone. At times, a stray Ajaba will join 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 ## **The Aftermath of the Endless Storm** 
 
 Since the day that Gaia created the Ajaba, they have found themselves at odds with one another and with other Changing Breeds. In jockeying for power and territory, the Ajaba came into conflict with the Bastet who roamed the Serengeti at their sides. As the Ajaba struggled to maintain peace within their clans, tensions arose with other shapeshifters, particularly the lions that shared many common lands with the Ajaba. This tension continued to simmer beneath the surface, at times resulting in open skirmishes that were always quickly stamped out, until the day that Black Tooth rose to prominence. With his ascension within the Simba, the uneasy feelings between the breeds exploded into violent confrontations, in time evolving into all-out war. 
@@ -4091,8 +4008,7 @@ The death of Black Tooth has offered some reprieve, but such wounds are slow to 
 
 In recent years, the remaining Ajaba have worked to repair relationships with the other Bastet. Today, they are able to work side by side with many of the Bastet breeds, cooperating to protect their native lands. Although there is a tentative peace with the Simba, many Ajaba have sworn that someday, the Simba will bleed as the Ajaba once did. 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
 128 
@@ -4263,8 +4179,7 @@ Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE
 
 Alona McCreary (Order #15311115) 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 ## **The Laws of Ananasa** 
 
 - Obey the Mother-Queen in All Things 
@@ -4285,8 +4200,7 @@ Alona McCreary (Order #15311115)
 
 - Worship None but Ananasa 
 
-**==> picture [247 x 69] intentionally omitted <==**
-
+**
 ## **Wyld Faction: Kumoti** 
 
 Those who serve the Wyld believe change must occur in order to restore the Triat. They fight for it ferociously, willing to do what they must in order to defend and advance its cause. Their personalities are always evolving, taking on new facets and demeanors as needed. They are the most emotional and erratic of their kind, and the exploration of their shifting desires brings them into contact with other Fera and Garou more often than their fellow werespiders. They choose professions through which they can bring change, such as geneticists, foresters, and black hat hackers. 
@@ -4395,16 +4309,14 @@ Chapter three: tribes and Fera
 
 Alona McCreary (Order #15311115) 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 ## **Economy of Blood** 
 
 While they do not have Rage, Ananasi instead use their blood to fuel their abilities. An Ananasi has a maximum Blood Pool of 15. They can regain this blood by feeding on living mammals, either by making a successful bite attack or by purchasing the Herd background from Mind’s Eye Theatre: Vampire The Masquerade at regular cost. (For more information about the Herd background, see Mind’s Eye Theatre: Vampire The Masquerade, Chapter Three: Character Creation, page 102.) 
 
 An Ananasi can spend points of Blood at a rate of 3 per round. Ananasi can spend 1 point of Blood to gain an extra action. They can also spend 1 point of Blood to deal an additional point of damage of the appropriate type for their attack, and this point of Blood can be spent immediately following on a successful opposed challenge. Ananasi can spend 1 point of blood to heal aggravated damage. Ananasi may use Blood points as a substitute for Gnosis when fueling gifts, and must pay the gift’s usual costs. If an Ananasi uses a gift beyond her Rank, she must spend an additional point of Blood. 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 ## **Form Benefit** 
 
 An Ananasi in her Crawlering form is able to squeeze herself through small cracks. Ananasi in this form cannot initiate opposed challenges against characters, and all damage done to the Crawlerlings is always reduced to 1 for each incoming attack. 
@@ -4467,8 +4379,7 @@ Alona McCreary (Order #15311115)
 
 Alona McCreary (Order #15311115) 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 ## **The Nine Breeds of the Bastet** 
 
 The whole of the Bastet are divided into different breeds of great cats. Each has their own quirks and beliefs, but all are Bastet at their core. 
@@ -4491,8 +4402,7 @@ The _Simba_ , the lion Lords of Sunlight, have their primary territory in Africa
 
 The cheetah-folk of the _Swara_ are the most spiritually inclined of all Bastet. They see their role as custodians of the earth, and the secrets they seek most are those that will help them defeat threats, both currently present and those that may be yet to come. 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 to hide. As such, many Bastet Homids are gifted hackers, spies, and diplomats. They show the world a side that is on one hand boisterous, charming and loud when an occasion demands, but when necessary, they can just as easily be quick and silent shadows that go unseen and unheard when on the hunt. 
 
 ## **Feline** 
@@ -4701,8 +4611,7 @@ Chapter three: tribes and Fera
 
 Alona McCreary (Order #15311115) 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 ## **Raven’s Laws** 
 
 - There are no secrets; everything should be revealed. 
@@ -4727,8 +4636,7 @@ Alona McCreary (Order #15311115)
 
 - Laugh, or the horror of this world will keep you in tears. 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 Gray Hats are experts on different types of networks, finding new ways to infiltrate them and unearth what they have to offer. They use this information in various ways: as blackmail, as evidence, and sometimes just to collect it. They enjoy the challenge of breaking passwords and finding the darkest places on the Internet, sometimes relishing the pursuit more than its results. 
 
 ## Appearance 
@@ -4823,8 +4731,7 @@ Corax gifts can be found in **Chapter Five: Gifts** beginning on page 248.
 
 Corax merits can be found in **Chapter Six: Merits and Flaws** beginning on page 312. 
 
-**==> picture [86 x 148] intentionally omitted <==**
-
+**
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
 146 
@@ -4973,8 +4880,7 @@ There are no bonuses associated with Homid form, although Homid-breed characters
 
 A Gurahl between her Homid and Crinos forms is said to be in _Arthren_ form, the near-man. A Gurahl in this form is taller and significantly more muscular than a typical human, with the physique a strongman or professional wrestler. Thick hair covers her form, making for a truly bestial appearance, resembling the Sasquatch of myth. 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 ## **The Code of Ursa** 
 
 The core tenets of the Gurahl are defined in the Code of Ursa. All Gurahl are taught the code as part of their Gallivant, and they work dutifully to uphold it. 
@@ -5001,8 +4907,7 @@ The core tenets of the Gurahl are defined in the Code of Ursa. All Gurahl are ta
 
 - Breed Wisely 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 Chapter three: tribes and Fera 
 
 151 
@@ -5171,8 +5076,7 @@ Chapter three: tribes and Fera
 
 Alona McCreary (Order #15311115) 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 ## **The Laws of Heaven** 
 
 Given to Bai Mianxi by Luna, the Heavenly Mandates are the very foundation of Kitsune society. The Nine-Tails believe that these laws are all that keeps them sane in their long years, and these rules hold them together in a world of superior predators and constant threats. 
@@ -5195,8 +5099,7 @@ Given to Bai Mianxi by Luna, the Heavenly Mandates are the very foundation of Ki
 
 - I free you to do anything else necessary to achieve our goals. 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 they’ve earned over lifetimes, but as individuals, they are too interested in their own affairs to stay rooted. The Age of Apocalypse has awakened more Nine-Tails across the world, and this latest generation rarely seeks direction from the established camps. The older Kitsune try not to hold too strong a grudge, for they remember the rebellious spark of their own youths. 
 
 ## **Camps** 
@@ -5387,8 +5290,7 @@ Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE
 
 Alona McCreary (Order #15311115) 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 ## **Laws of the Nuwisha** 
 
 Coyote has very few rules for his children, but he expects them to follow the few guidelines he has set forth—usually. Those werecoyotes who cannot abide by the rules often find themselves at the mercy of their fellow Nuwisha, if not Coyote himself. Of course, Coyote realizes that sometimes, rules are made to be broken. 
@@ -5405,8 +5307,7 @@ Coyote has very few rules for his children, but he expects them to follow the fe
 
 - Think, Then act 
 
-**==> picture [247 x 80] intentionally omitted <==**
-
+**
 retribution, Luna denied all of Coyote’s children her blessings. Because of this, all of Coyote’s children are Ragabash, as their births are not blessed by Luna. Of course, this auspice suits the Nuwisha just fine, as they are tricksters and teachers, following closely in the footsteps of their totem. Although Nuwisha rarely hold steady employment of any kind, they are most often found as carnival workers, roughnecks, migrant workers, or traveling salesmen. 
 
 allowed to partake in the event. The exact date and location of the festival is held in the strictest confidence, though it always takes place in one of the breed’s umbral hidey-holes, allowing the Umbral Dancers to attend. 
@@ -5421,14 +5322,12 @@ The Nuwisha lead largely solitary lives, content to roam the globe and Umbra wit
 
 The most striking feature of any Nuwisha, and the one that they all share, is their resemblance to Coyote through laughter and smile. Many Nuwisha seem to carry a cheerful expression wherever they go; although this smile often turns sinister when they are angry or upset. In their Latrani form, they are identical to any other coyote, with thick coats and bushy tails. Although a Nuwisha’s howl differs slightly from that of her Garou brethren, she is able to easily communicate with coyotes and wolves alike. 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 ## **The Festival** 
 
 Once a year, all Nuwisha are called to gather for a festival. This event is a time for sharing news and planning the next great trick on the Wyrm. Explorers share knowledge of dangerous areas found in the Umbra, and Nuwisha who are in need of assistance come forth to make their plea. When the business is completed, revelry reigns supreme, as the breed comes together as one large family to celebrate their lives. Festival rules prohibit Nuwisha from harming one another; this is a time for all feuds to be set to the side. 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 161 
 
 Chapter three: tribes and Fera 
@@ -5495,8 +5394,7 @@ Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE
 
 Alona McCreary (Order #15311115) 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 ## **The North American Coywolf** 
 
 The last century has seen the rise of a new predator in the Northeastern United States. This creature appears to have all of the intelligence and curiosity of a coyote, combined with the resilience and bulk of the eastern wolf. The number of coywolves is on the rise, and they have regularly been spotted in heavily populated urban areas, including several small packs roaming through New York City. 
@@ -5505,8 +5403,7 @@ While most believe these creatures occur naturally, the Garou have discovered th
 
 These genetic experiments have been used to infiltrate urban areas and even attack unsuspecting humans, although the true purpose behind their creation is yet unknown. Nuwisha and Garou alike hunt these creatures down and destroy them when they are able. 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 ## **Latrani** 
 
 A Nuwisha in her coyote form is said to be wearing her _Latrani_ skin. Nuwisha in Latrani form are visually indistinguishable from normal coyotes, but based on an individual’s native region, her coloration may vary. While this form mirrors the lean, cunning coyote, it lacks the strength and flexibility of the humanoid forms. Nuwisha in their Latrani form come in a wide range of colors, though their fur tends to be light gray, red, or tawny. As with coyotes, those Nuwisha from higher elevations tend to have more black and gray shades, while their desertdwelling counterparts are often light gray or white. Since this form lacks opposable digits, Nuwisha in Latrani form cannot use weapons or most technological devices. 
@@ -5557,14 +5454,12 @@ Quietly, the Ratkin found the outlands of human civilization, made their Nests, 
 
 The Ratkin quietly celebrated the werewolves’ recent setbacks within the Garou Nation, and the wererats quickly took advantage of the new alliance between the Garou and the Fera to protect their Nests and gain access to new shard caerns. Despite these gains, the Ratkin have not yet forgotten the memory of betrayal at Field of Nettles. Most consider the concept of the Concordat of Stars as nonsense and further evidence that the werewolves have turned their back on their real purpose. 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 ## **The Compact of the Dark** 
 
 The Ratkin share the undercities of humanity with the Bone Gnawers and a strange clan of hideous vampires known as the Nosferatu. Hundreds of years ago, they made an agreement to avoid conflict and to share information. This secret Compact of the Dark spread quickly across the world and has been honored, although recently it has strained. Tensions between the Bone Gnawers and the Ratkin over the Concordat of Stars have muted their long friendship. Likewise, the Nosferatu seem to be suffering some sort of internal political fight that threatens to endanger the agreement. For the moment, the exchange of information is too important to abandon despite the danger, but its future is in doubt. 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
 164 
@@ -5637,8 +5532,7 @@ The Munchmausen claim to hail from distant, strange realms, far within the Deep 
 
 Paranoid conspiracy theorists and radical saboteurs who delight in mayhem and destruction, the Twitchers believe that the best way to fight for the Wyld is to become the Wyld. Twitchers hate authority. They reject all laws and rules, even considering 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 ## **The Litany of Survival** 
 
 The Ratkin returned to the Material Realm with a new litany to ensure they would survive until the Age of the Rat. The Knife Skulkers enforce these laws through intimidation, teeth, and blades, if required. 
@@ -5661,8 +5555,7 @@ The Ratkin returned to the Material Realm with a new litany to ensure they would
 
 - When someone is responsible for injustice, make sure someone pays. 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
 166 
@@ -5967,8 +5860,7 @@ Alona McCreary (Order #15311115)
 
 Alona McCreary (Order #15311115) 
 
-**==> picture [299 x 198] intentionally omitted <==**
-
+**
 ## _“In a time of destruction, create something.”_ 
 
 — Maxine Hong Kingston 
@@ -6259,16 +6151,14 @@ Once per turn, when changing into Homid or Glabro form, a Homid-breed character 
 
 Garou who are the children of wolves are members of the _Lupus_ breed. Typically born in the wild and raised among a pack of animals, Lupus usually know how to hunt and survive in the wilderness. They show dominance in their behavior and easily understand a hierarchical structure, but they find nuanced social interactions confusing and strange. Technology, language, and culture are difficult for such a werewolf to understand, and they often see the world in simplistic (though not necessarily primitive) terms. 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 ## **Unusual Origins** 
 
 Occasionally, a werewolf is born to non-werewolf parents, without any clear lineage to the werewolf tribes. With the devastation and massive casualties of Garou and kinfolk during the onset of the Age of Apocalypse, such “strays” or _Lost Cubs,_ have become more common. Lineage records were lost, kinfolk were abandoned, and many tribes lost track of relatives and potential kinfolk lines. 
 
 Further, many Theurges speculate that the natural balance is attempting to restore itself, spontaneously evolving werewolf genetics in otherwise normal wolves and humans. Sometimes this potential remains dormant throughout an individual’s life, unless a werewolf bites her, triggering the First Change. (For more information, see **Chapter Eight: Dramatic Systems, The Bite** , page 365.) 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
 180 
@@ -6543,14 +6433,12 @@ The three Mental focuses are _Perception, Intelligence,_ and _Wits_ . Mental pow
 
 When making a challenge that relates to your character’s Mental focus and is not used in conjunction with a supernatural power, the Storyteller may choose to award you a +3 bonus to that challenge. Alternately, when your character is attempting a mundane focus-related action that requires a significant investment of time, such as translating an ancient text into English, your Storyteller may halve the time needed for your character to perform the action. 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 ## **Optional Rule** 
 
 Storytellers may allow new or inexperienced players to change their focuses within the first three game sessions, if they feel that the player honestly made a mistake or misunderstood the system. 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 185 
 
 Chapter Four: CharaCter Creation 
@@ -7085,8 +6973,7 @@ You are a student, the lowest rung of Garou society (other than a Cub). At this 
 
 You are a general member of Garou society. Werewolves who wish to contribute, but don’t aspire to leadership (or greatness), often do not advance beyond the Rank 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 ## **Rank Chart** 
 
 |||||||||
@@ -7190,14 +7077,12 @@ Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE
 
 Alona McCreary (Order #15311115) 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 ## **Overtaxing Your Resources** 
 
 An individual with the Resources background can overtax her Resources, allowing her to spend more than her allotted amount of money in a given month. A character who overtaxes her Resources can spend up to twice the listed amount of money in a single month, but doing so taxes her investments and requires time to recover fiscally. When a character overtaxes her Resources, her Resources background reduces by 2 dots (to a minimum of 0) for the next six game sessions or three months. whichever is longer. The character can cut this recovery time in half by spending 3 downtime actions taking a personal interest in the recovery of her financial investments. 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 ••••• **Extremely Wealthy** : You are the model others wish to emulate, at least in popular opinion. You have vast and widely distributed assets, perhaps tied to the fates of nations, each managed by large, specialized staffs and supported with connections to every level of society through a region. Corporations and governments sometimes come to you to buy into stocks or bond programs. If there is something you want, and it is possible to buy, you can purchase it without the cost affecting your bottom line. At this level of wealth, the banks, the IRS, and other agencies closely monitor how you convert your money to cash. You can easily spend up to $250,000 in liquid cash per month without attracting the wrong kind of attention. 
 
 ## Rites 
@@ -7274,14 +7159,12 @@ Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE
 
 Alona McCreary (Order #15311115) 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 ## **Fera** 
 
 Fera may join packs of werewolves, and they can benefit from the Totem background. While some Fera are solitary, certain groups may form packs of their own.  Like Garou, Fera  contribute to a pack’s diversity according to their auspices. 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 ## **Pack Diversity** 
 
 ## Totem 
@@ -7397,28 +7280,24 @@ If there are more available bonuses than you have dots in the Totem background, 
 
 If you wish to change your selected bonuses, or if you wish to take advantage of a new bonus that your totem has made available, you must spend a downtime action communing with the spirits. 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 ## **New Pack Members** 
 
 Adding new pack members involves taking the inductee on a Simple Umbral Quest to meet your totem or one of its minions. Once your totem has acknowledged a new member of your pack, she gains access to totem bonuses, assuming she possesses dots of the Totem background. If a new member increases your pack’s diversity, allowing the totem to offer another bonus, players should work with the Storyteller to determine which bonus is offered after the introductions are made. 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 203 
 
 Chapter Four: CharaCter Creation 
 
 Alona McCreary (Order #15311115) 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 ## **Personal Totems** 
 
 The bond of pack is central to the life of werewolves. While some Garou may develop a close spiritual resonance with another spirit, this alliance pales in comparison to the bond formed when a spirit empowers a pack. While it never hurts to give praise and respect to spiritual allies, characters cannot possess personal totems, and buying dots of the Totem background confers no mechanical benefits if not bonded to a pack. 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 ## **Pack Departure** 
 
 Should a member of your pack leave the pack, either voluntarily or by dying, the pack’s number of available bonuses may decrease, depending on the diversity of the remaining pack members. This adjustment occurs at the beginning of the next day after the pack member leaves or dies. When this event occurs, the group must collectively select which bonus to remove. 
@@ -7567,8 +7446,7 @@ Alona McCreary (Order #15311115)
 
 Alona McCreary (Order #15311115) 
 
-**==> picture [215 x 131] intentionally omitted <==**
-
+**
 _Gifts_ are mystic powers the spirits teach to shapeshifters for the purpose of protecting Gaia and fulfilling their auspice and breed roles. Gifts are fueled by _Gnosis_ , an energy within the soul of a shapeshifter. Gifts have the power to drastically affect the course of battle by commanding the natural elements, summoning spiritual allies, or further enhancing already-potent natural abilities. Shapeshifters consider gifts sacred teachings from the spirits, and werewolves do not look kindly on any who abuse these powers; doing so is a sure way to earn the spirits’ ire. A young Cliath may only have a few such powers at her command, but as she gains experience fighting the Wyrm and climbs in Rank, she may learn a fearsome array of potent gifts. 
 
 Gifts are measured by their _level_ . Level 1 gifts are the most modest powers, and gifts increase in strength, potency, and utility up to level 5. 
@@ -7682,12 +7560,8 @@ _Persephone, the Homid Galliard Black Fury, has decided that she wishes to purch
 
 - The XP cost of a new out-of-affinity gift is the gift’s level x6 XP. 
 
-**==> picture [307 x 354] intentionally omitted <==**
-
-**==> picture [101 x 17] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-Chapter Five: GiFts<br>**----- End of picture text -----**<br>
+**
+**
 
 211 
 
@@ -7739,10 +7613,7 @@ Alona McCreary (Order #15311115)
 
 **Homid Lupus** 
 
-**==> picture [65 x 60] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-Metis<br>**----- End of picture text -----**<br>
+**
 
 Fight or Flight (p. 265) Predator’s Insight (p. 266) Razor Claws (p. 267) Resist Pain (p. 267) Vie for Dominance (p. 270) 
 
@@ -7816,16 +7687,14 @@ Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE
 
 Alona McCreary (Order #15311115) 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 ## **Fera and Auspice Affinity Gifts** 
 
 All gifts function identically for both Garou and Fera. Although an individual power may refer to Garou in its rules text, all Fera can use general gifts without penalty. Even those gifts that require a character to howl can be used without issue; Fera characters may substitute an assertive growl, a mournful yip, or a terrifying roar, depending on the behavior most appropriate for their species. 
 
 If a gift requires a character to calculate her dots of the Rank background, both Garou and Fera characters apply their dots in the Rank background equally, regardless of what their feelings about the other’s worth may be. 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 ## Physical Attacks 
 
 Several gifts require making a successful Physical attack against your opponent in order for that gift to function. Any attack, whether brawl, melee, thrown, or firearms, can meet this criteria; however, unless otherwise stated, only one gift’s power or a single combat maneuver can be used in conjunction with a single attack. An attack that includes a combat maneuver cannot be used to meet a gift’s criteria unless otherwise stated in the description of the specific gift or combat maneuver. 
@@ -12384,8 +12253,7 @@ Alona McCreary (Order #15311115)
 
 Alona McCreary (Order #15311115) 
 
-**==> picture [335 x 191] intentionally omitted <==**
-
+**
 ## Overview 
 
 Merits are special advantages that help distinguish a character and show the effects of her history and ongoing story. Flaws are disadvantages that pose challenges to a character’s nightly existence and provide a player a few extra experience points (XP) to spend elsewhere on her sheet. These qualities allow you to customize your character by specifying particular advantages and disadvantages that give her added depth and personality. Merits and flaws are optional. If you don’t see any that suit your character, you can create your character and play without adding any to your sheet. 
@@ -12944,10 +12812,7 @@ Chapter Six: MeritS and FlawS
 
 Alona McCreary (Order #15311115) 
 
-**==> picture [370 x 14] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-314 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE<br>**----- End of picture text -----**<br>
+**
 
 Alona McCreary (Order #15311115) 
 
@@ -13822,8 +13687,7 @@ Alona McCreary (Order #15311115)
 
 Alona McCreary (Order #15311115) 
 
-**==> picture [380 x 137] intentionally omitted <==**
-
+**
 ## _“The golden rule is that there are no golden rules.”_ 
 
 — George Bernard Shaw 
@@ -14272,14 +14136,12 @@ Once all Rage rounds have been resolved, the Storyteller begins a new turn. This
 
 You can only take Physical actions during a Rage round. You can move or attack, but you cannot spend Gnosis or engage in any Mental or Social challenges. You can use a fetish during Rage rounds if it has already been activated and if it does not require a Mental or Social challenge to use. 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 ## **Surprise Example** 
 
 You start a combat by using your simple action to draw a gun. Later, when your initiative comes up, you use your standard action to shoot. If you were holding the weapon before the combat started, you could use your standard action to fire, starting the combat, and when your initiative comes up, you could use your simple action to move behind cover. 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 341 
 
 Chapter Seven: Core SyStemS 
@@ -14488,12 +14350,9 @@ As noted previously, combat turns are broken down into individual rounds, beginn
 
 However, during each round, a character can only be targeted by a limited number of attacks: 
 
-**==> picture [80 x 8] intentionally omitted <==**
-
-**==> picture [85 x 8] intentionally omitted <==**
-
-**==> picture [117 x 10] intentionally omitted <==**
-
+**
+**
+**
 This limitation on the number of attacks within a single round applies even if a particular attack fails. If a character is targeted by, but successfully resists, a Social attack, that character cannot be the target of another Social attack until the next round. 
 
 During a mass combat turn that contains three rounds, a character could be targeted in the following ways: 
@@ -14588,14 +14447,12 @@ In some circumstances, both an attacking character and a defending character may
 
 3. The second attacker spends her standard action and describes the nature of her collaboration. The Storyteller agrees the second attacker’s action is possible (and useful) and grants the attackers a free combat maneuver to add to the attack. The two attackers decide which combat maneuver to apply. 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 ## **Stock NPCs and Mass Combat** 
 
 On occasion, Stock NPCs become involved in mass combat scenes. Remember that Stock NPCs are background characters. While they can be useful, they should never be given as much attention or allowed as many options for drama and glory as an actual player-character. When a Stock NPC uses the Assist Attacker tactic, she provides a +1 wild card bonus to the attacker’s Physical attack. When a Stock NPC uses the Assist Defender tactic, she provides a +1 wild card bonus to the defender’s Dodge skill defense test pool. Like a normal use of mass combat tactics, no action or defense can be modified by more than one mass combat tactic. If a player-character and a Stock NPC wish to modify the same attack or defense, the Storyteller should always favor the player-character over the Stock NPC. 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 348 
 
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
@@ -14824,8 +14681,7 @@ _During a pack raid into a Pentex-owned skyscraper, Kevin orders a halt when Raq
 
 _At the end of a particularly harrowing combat scene, the Storyteller announces that everyone involved regains 1 point of spent Willpower. This act allows the Storyteller to reward her players and make sure that no one leaves the fight with all of their Willpower expended (as everyone will have at least 1 point), but leaves room for the players to reward each other through roleplay later in the evening. If the Storyteller feels that there won’t be an opportunity to roleplay in the near future, she might decide to refresh more (or all) Willpower spent during the combat._ 
 
-**==> picture [297 x 186] intentionally omitted <==**
-
+**
 353 
 
 Chapter Seven: Core SyStemS 
@@ -14936,8 +14792,7 @@ Alona McCreary (Order #15311115)
 
 Alona McCreary (Order #15311115) 
 
-**==> picture [294 x 201] intentionally omitted <==**
-
+**
 ## _“We know what we are, but know not what we may be.”_ 
 
 — William Shakespeare, Hamlet, Act IV, Scene 5 
@@ -15010,16 +14865,14 @@ Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE
 
 Alona McCreary (Order #15311115) 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 ## **Safely Carrying Silver** 
 
 Players should not be allowed to avoid the downsides of carrying silver by setting it down every once in a while. If a character sets down a silver object and then picks it up a short while later, the clock is not reset. To reset the 10-minute clock, a Garou must go without coming within six inches of silver for an hour. 
 
 The only way to safely carry silver is to hold it more than six inches away from your body. The most common way to safely carry silver weapons and ammunition is in a bag (held well away from your body). It is also possible to safely carry a silver item by wrapping it extensively. No matter how a Garou chooses to protect herself from silver, drawing such a weapon is more complicated than drawing a weapon that is simply sheathed. Drawing a silver weapon that is stored safely requires a standard action, rather than the simple action normally required to draw a regular weapon. 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 a shapeshifter, giving her access to her ancestral legacy. Garou are not created, but born with the potential to become shapeshifters written into their souls. Even before they change, they dream of places they’ve never seen but to which they feel an inexplicable attraction. Those with known potential to become werewolves are closely guarded within their communities and educated, so they can understand what their future responsibilities will be. 
 
 As humans and wolves approach maturity, or later for those who go through a late change, their dreams become more vivid, as the places and people that compose the dreamscape seem almost familiar. The spirits themselves seem to speak them, whispering a constant chant urging the young human or wolf to slough off her skin, to pay no heed to the boundaries of flesh, and to become something more. Their temperament becomes more unpredictable as their mood swings become uncontrollable, often forcing them into conflict with their families or packs. 
@@ -15070,14 +14923,12 @@ The following are the characteristics of a kinfolk:
 
 - While kinfolk are considered part of Garou society, they cannot hold Rank, nor can they formally join a 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 ## **Creating Fera Kinfolk, Cubs, and Lost Cubs** 
 
 Each of the Changing Breeds have unique names and roles for their kinfolk, Cubs, and Lost Cubs, but mechanically they are created the same as their Garou counterparts. Kinfolk, Cubs, and Lost Cub characters require the same rarity merit as their parent breed would. For example, a Bastet kinfolk, Cub, or Lost Cub requires the Rare Character Merit (4 points) if played in the Garou Nation setting, because Bastet are considered a rare breed. For more information, see **Chapter Six: Merits and Flaws: Rarity Merits** , page 302. 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
 362 
@@ -15164,32 +15015,28 @@ As the tribes clashed over the best course of action, yet another issue caused t
 
 The answer came to them first in rumors that spread through the Garou Nation—an inordinate number of newly changed werewolves, far older than typical, were appearing in the 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 ## **Cubs as Player-characters** 
 
 Cubs are ideal character types for players who are new to **Werewolf: the Apocalypse** . As new shapeshifters, Cubs are considered to still be training in the ways of werewolf society. Even when they make mistakes, the consequences are frequently tailored as lessons designed to teach the Cub more about the reasons for her failure and how to prevent similar mistakes in the future. Storytellers should let Cub characters challenge for Rank when the player feels ready to move into more experienced roles. 
 
 Create Cub characters in the same fashion as a regular Garou, but without any dots in the Rank background. To play a Cub, you must purchase all required qualities for your Garou tribe or Fera breed within your Storyteller’s setting, including the purchase of rarity merits. 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
 364 
 
 Alona McCreary (Order #15311115) 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 ## **Lost Cubs as Player-characters** 
 
 Lost Cubs are ideal character types for players who are new to **Werewolf: the Apocalypse** . As new shapeshifters who entered the supernatural world without the benefits of other Garou, Lost Cubs are still training in the ways of werewolf society. Even when they make mistakes, the consequences are frequently tailored as lessons designed to teach the Lost Cub more about the reasons for her failure and how to prevent similar mistakes in the future. Storytellers should let Lost Cub characters challenge for Rank when the player feels ready to move into more experienced roles. 
 
 A Lost Cub is created in the same fashion as a regular Garou character, but they cannot purchase dots in the Rank background during character creation. To play a Lost Cub, you must purchase all required qualities for your Garou tribe or Fera breed within your Storyteller’s setting, including the purchase of rarity merits. A Lost Cub cannot purchase any merits that specifically pertain to being part of the Garou Nation. Your Storyteller is the final arbiter of which merits and flaws are or are not appropriate for a Lost Cub. 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 cities and areas surrounding septs. Further investigation of these nearly feral Cubs resulted in learning that they were attacked shortly before their First Change overtook them. Otherwise innocent bystanders in the apocalyptic urban warzone found themselves unceremoniously inducted into a world they never imagined. Rather than immediately killing these feral Cubs, many Theurges worked to bring them from their frenzy, discovering that beneath their rage, each was someone much like any other Garou Cub. 
 
 The discovery of these creatures, termed _Lost Cubs_ by the Theurges studying them, was met with a great deal of trepidation in the Garou Nation. Many questioned the timing of the phenomenon. Was this just another trick devised by the Wyrm, another way to destroy the nation from within? Or had Gaia truly given her children one last means of bolstering their numbers in anticipation of the looming final battle of the war? 
@@ -15266,8 +15113,7 @@ Only those with a spiritual connection to Gaia can ever benefit from the Bite. K
 
 Once an Unborn or kinfolk has been Bitten, she undergoes a dramatic mutation in her mind, body, and soul that lasts for exactly 28 days. This extended First Change is different for every kinfolk or Unborn, but they all experience a terrifying intensity unlike that of naturally changing Garou. Initially, a Bitten begins to feel as though she has come down with 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 ## **DNA and Garou** 
 
 For many years, the Wyrm used its minions to infiltrate the scientific community in order to create better weapons to use against the Garou. While Gaian werewolves failed to take advantage of such research, the Wyrm’s agents had no qualms about taking these tools and bending them to their will, Pentex and its subsidiaries were particularly focused on this experimentation. Through their diligence, the Wyrm has produced tools, such as silver nitrate bullets and drugs intended to limit a shapeshifter’s ability to change forms. Some minions of the Wyrm believe that, while Garou are half spirit, the genetic aspects of their abilities can be manipulated. 
@@ -15276,24 +15122,21 @@ Rumors run wild of experimentation on captured Garou, kinfolk, and Bitten. These
 
 Many Garou feel the Valkenburg Foundation is dangerous and will ultimately cause more problems than it solves. However, this group has worked to identify the origins of the Bitten, and it has found ways to ease their transition after receiving the Bite. To date, several Bitten found their way to the foundation in hopes of being rehabilitated. The Valkenburg Foundation has largely gone underground in the wake of the umbral storms, but there are those who are still able to find their agents when the need arises. 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 367 
 
 Chapter eight: DramatiC SyStemS 
 
 Alona McCreary (Order #15311115) 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 ## **Fera and the Bitten** 
 
 Although initially the Bite seemed reserved only for Garou, this new plague has spread to all of the Fera breeds, allowing them to inflict the Bite on their Unborn. Some shapeshifters take this fact as proof that the Bite is an engineered plague deliberately released into the Garou Nation. The Ratkin privately claim that the emergence of the Bite is a sign that they shall rise to rule the world in a new era they’ve deemed the Age of the Rat. Strangely, Black Spiral Dancers and Skin Dancers have not yet been able to enact the Bite on Unborn, suggesting that this new plague requires some sort of Gaian spiritual connection. 
 
 For more information, please see **Chapter Two: The World of Darkness, A Brief History of the World of Darkness, Age of Apocalypse, The Plagues of the Garou Nation** , page 61. 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 a violent strain of the flu, complete with high fevers, joint pain, vomiting, and hallucinations. 
 
 As the initial side effects taper after the first week, she finds herself filled with a deep hunger, often craving red meat and unable to feel full after meals. She begins to feel as though the world is too small; everywhere she goes is accompanied by a pressing feeling of claustrophobia and a desire to be in the wilderness. As she moves into the third week of symptoms, she begins to experience vivid hallucinations. She often hears someone speaking to her, just outside of her understanding. Bitten who have since joined the Garou Nation insist this is Gaia herself, whispering to help them through their anguish. As the kinfolk or Unborn enters the final stage of symptoms, she finds herself in constant agony and always on the verge of anger. Her nerve endings feel as though they are on fire. She thinks that if she could only rip away her skin, she could be free of the pain. Rage ripples through her body, and she is prone to violent outbreaks. 
@@ -15318,16 +15161,14 @@ Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE
 
 Alona McCreary (Order #15311115) 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 ## **Player-characters Bitten During Play** 
 
 When a player-character, such as a kinfolk or a Unborn, is Bitten during the course of a chronicle, the Storyteller may choose to waive the test requirement for the character. The character may suffer other negative consequences, as any kinfolk should be extremely reticent to undertake an action that may end her life, but the first concern with playercharacters and Bitten concepts should be telling an interesting story for the players within the Storyteller’s chronicle. 
 
 Players who choose to take this path with their character should fully explore the pain and horror found within the Bite. This situation offers an interesting roleplay opportunity and avenue of growth for a character. Storytellers are encouraged to play up the negative aspects of the Bite to enhance this experience for the player. 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 Theurges have determined that the phase of moon during which an Unborn is Bitten determines the auspice she becomes, rather than the auspice into which she was born. Often, a Bitten Garou finds herself gravitating naturally towards the tribe of her progenitor, even if she possesses a strong genetic connection to her tribe, such as having the merit Heroic Lineage, before being Bitten. For example, a Black Fury kinfolk with the merit Heroic Lineage may find herself Bitten by a Glass Walker. While she would usually gravitate towards the tribe of her birth, she may instead find herself called to the Glass Walkers. This situation varies among Bitten Garou, as each explores the tribes available and finds one that will accept her upon completion of her Rite of Passage. 
 
 However, a Bitten werewolf’s breed is defined by the circumstances of her birth, rather than the breed of her progenitor. Human kinfolk or Unborn become Homidbreed Garou; wolves become Lupus-breed werewolves. In addition, a character who has been Bitten is unable to Bite another, as the affliction that caused her to exist in the first place ensures that she does not have enough of a spiritual connection to Gaia to pass onto any potential progeny. Bitten Garou are sterile and do not produce children; the illness they endure preceding their First Change damages their ability to procreate. 
@@ -15350,14 +15191,12 @@ Chapter eight: DramatiC SyStemS
 
 Alona McCreary (Order #15311115) 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 ## **Bitten as Player Characters** 
 
 A Bitten character is created the same as any Garou, but they must possess the Bitten flaw (see **Chapter Six: Merits and Flaws, Bitten** , page 322). Newly created Bitten use the same character creation process as Cub characters. For more information, see **Kinfolk, Cubs and Lost Cubs, Cubs** , page 362. 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 have been taken to ensure the kinfolk population is not depleted, as they remain an important aspect for the future of the Garou Nation. 
 
 The following are the unique qualities of a Bitten Garou: 
@@ -15442,14 +15281,12 @@ A Garou in Glabro form inflicts aggravated damage when fighting with her claws, 
 
 While in Glabro form, her Dodge skill wild card bonus increases to +5, instead of the standard +3 bonus. 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 ## **Personal Items and Shifting Forms** 
 
 Garou naturally form a spiritual bond with personal items that have been in close contact with them for a long period of time. Examples include: clothing or small items, such as a pistol, wallet, or even a smart phone, that are carried in one hand. This bond allows these objects to become part of a werewolf’s body when she assumes other forms. A Garou who wears glasses while in her Homid form might discover that her Lupus form has circles of colored fur around her eyes. In addition, a werewolf automatically bonds with any attuned fetishes she might possess. However, armor lacking the empowerment of a fetish is too inflexible for shapeshifting; Garou cannot bond with mundane armor or retain it while they shift forms. 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 371 
 
 Chapter eight: DramatiC SyStemS 
@@ -15776,14 +15613,12 @@ Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE
 
 Alona McCreary (Order #15311115) 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 ## **Post-Traumatic Stress Disorder, Depression, Anxiety Disorders, and the Real World** 
 
 The ancient Greeks believed a play was only valuable as a work of art if it facilitated the purification of destructive emotions, a process they called _catharsis_ . The Harano mechanics are designed to help players simulate the experiences of war and depression. Empathy comes from being able to imagine the perspective of others. When experimenting with your roleplaying, it’s important to remember that many real people, both brave and strong, suffer from post-traumatic stress disorder, depression, and other mental health conditions. While Harano is an important aspect of the game, its symptoms are also a matter to be treated respectfully. 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 express symptoms resembling the above disorders, as the collective suffering of a millennia-long war presses heavily on them. 
 
 Those suffering from Harano may not see themselves as ill— the veil it lays over their emotions mutes a shapeshifter’s feelings of rage and suppresses her ability to find joy, feel anger, or find motivation to act. Those afflicted may feel they are finally seeing the world and their struggles through sharpened eyes, their minds finally clear enough to see their lives and battles as useless fallacies. 
@@ -15896,14 +15731,12 @@ While Garou derive tremendous strength from their Rage, this power is not withou
 
 A newly changed werewolf may not understand why she can likely never go home. The First Change takes a Garou from her previous life, where she may have friends or supportive packs, and infuses her with supernatural elements that prevent her from returning to the comforts she previously knew. While she may try to maintain her relationships with human friends or a wolf pack, she chafes at the discovery 
 
-**==> picture [433 x 18] intentionally omitted <==**
-
+**
 ## **Recording the Delirium** 
 
 The power of the Delirium over the human brain is so potent that even a photograph or video recording of a werewolf in Crinos can have a strange effect. A small part of the amygdala rejects the information presented, resulting in a strange “uncanny valley” effect. To such an observer, the Crinos seems almost too realistic to be believable and the average human’s mind simply refuses to believe it could be real. Most humans pass off such recordings as special effects and pranks. Hunters and those possessing specialized lore can recognize a Crinos form for what it is, however. 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 383 
 
 Chapter eight: DramatiC SyStemS 
@@ -16026,14 +15859,12 @@ A sometimes-necessary evil, Garou consider it a badge of honor to withstand and 
 
 A character can eliminate stages of Wyrm Taint with the gift Circle of Gaia’s Cleansing (see **Chapter Five: Gifts, Level 2 Gifts, Circle of Gaia’s Cleansing** , page 273). This is a painful process, requiring a tainted shapeshifter to force herself to remain in the circle while the impurities are burned out of her. Shapeshifters in the fourth and fifth 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 ## **Degradation to the Fourth Stage of Wyrm Taint** 
 
 Devolving to the fourth stage of Wyrm Taint or beyond requires the character to make a conscious choice to accept the Wyrm’s corruption. For example, choosing to eat the flesh of a human or shapeshifter can result in sliding to the fourth stage Wyrm Taint, but merely entering a tainted building cannot. Characters infected to the fourth or fifth stages of Wyrm Taint lose the benefits of the merits Wild Affinity or Weaver Affinity, if they previously had access to those merits. 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
 386 
@@ -16068,14 +15899,12 @@ A player should be able to describe each of her downtime actions in a single sen
 
 An active chronicle often has a complex hidden world of influence actions and downtime actions. The following guidelines are designed to help Storytellers adjudicate processing influences and downtime actions when timing matters in a given scenario. The goal is to weave an immersive experience for your players and your chronicle with a minimum amount of work outside of a game session: 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 ## **Economy of Downtimes** 
 
 High-Rank Garou have many off-camera duties to perform. Low-Rank Garou have fewer responsibilities and thus more downtime actions. It is expected that these Garou will help their Elders in quests and missions in exchange for Renown, lore, and personal instruction in gifts. Such assistance is typically represented by the **Lending Aid to an Ally** downtime action. This symbiotic relationship creates an important economy of downtimes that makes playing all of the Ranks fun and important to the story of the game. 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 387 
 
 Chapter eight: DramatiC SyStemS 
@@ -16226,14 +16055,12 @@ Players usually initiate quests based on their characters’ goals. Often, the S
 
 The quest worksheet at the end of this section can help a Storyteller keep track of the quest’s parameters and outcomes. 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 ## **Storyteller’s Prerogative: The Quest Generation System** 
 
 This system provides a toolkit for Storytellers to help with the management of a live-action chronicle; it is not intended to serve as a straitjacket, forcing every quest into a particular shape. The Storyteller may elect to personally run any scene she wishes, rather than use the quest generation system. Alternatively, she may elect to alter the difficulty rating of a given quest based considerations such as story concerns, environmental factors, or to challenge her players. Likewise, she may decide to change the potential consequences based on plot factors. The important thing to remember is that this system provides for collaboration and interaction, rather than a few simple equations. 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 391 
 
 Chapter eight: DramatiC SyStemS 
@@ -16678,14 +16505,12 @@ Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE
 
 Alona McCreary (Order #15311115) 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 ## **Pursuit and Fair Escape** 
 
 A character who has managed a fair escape should generally be considered exempt from pursuit in this manner in most cases. Escaping characters are expected to be overly cautious in evading their pursuers, likely getting into a vehicle or crossing through public areas where the number of scents is confounding. Only in special circumstances should a Storyteller allow a tracker to attempt pursuit of someone who’s fair escaped. 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 ## Example of Tracking 
 
 _Katie the Silent Strider is looking for her friend Rachel the Fianna. She saw her earlier talking to the Talesinger, and Katie approaches the area she last saw her friend. She tells the Storyteller she’s shifting to Lupus form and trying to find Rachel. She spends three standard actions sniffing around for her and makes a static test at a difficulty equal to Rachel’s Mental attribute + Stealth skill. Katie succeeds, and the Storyteller tells her she is able to pick out Rachel’s scent. Katie then initiates an opposed challenge to find Rachel. She wins. The Storyteller leads her away from the sept, along the route Rachel took. Eventually, she tells Katie that the trail ends mysteriously by a dirt road. Katie is no longer able to track Rachel, but asks the Storyteller if anything looks amiss about the area. The Storyteller has Katie make a test using her Mental attribute + her Investigation skill, and after Katie wins, she tells her she notices several sets of boot prints arranged in what appears to be a scuffle and deep track marks where a large vehicle drove away. Suspecting her friend Rachel has been kidnapped, Katie speeds back to the sept to alert everyone._ 
@@ -16698,8 +16523,7 @@ In the case of supernatural powers that conceal the user’s identity, such as C
 
 If you attempt to use tracking while in the presence of someone with an identity-altering power active, the tracker identifies a scent that’s consistent with the assumed identity. If the tracker has somehow pierced the disguise, such as by using Wolf Senses or a similar power, she correctly identifies any lingering scents. If a tracker pursues someone, and her target has an identity-altering power active, the trail appears to grow cold near the target as the tracker approaches, possibly picking up farther on, if her target has cleverly doubled back. 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 403 
 
 Chapter eight: DramatiC SyStemS 
@@ -16712,14 +16536,12 @@ In a traditional tabletop roleplaying game, players continually describe the act
 
 Common gestures include: 
 
-**==> picture [162 x 206] intentionally omitted <==**
-
+**
 ## “I’m not roleplaying” 
 
 Sometimes, players located in active play spaces must pause their roleplay in order to ask out-of-character questions; at other times, players may be observing the game without actually participating themselves. Such a player should hold up one hand with the first and middle fingers crossed, to indicate that her fellow players should not react to her in-character for a short time. 
 
-**==> picture [162 x 207] intentionally omitted <==**
-
+**
 ## “I grant you Willpower” 
 
 Players can reward other players in recognition for excellent roleplaying (see **Chapter Seven: Core Systems: Willpower** , page 352 for more information). To indicate that you are granting another player this reward, make a gesture, starting with your palm facing your chest and four fingers touching your chin. Then extend your hand palm-up towards the character you wish to reward. (This is the American Sign Language gesture for “thank you” and is basically a way to say thank you for good roleplaying.) 
@@ -16742,38 +16564,31 @@ Whether your character is a master of disguise or possesses a supernatural power
 
 Although the players conduct the business of the game in their common language, it’s very likely that their characters may have studied and can fluently speak other languages. If a character is speaking in a language other than the language common to the general game, that player should indicate their use of a foreign tongue. She does so by holding one hand in front of her face while extending the thumb and index finger, with the thumb touching the bottom of the player’s chin in the shape of an L. This gesture can also be used to indicate that your character is using a method other than speech to communicate, such as Mind Web. 
 
-**==> picture [162 x 207] intentionally omitted <==**
-
-**==> picture [162 x 206] intentionally omitted <==**
-
-**==> picture [162 x 207] intentionally omitted <==**
-
+**
+**
+**
 405 
 
 Chapter eight: DramatiC SyStemS 
 
 Alona McCreary (Order #15311115) 
 
-**==> picture [207 x 208] intentionally omitted <==**
-
+**
 ## “I’m exceptionally imposing” 
 
 The expenditure of Renown and some supernatural abilities, such as the gift Rancorous Halo, amplify a character’s force of personality, causing her to become fearsomely intimidating, imposing, or regal. To indicate that your character is supernaturally imposing, hold one arm out horizontally, elbow bent and pointed down, with the palm of your hand turned upward. 
 
-**==> picture [162 x 207] intentionally omitted <==**
-
+**
 ## “I’m obviously monstrous” 
 
 Certain supernatural powers allow their users to take on monstrous, horrific shapes in order to engage their enemies in battle. These powers are never subtle, often bestowing increased size, fearsome claws, extra appendages, and terrifying visages upon their user’s form; a werewolf’s Crinos form, the power Wyld’s Undreamt Fury, and other horrific forms of Wyrm creatures are just a few examples of abilities that bestow a monstrous appearance. To communicate a monstrous appearance, raise both arms above your head, with your fingers curled into claw-like shapes. 
 
-**==> picture [162 x 207] intentionally omitted <==**
-
+**
 ## “I appear to be an animal” 
 
 Shapeshifters are not limited to human form. A werewolf can turn into a wolf for example, as told in legends and myth. To indicate that she is in some sort of four-legged form, such as a wolf, the player should hold her hands up to chest height, and allow her wrists to fall loosely, similar to how a child might mimic a begging dog. To indicate that she is in the shape of a creature that can fly, such as a raven, she should hold her hands up together in front of her chest, interlocking her thumbs and extending her fingers, as she might if she were to make a shadow-puppet of a bird. 
 
-**==> picture [162 x 207] intentionally omitted <==**
-
+**
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
 406 
@@ -16786,8 +16601,7 @@ There will be times, of course, when the common gestures are not sufficient to d
 
 less—players are encouraged to use verbal descriptions. For ongoing situations, such as the continual stink of the flaw Animal Musk, players may find that using a small tag attached to their costumes communicates their characters’ states without interrupting scenes. 
 
-**==> picture [305 x 289] intentionally omitted <==**
-
+**
 407 
 
 Chapter eight: DramatiC SyStemS 
@@ -16796,8 +16610,7 @@ Alona McCreary (Order #15311115)
 
 Alona McCreary (Order #15311115) 
 
-**==> picture [425 x 137] intentionally omitted <==**
-
+**
 _“Madness is rare in individuals—but in groups, parties, nations, and ages, it is the rule.”_ 
 
 — Friedrich Nietzsche 
@@ -16930,14 +16743,12 @@ Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE
 
 Alona McCreary (Order #15311115) 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 ## **Master of the Challenge** 
 
 The Master of the Challenge (see **Chapter Eleven: Garou Nation: Sept Leaders: Master of the Challenge** , page 518) has the authority to approve and vet any challenge for Rank that occurs within the boundaries of the sept. A Garou may elect to visit another sept and seek to challenge for Rank thee, but such a choice will undoubtedly cause problems when she returns home. 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 purchase the next dot of the Rank background. If she does not have sufficient XP available, she goes into XP debt, and cannot make any other XP purchases until she has spent the XP to purchase her new dot of the Rank background. 
 
 share the same auspice; however, particularly wise or famous Garou are sought by werewolves of all auspices. Having selected someone to challenge, the challenger boldly states her name and makes plain her intent to challenge for a higher Rank. Should the challenged werewolf accept, she determines the nature of the trial the challenger will undergo, as well as any additional rules that may apply, such as what sort of assistance the challenger may receive, or the means by which she will complete her trial. 
@@ -17038,14 +16849,12 @@ _Silent Paws is aptly named, and she is able to make her way into the facility w
 
 _Passion Play and the Master of the Challenge declare that Silent Paws has passed her challenge. The player of Silent Paws spends 2 XP on her 2[nd] dot of the Rank background, and the sept rejoices with her as she is elevated in station._ 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 ## **Fera and Rank Challenges** 
 
 While Fera also share the construct of Rank, many of them maintain separate traditions with regard to challenge and advancement. A Garou cannot oversee a Rank challenge for any Fera and vice versa. For mechanical purposes, a Fera must meet the same requirements for Rank advancement as a Garou, including time spent at current Rank and expenditure of the appropriate Fleeting Renown. She can then spend a downtime action to seek out one of her own kind capable of facilitating a Rank challenge. The Storyteller should design one for the Fera of the same difficulty as a Garou of the appropriate Rank. 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 415 
 
 Chapter NiNe: SoCial SyStemS 
@@ -17110,28 +16919,24 @@ As a Garou performs noteworthy deeds, she earns _Renown_ . Renown is a form of r
 
 Renown works in alignment with the instinctual social patterns of all Garou, tapping into the underlying primal urge rooted within the Garou psyche. These practices are extensions of common behavior traits that exist throughout the animal kingdom, and they are instinctive to all werewolves. A Garou may choose to spend her Renown traits to achieve a variety of effects, each capable of influencing others in different ways. When a Garou uses her Renown, she adopts a posture of strength and confidence, making bold declaration of her virtue. This confidence compels Garou and Fera to respond favorably, much in the same way wolves defer to a dominant leader. In some instances, 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 ## **Respect for Renown** 
 
 Kinfolk, Fera, and Garou all innately respect—and thus are automatically affected by—the expenditure of Renown traits, even if they hate their enemies and lack any respect for them. Other creatures, even Black Spiral Dancers, can’t possess or spend Renown. 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 417 
 
 Chapter NiNe: SoCial SyStemS 
 
 Alona McCreary (Order #15311115) 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 ## **Jurisdiction of Renown** 
 
 Certain positions within the Garou Nation carry with them the ability to use Renown traits in unique ways beyond the uses laid out here. The authority of each position limits the jurisdiction of such uses of Renown. For example, a sept’s Warder can spend a trait of Wisdom to use A Word to the Unwise. As Warder is a sept position, she can do so only when she is present in territory claimed by her sept. If this character visits a neighboring sept, she may receive some measure of respect for serving as Warder, but she cannot call on her office’s unique functions. Some positions within the Garou Nation are global positions. A werewolf who holds a global position can call on her office’s Renown use throughout the world. 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 any Garou or Fera who seek to oppose you use must match your energy, either through their own use of Renown or by spending a point of Willpower. 
 
 Using Renown traits to affect primal urge in this way is not the same as using gifts or powers, and does not supersede their effects. Renown does not limit a werewolf’s ability to attack or use powers on one another. Renown expenditure can only influence Garou, Fera, kinfolk, and in some cases, spirits. No other creatures are affected outside of these types. 
@@ -17164,16 +16969,14 @@ Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE
 
 418 Alona McCreary (Order #15311115) 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 ## **Fera and Renown** 
 
 Like their Garou cousins, Fera are affected by Renown and can make use of it themselves. While many Fera maintain similar values, very commonly they uphold one or more different virtues than those of Garou. As Gaia tasked each of them with a unique set of responsibilities, it is natural that they idealize different concepts. Some examples include granting Succor as opposed to seeking Glory, valuing Cunning over Wisdom, or emphasizing Humor over Honor. 
 
 Fera who fall into these categories are considered to earn their Renown through pursuing their own unique ideals. However, mechanically, their Renown is earned, tracked, and spent as if their virtues were identical to werewolves’. Fera characters may also refer to them differently during the course of roleplay. 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 - **Commanding Presence:** Yours is a reputation of success and of victories won. Should someone of lower Rank question your authority, you can spend a trait of Glory Renown to assume an air of command. For the next five minutes, any Garou with fewer dots of Rank than you who desires to contradict your orders must spend a trait of Glory, spend a point of Willpower, or challenge you through an accepted means (see **Challenges** , page 426). 
 
 - **Back Off:** By spending a trait of Glory and softly growling, you can compel others to leave your immediate space. Any who wish to remain within one step of you must either spend a point of Willpower or immediately attack you. Back Off lasts for five minutes. 
@@ -17281,18 +17084,12 @@ Alona McCreary (Order #15311115)
 
 Renown Cards 
 
-**==> picture [250 x 190] intentionally omitted <==**
-
-**==> picture [250 x 190] intentionally omitted <==**
-
-**==> picture [249 x 190] intentionally omitted <==**
-
-**==> picture [249 x 190] intentionally omitted <==**
-
-**==> picture [250 x 190] intentionally omitted <==**
-
-**==> picture [251 x 190] intentionally omitted <==**
-
+**
+**
+**
+**
+**
+**
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
 422 
@@ -17441,16 +17238,14 @@ Challenges between werewolves hold such gravity that most septs designate a spec
 
 While challenges are intended to calm raging tempers and prevent the loss of life, these confrontations sometimes result in serious injury or even death, should participants get out of control. Due to the inherent danger found in many challenges, kinfolk are not allowed to take to the mound on their own behalves, even if they believe they could win the day. Of course, this restriction does not preclude a Garou from issuing a challenge on behalf of a kinfolk, although 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 ## **Fera and Challenges** 
 
 While some Fera feel that Garou are too filled with rage and too quick to issue a challenge, every breed recognizes the benefit of a structured challenge system. Any Fera who spends a significant amount of time among Garou quickly learns the intricacies behind challenges, as she may be challenged by a werewolf at any time. When a Fera finds herself at a Garoucontrolled sept, she agrees to be bound by its laws, and this agreement opens her up to the possibility of issuing or accepting challenges. 
 
 Many Fera breeds have their own challenge traditions, though these tend to be used internally. For example, among the Beast Courts of the East, the Hengeyokai prefer challenges that require wit and intelligence, rather than brute strength. Their challenges often mirror gamecraft challenges, ranging from chess tournaments to riddling contests. When a physical challenge is necessary, it often focuses on fighting smarter, not harder. 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
 426 
@@ -17491,14 +17286,12 @@ Chapter NiNe: SoCial SyStemS
 
 Alona McCreary (Order #15311115) 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 ## **Staredowns and Real World Bleed** 
 
 In any live-action game, players are encouraged to immerse themselves in their roles, fully acting out the behaviors and reactions of their characters. While this adds to the ambiance of a game and enhances the enjoyment of most, it is important for players to always be aware of their surroundings. The comfort level of fellow players should be taken into account, as well as the location of the game. For example, if you happen to hold your game in a public space on a college campus, you should be aware that overtly threatening behavior may alarm passersby. Likewise, if one of the players involved in the challenge expresses discomfort at the level of intimidation employed by this challenge, then the players should resolve to simply narrate the challenge, rather than acting out the aggressive behaviors found here. 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 are never used to settle serious problems, such as a breach of the Litany or the levying of a physical threat, although they are often used as a first step to stop these behaviors before they spiral out of control. While these challenges are swiftly decided, they are often enacted in front of witnesses, in order to resolve any question of who is the stronger Garou. 
 
 ## Staredown Mechanics 
@@ -17563,8 +17356,7 @@ Chapter NiNe: SoCial SyStemS
 
 Alona McCreary (Order #15311115) 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 ## **Gamecraft and Structured Mechanics** 
 
 Due to the broad nature of gamecraft challenges, there are no fixed mechanics to resolve them. Typically, the Storyteller determines the mechanics to resolve these challenges, using a test pool of the appropriate attribute and skill. Rather than treat the contest as a single opposed test, the Storyteller may choose to add in additional structure to create suspense. For example, a race could be broken up into multiple challenges for different legs, or a fishing contest may involve participants winning a static test against a number drawn from a deck of playing cards. 
@@ -17573,8 +17365,7 @@ If all players involved agree, some contests may be resolved through roleplay, w
 
 As a part of roleplaying, players often create characters skilled at things they themselves are not. It is within any player’s rights to request that a challenge be settled through game mechanics. 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 - **Athletic Competitions:** A variety of sporting competitions and feats of strength fall into this category. Contestants use their Physical attribute + Athletics skill in this challenge. Competitions of this sort are enjoyed in various forms by a variety of tribes. A contest with Get of Fenris might resemble a strongman competition, while Bone Gnawers may enjoy a game of basketball. 
 
 - **Board or Card Games:** This category includes a variety of classic games of skill and strategy, favored by enthusiasts of all ages. Contestants use their Mental attribute + Investigation skill, or in some cases, their Social attribute + Subterfuge skill. Silver Fangs, true to their Russian heritage, are known to prefer chess, while Glass Walkers may prefer poker. 
@@ -17699,8 +17490,7 @@ Chapter NiNe: SoCial SyStemS
 
 Alona McCreary (Order #15311115) 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 ## **Storyteller Advice: Running a Moot** 
 
 A moot is a meta-game within a game session that characters play to win acclaim, refresh spent Renown, and claim the victor’s laurels. Characters understand moots as a formalized system of social rules that must be followed, lest scandal fall on them. The nature of the rules and the identity of the ultimate winner are less important than providing a reason to motivate enemies and allies to interact and compete in civilized ways that vent tension. 
@@ -17715,8 +17505,7 @@ There are three common player reactions to a moot; Storytellers should plan for 
 
 Moots are an excellent way to facilitate interaction between usually disparate cliques of characters or to add flavor to an otherwise normal game. They are particularly well-suited to games where the players are unfamiliar with one another, and the presence of visible, eyecatching props can invite inquiry from those who notice them. 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 ## History of Concolation 
 
 The social order of the Garou is not democratic. It is a system in which the most honorable, the wisest, and the most powerful decide what is right and wrong. Nevertheless, there are some issues that must be resolved and decisions to be made that cannot stand on the shoulders of one werewolf. The directions of tribes and the nation itself cannot go forward based on the word of one. Even the High King had a council of advisors to guide the decisions he or she laid forth. The understanding of such a fundamental fact has led to the creation of moots known as Concolations and Grand Concolations. 
@@ -17741,16 +17530,14 @@ Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE
 
 Alona McCreary (Order #15311115) 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 ## **Proxies within Grand Concolations and Concolations** 
 
 Obviously not all who wish to attend such events are able to do so. Doing so would jeopardize the security and safety of septs all over the world. In such instances, members with the right to attend the moot designate one they trust to act as their proxies. She who holds a proxy speaks with the voice and standing of each and every proxy entrusted to her, and more importantly, she is given the ability vote on behalf of that proxy. 
 
 Such a responsibility is a double-edged sword, especially when holding the proxies of two who disagree. Garou are not known for their forgiving natures. 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 responsibility to choose the topics to be discussed. She also appoints a Warden and Talesinger for the event. 
 
 - **The Warden:** The Warden is in charge of security for the moot. It is her role, and that of her assistants, to ensure that only those who are allowed to be present are in attendance, and that any proxies they may carry are valid. After this task is complete, the Warden patrols to ensure the security of those present at the event. Her final responsibility is to oversee any challenges that occur during the moot and to prevent any fighting outside of a formal challenge. 
@@ -17967,14 +17754,12 @@ Glory comes at the cost of blood and suffering for Gaia, but acclaim comes from 
 
 The Talesinger announces the moot and expends a trait of Glory Renown to empower it. Then, she asks the Master of the Rite or her appointed Theurge representative to call forth the spirits to bless and witness it. She may also elect to empower another Galliard to perform this task, in which case that Galliard may temporarily claim the title of Talesinger for the duration of this moot. For more details, see **Renown** , page 417. 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 ## **Prop Alternatives: Beads or Poker Chips** 
 
 The Liar’s Dance, Slap Dance Feast, and Flyting are historically played with brightly colored stones, but the average game might not have the resources to gather enough stones for the game. These games can also be played with colored beads, poker chips, ribbons, safety pins, or anything visual that fits an individual’s taste and style. 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
 440 
@@ -18185,14 +17970,12 @@ The Fenrir believe that their founder Fenris created the Flyting while battling 
 
 The use of the Flyting fell out of favor over the centuries, but the ascension of the Sanctum of Gaia and their reverence for the old ways returned this moot to popularity. A clever Sept Leader often arranges for a Flyting to defuse tension within her sept, especially after a defeat in battle or political strife. The wise Fool learns much about the mood of the sept during a Flyting, and the best Ragabash can use this moot as an opportunity to move or change public opinion. 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 ## **Storyteller and Player Advisory: Attack the Character, Not the Player** 
 
 The Flyting is a game of insults meant to challenge a character’s mental resolve. Players should be careful to direct their biting jabs towards other characters, rather than the players themselves. Always keep the distinction between the player and character in mind. If real life tempers flare, don’t be afraid to use the Fade to Black technique as described in **Chapter Ten: Storytelling, Storytelling Techniques, Fade to Black** , page 484. 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
 444 
@@ -18253,8 +18036,7 @@ Chapter NiNe: SoCial SyStemS
 
 Alona McCreary (Order #15311115) 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 ## **Storyteller Note: Immersion, Rules, and Awarding Seethe Traits** 
 
 The Flyting moot can be flexibly adjusted to a number of narrative styles, depending upon the needs of the game as determined by the Storyteller. 
@@ -18265,8 +18047,7 @@ An immersive narrative involves the players roleplaying out the improvisational 
 
 For more information on Seethe traits, see **Chapter Eight: Dramatic Systems, Seethe Traits** , page 379. 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 single quip or retort. Once the insulter’s turn concludes, the audience has a moment to award stones to her or to her victims as appropriate. Then, the bard to the previous speaker’s immediate right goes next, until the circle has been completed. 
 
 During the course of the Flyting, the judge is mystically empowered to innately know how many Seethe traits each bard within the circle has. If one of the bards gains enough Seethe traits to frenzy, or if she appears to be about to lose her temper, the judge can remove her from the circle. 
@@ -18395,8 +18176,7 @@ They met Gresia at the edge of the temple’s stone steps. She had shifted into 
 
 Mauls walked into the Black Temple, Judge Taco at his side. 
 
-**==> picture [59 x 8] intentionally omitted <==**
-
+**
 The Kitsune moved first into their enemies, wrapping herself around their feet so quickly they didn’t have time to move before she let out an eardrum-piercing shriek. Several of the banes and the Black Spiral Dancers covered their ears, screaming like the fox had, before they turned to run from her. Two others turned, skin rippling as they shifted into their monstrous green-and-black 
 
 Alona McCreary (Order #15311115) 
@@ -18433,8 +18213,7 @@ Alona McCreary (Order #15311115)
 
 Alona McCreary (Order #15311115) 
 
-**==> picture [382 x 137] intentionally omitted <==**
-
+**
 _“Storytelling reveals meaning without committing the error of defining it.”_ 
 
 — Hannah Arendt 
@@ -18467,8 +18246,7 @@ Your work doesn’t stop at the end of a show, when the lights dim and the big t
 
 The ringmaster of a healthy LARP is the Storyteller, and the players are both performers and audience.  Storytelling is the most rewarding challenge that **Mind’s Eye Theatre** has to offer, and this chapter will help guide you along the path to establishing your own style. Traveling circuses hold to an old tradition; the ringmaster always opens the show with the same line, guaranteed to bring smiles and laughter. It seems appropriate to echo it here: 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 ## _**“Ladies and gentlemen, boys and girls, children of all ages, welcome to the greatest show on Earth!”**_ 
 
 ## Create a Universe from Your Imagination and Dreams 
@@ -18577,8 +18355,7 @@ Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE
 
 Alona McCreary (Order #15311115) 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 ## **Determining the Needs of Your Players and the Chronicle** 
 
 A few players will naturally entertain themselves with social posturing, vying for superiority, and drama. They will create their own fun and drive social plots for the chronicle. A “handsoff” style often works best for these types of players, allowing them to build their own tapestry of fun, and allowing the world to react to their actions in a logical manner. 
@@ -18587,8 +18364,7 @@ At the other end of the spectrum are the players who expect a good deal of perso
 
 Large games require several Storytellers, each in charge of a different aspect of the game (e.g., main plot, subplots, influences, antagonists). Remember that the larger your chronicle is, the more you need to examine what types of plots work well with the group dynamics. Don’t hesitate to ask your players for feedback on what’s working and what isn’t. 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 ## Small Games (2 to 10 players) 
 
 A game with 10 or fewer players offers a uniquely intimate experience. These chronicles provide many opportunities for you to give each player personal attention, designing stories around just one or two characters at a time. You’ll have the luxury of running plots that resemble traditional narrative structures, such as the Jungian Hero’s Journey or the gritty Dungeon Crawl (both are described under **Developing and Running Plots** , page 473). You and your players will enjoy a great deal of freedom to explore anything that you can imagine together. 
@@ -18651,8 +18427,7 @@ Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE
 
 Alona McCreary (Order #15311115) 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 ## **The Rise and Fall of a Chronicle** 
 
 All chronicles see periods of expansion and contraction. Despite your best efforts, you might see your player population shrink due to a myriad of problems. Some problems are out of your control, and different times of the year are simply too hectic for players to commit to attending game. 
@@ -18669,8 +18444,7 @@ Discuss the situation with your players and then see which, if any, of the follo
 
 - All stories end. End the chronicle and start a new one, but make sure that you end with a bang. The best stories are always the ones that return to the beginning somehow and touch upon that which made the chronicle great. 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 ## Step Three: Defining the Scope of the Chronicle 
 
 How big is your story? That’s its _scope_ . But before you can determine the scope, first consider agency, because one affects the other. 
@@ -18915,8 +18689,7 @@ After destroying Black Tooth and his Endless Storm, the Ahadi persisted. They tu
 
 Today, the Ahadi are found all over the world. While members are largely found in Africa, some of the younger members have struck out to offer their assistance to other caerns in need. Although ancient grudges still remain, all who have joined the cause have sworn to put aside their personal feelings in order to ensure that Gaia’s children are able to continue on with their duties. 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 ## **The Code of the Ahadi** 
 
 Each breed has its own laws, and each tribe has its own interpretation of the Litany. This disparity often led to difficulties during the early days of the Ahadi. Kisasi and the leaders of each of the breeds came together to lay out a code that each member of the Ahadi is expected to follow. Any who find themselves unable to adhere to these tenets quickly finds that they are no longer welcome among the ranks of the Ahadi. Punishment for breaking the code ranges from banishment from the organization to death. 
@@ -18935,8 +18708,7 @@ Each breed has its own laws, and each tribe has its own interpretation of the Li
 
 - Members must protect holy places at all cost, as they are the only way to win the war against the Wyrm. 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 465 
 
 Chapter ten: Storytelling 
@@ -19227,8 +18999,7 @@ Alona McCreary (Order #15311115)
 
    - › Vampires on the Path of Humanity appear to be in the first stage of Wyrm Taint, as are vampires on the Path of the Feral Heart. Vampires on an alternative Path of Enlightenment appear to have Wyrm Affinity, marking them as creatures of the Wyrm. 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 ## Creating the Story Bible for Your Chronicle 
 
 _“There is no greater agony than bearing an untold story inside you.”_ — Maya Angelou 
@@ -19299,14 +19070,12 @@ Chapter ten: Storytelling
 
 Alona McCreary (Order #15311115) 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 ## **Archetypes and Designing Plots** 
 
 Storytellers aren’t omniscient mind readers, so it can be difficult for new Storytellers to evaluate what sort of plots might work best for the players in her chronicle. An easy way to take the pulse of players is to review their character sheets and make a list of the most common Archetypes in the chronicle. An Archetype not only determines how a player will roleplay a character, but is also a signal to the Storyteller for what type of stories she is interested in exploring. A Bully Archetype is going to want to fight her way through a scenario. A Trickster Archetype is going to want to use cunning and guile to resolve problems. 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 Warning: Some plots will take your chronicle into unpredictable, strange places. Plots can be become quite complicated, especially when characters’ individual schemes clash. Confusion of this sort is both a help and a hindrance. Confusion lures and attracts those players who like to be involved in as many plots as possible. Other players react badly to confusion, and they will cease to participate when a plot gets too complex for them to unravel. 
 
 If you feel overwhelmed, take a step back, consider all of the options, and then make the best decision you can with the available information. 
@@ -19755,14 +19524,12 @@ Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE
 
 Alona McCreary (Order #15311115) 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 ## **Fade to Black and Player Comfort Level** 
 
 Some players aren’t interested or comfortable with the more visceral aspects of horror. If you sense that one of your players is uncomfortable, you should stop the scene and mediate immediately. You can use Fade to Black to quickly end uncomfortable scenes. Fade to Black does not save a character any consequences, but it does respect the comfort level of the player without ignoring the tone and flavor of the **World of Darkness** . 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 _under the flesh of your shoulder. Then…fade to black.” There’s no need to continue—Joshua’s imagination will fill in the blanks, and sometimes a player can imagine far worse details than what a Storyteller can conjure with mere words._ 
 
 ## Spontaneous Narration 
@@ -20043,8 +19810,7 @@ Alona McCreary (Order #15311115)
 
 Alona McCreary (Order #15311115) 
 
-**==> picture [291 x 195] intentionally omitted <==**
-
+**
 _“The nation is really a thousand tiny kingdoms pledged to the ideal of the Silver Crown. Their loyalty is earned through your spilt blood and the sacrifices you make to keep them safe.”_ 
 
 —Jonas Albrecht, Scion of House Wyrmfoe, Last High King of the Garou Nation 
@@ -20087,22 +19853,19 @@ The High King does not rule alone. He is advised by the members of the Council o
 
 He may also rely upon others, in addition to the Councilors of the Council of Tribes, to help ensure that his will is carried out. The _Silver Pack_ serves at the direction of the High King when necessary, entering into the most dangerous and deadly of places and ensuring that the tasks that need to be accomplished there are completed. Chosen by Phoenix itself, the members of the Silver Pack are a potent force the High King can bring to bear. In dire need, the High King may also seek the aid of the Legends among the Garou, calling those chosen by Gaia herself to lend their incredible power to support the needs of the nation. Although these warriors are part of the nation, they are entrusted with the power to choose which orders they are willing to accept, lest the High King’s commands conflict with the tasks that the spirits has given them. 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 ## **Gender, Tribe, and the High King** 
 
 The title of High King has been traditionally claimed by a male sovereign of the dominant Silver Fang House, but theoretically, any worthy Garou may seek to claim the Silver Crown. In the Age of Apocalypse there are two such august claimants for the position: Queen Sabine “Silver-Swift” LaCoix of Unbreakable Hearth and Josef Konietzko, Margrave of the Shadow Lords. The Council of Tribes is sharply divided on the matter of who should rule, as neither is a traditional candidate. 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
 496 
 
 Alona McCreary (Order #15311115) 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 ## **The Return of the King** 
 
 The disappearance of Jonas Albrecht, the last High King, and the loss of the sovereign fetish known as the Silver Crown, has left a void within the leadership structure of the Garou Nation. The Prophecy of the Phoenix predicts that Albrecht and his pack will return for the final battle in the Age of Apocalypse, when the Garou Nation needs them the most. The Council of Tribes believes, with good reason, that they sacrificed themselves to firewall the remaining caerns from the Wyrm’s assault. 
@@ -20113,8 +19876,7 @@ Even without Falcon, the crown retains one mystical property, to the detriment o
 
 Currently, the position of High King is vacant. Storytellers should allow the needs of their chronicles to determine how best to leverage this storyline. They may wish to insert a new king as an antagonist or ally for the players, or they may encourage a strong political game in which players compete to seize control of the throne. 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 The High King is still a Garou and may be challenged for his position, though there are some slight differences in the procedure for such a challenge. In order to prevent a horde of young werewolves seeking to make names for themselves from challenging the High King and preventing him from being able to rule, any who seek to challenge the High King must gain the support of a majority of the members of the Council of Tribes. How they accomplish that requirement is up to each potential candidate, but without it, they are unable to formally challenge the High King for his position. 
 
 The High King may also be appointed. If he dies without a clear successor, the Council of Tribes holds the ability to appoint a new High King with a unanimous vote of its Councilors. This event has not happened since the disappearance of Jonas Albrecht. 
@@ -20153,14 +19915,12 @@ Chapter eleven: the Garou nation
 
 Alona McCreary (Order #15311115) 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 ## **The Seat of the High King** 
 
 When the Silver Fang kings ruled as High King, their own personal septs served double duty, as both functioning septs as well as the High King’s personal territory and protectorate. As such, the Council of Tribes met and often stayed in the High King’s sept to render advice and counsel to him. This sept and territory would then either be handed down to the successor, or would return to another worthy of stepping into the role of Sept Leader when the new High King, or Queen, made his own sept into a new home for the crown. 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 ## **Glory** 
 
 The High King can spend 1 trait of Glory Renown to enact one of the following effects: 
@@ -20245,28 +20005,24 @@ the Silent Strider tribe has kept both from enacting any overwhelming changes.
 
 She can expend a single trait of Fleeting Renown (of any type) to assign any greater or lesser moniker to a member of her tribe. This action may be overturned by a majority vote of the tribal council. (See **Chapter Nine: Social Systems: Monikers** , page 424.) 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 ## **The Empty Throne** 
 
 The division between the Sanctum of Gaia and the Concordat of Stars has prevented the Council of Tribes from selecting any candidate to become High King. The Silver Fangs naturally argue that that only a member of their tribe is worthy of wearing the Silver Crown. The Shadow Lords claim that the leadership of the Silver Fangs led to the near destruction of the Garou Nation and that new blood is needed. The stalemate has forced the Council of Tribes to take on more and more responsibility and left the council in a political deadlock. 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 499 
 
 Chapter eleven: the Garou nation 
 
 Alona McCreary (Order #15311115) 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 ## **While the King’s Away** 
 
 Presently, the Council of Tribes is fulfilling all of the duties and responsibilities of the High King. With a unanimous vote and appropriate Renown expenditures, they may act as the High King and take on his powers as enumerated on page 497. 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 ## **Glory** 
 
 A member of the Council of Tribes can spend 1 trait of Glory Renown to enact the following effect: 
@@ -20655,14 +20411,12 @@ Werewolves are inherently pack creatures. Even the gathering of packs into septs
 
 The Rite of Ostracism, used to cast a Garou from her sept for a short period of admonishment, provides only a taste of the loss and loneliness that Ronin experience. The true pain comes when a Councilor or the High King declares a werewolf Ronin from her tribe or the entire nation. On a sept level, banishment is temporary; once punishment has been served, the offender is welcomed back into the embrace of her family and sept, with the hope that her 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 ## **Fera, Politics and Sept Positions** 
 
 Fera can attempt to challenge for any lesser sept position, such as as Warder, Den Parent, or Master of Challenge. However, they cannot become the Sept Leader or a member of the Auspice Council inside of a sept of the Garou Nation. Some Fera, such as the Bastet, are pushing to have their own Breed Councilor, but this change would require the unlikely vote of a majority of those already on the tribal council. Fera cannot join the Sanctum of Gaia or the Concordat of Stars. 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
 510 
@@ -20701,14 +20455,12 @@ Chapter eleven: the Garou nation
 
 Alona McCreary (Order #15311115) 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 ## **Concolations** 
 
 When the collective wisdom and strength of two or more septs are needed, they come together in a Concolation, or grand moot, as a celebration of their unity. Woe be to the Wyrm when its forces must face the combined forces of several septs. (For more information, see **Chapter Nine: Social Systems: Moots: Concolations** , page 433.) 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 Garou Nation established a dogmatic culture of common protocols, laws, and revered offices required to honor their ancient pact with the spirits and the governance of a sept. The young rage against the unforgiving nature of life at the septs, arguing that only by changing tactics can the Garou ever hope to defeat the Wyrm. Elders caution that only by staying the course has the Garou Nation been able to maintain the seemingly eternal battle. The majority of werewolf society has simply come to accept the harsh reality of this rigid culture as a fait accompli to maintain the support of spirits and survive in the Age of Apocalypse. 
 
 The recent division regarding accepting Weaver spirits as equals to the Wyld in the battle to restore or resurrect Gaia has sparked new political factions—the Sanctum of Gaia and the Concordat of Stars. Hope and faith burn brightly, but divisively, and the natural response of werewolf society has been a return to the old ways as a shield to protect the Garou Nation from splitting. This vigorous reverence for the old ways has, so far, kept the political battles to a bloodless field, granting power to those who can best promote the security of the septs and the Garou. 
@@ -20751,14 +20503,12 @@ Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE
 
 Alona McCreary (Order #15311115) 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 ## **Tribal Titles and the Sept Leader** 
 
 By long-standing tradition, from the era when septs were mostly tribal affairs, Sept Leaders often take tribal titles to distinguish themselves. Here are some of the commonly used titles for Sept Leaders, delineated by tribe: Matriarch (Black Fury), Pappa/Momma (Bone Gnawer), Shepherd (Children of Gaia), Righ (Fianna), Jarl (Get of Fenris), Director (Glass Walker), Alpha (Red Talon), Master (Shadow Lords), Herald (Silent Striders), Lord (Silver Fangs), Luminary (Stargazer), Caretaker (Uktena), and Trailblazer (Wendigo). 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 - Performing the Rite of the Hunt 
 
 - Awarding and punishing those under her jurisdiction by assigning greater and lesser monikers 
@@ -20957,14 +20707,12 @@ Den Parents can spend 1 trait of Wisdom Renown to enact the following effect:
 
 - **Guardianship:** Den Parents can assume personal responsibility for any Cub or kinfolk, directly transferring the vulnerable into their custody. Furthermore, they can assign the moniker _Dishonorable_ to anyone who they believe has harmed a Cub or kinfolk. (See **Chapter Nine: Social Systems: Monikers** , page 424.) 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 ## **It Takes a Village: Connecting Students and Teachers** 
 
 The Den Parent can assign any member of the sept to teach a Cub or Cliath a gift, rite, or lore. In exchange, the student must perform a task for the teacher, providing her with a bonus downtime action to be used within the next 30 days. In addition, the Den Parent can assign the resources of the sept (see **The Sept: Workings of a Sept, Sept Benefits** , page 526) towards any particular pursuit that seeks to educate or safeguard the sept’s Cubs or kinfolk. Such a request might involve instructing Cubs about the Umbra, teaching a gift, or sharing battle experience. 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
 516 
@@ -21077,14 +20825,12 @@ A member of the Council of Auspices can spend 1 trait of Glory Renown to enact t
 
 - **Remove the Unworthy:** By majority vote of the Council of Auspices, the councilors can remove any sept officer from her position, with the exception of the Sept Leader. Before the vote is held, the councilors participating in the vote must each spend 1 trait of Glory Renown, regardless of its outcome. 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 ## **Rule by Council** 
 
 It was once more common for septs to be governed by a Council of Auspices, sometimes referred to as an Elder Council. In such cases, a council has the same authorities and privileges as the Sept Leader; furthermore, when its members vote unanimously, and when each spends the appropriate Renown traits, they can achieve the same effects. (For more information, see **The Sept: Sept Leadership, Sept Leader** , page 512.) 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 519 
 
 Chapter eleven: the Garou nation 
@@ -21105,8 +20851,7 @@ A member of the Council of Auspices can spend 1 trait of Wisdom Renown to enact 
 
 ## Fool (Ragabash) 
 
-**==> picture [147 x 50] intentionally omitted <==**
-
+**
 _Fool_ might be the title of the Ragabash seat on the Council of Auspices, but only the naïve take the meaning of the name literally rather than metaphorically. Many see the Fool as the voice of political dissent within the sept. She serves as the pressure valve by which competing dominant werewolves are moderated into making wise decisions about the sept’s future. 
 
 The Fool teaches the Litany by challenging it and giving voice to the unspoken concerns of the sept. While engaged in the duties of her office, the Fool becomes exempt from the normal protocols that govern Garou behavior. She is immune to punishment from any sept office, but that does not mean that she has carte blanche to do whatever she wishes. A Fool who pushes the boundaries too often finds herself challenged by her would-be students or the victim of her less-official expressions of displeasure. 
@@ -21529,8 +21274,7 @@ These punishments are reserved for major violations of the Litany, endangerment 
 
 - **Satire Rite:** Being stripped of Rank is not only a loss of status, but also a powerful marker of shame, calling into question the target’s ability to be trusted with responsibility. 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 ## **Rite of the Hunt** 
 
 A punishment that can only be levied by a Sept Leader or the High King, the Rite of the Hunt is a death sentence. The Rite of the Hunt is used in one of two ways. A Sept Leader may grant this ritual as a form of respect for a Garou who has been sentenced to death, providing an opportunity to restore her honor in death and be remembered without disdain. It can also be levied on one who deserves death but is not in the custody of those who can execute such a sentence. In these cases, a Sept Leader or the High King announces to those under her authority the name and identity of the one hunted. This pronouncement serves the purpose of alerting the one marked so they may choose to return for judgement and honorable death, as well as unleashing the rest of the Garou to hunt down one who has escaped punishment. Those marked receive the moniker _Hunted_ . 
@@ -21539,8 +21283,7 @@ For more information on monikers, see **Chapter Nine: Social Systems: Monikers**
 
 For more information on Rite of the Hunt see **Rites: Rite of the Hunt** , page 545. 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 529 
 
 Chapter eleven: the Garou nation 
@@ -21621,14 +21364,12 @@ Motif packs are among the most common types of packs in the Garou Nation. This t
 
 A destiny pack is a collection of Garou champions who are specifically selected by a mighty totem spirit to complete a dangerous task considered vital to the interests of the Garou Nation and Gaia. These tasks might include things such as defeating a terrible enemy or stopping an insidious plot of the Wyrm. Such a mission is always voluntary, due to the extreme danger involved. These packs are sometimes nicknamed “hero packs.” Being selected to join one is always considered worthy of Renown, as the odds of survival are thin at best. Destiny packs rarely have the time to form complete bonds; indeed, their alliances are often temporary. 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 ## **Coloring Outside the Lines** 
 
 The following information is intended to be a creative guideline for building a pack. The options provided here are the ones most commonly occuring among Garou, but players can and should get creative when building their packs. While all packs should have a unified purpose or style as represented by their totems, how they achieve that structure is wholly at the pack’s discretion. Players define a pack type and may choose options from any section that fits their needs. Alternatively, they may create their own pack types and roles that match the unique flavor of their pack and spiritual totem. 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 Chapter eleven: the Garou nation 
 
 531 
@@ -21999,16 +21740,14 @@ Chapter eleven: the Garou nation
 
 Alona McCreary (Order #15311115) 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 ## **The Price of Failure** 
 
 Failing to cast a Rite is seen as a sign that the caster is somehow out of alignment with the spirits. This isn’t considered formally scandalous enough to warrant the loss of Renown, but is quite embarrassing. Storytellers may assign 1 to 2 Seethe traits, depending on the number of Garou that witnessed the mystical blunder. Afterwards, the caster must wait 15 minutes before attempting to performing the ritual once again. 
 
 A failure to complete a ritual is always considered a bad omen or warning from the spirits. However, if a Punishment Rite fails, then the intended target may use that time to argue for mercy or proclaim that the spirits have found her innocent. Some silver-tongued Garou have managed to escape harsh punishments via this defense. 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 ## **Creation, Step Eight: Assign Additional Backgrounds, Background Descriptions, Rites** , page 199. 
 
 ## **System** 
@@ -22485,8 +22224,7 @@ Alona McCreary (Order #15311115)
 
 Alona McCreary (Order #15311115) 
 
-**==> picture [257 x 134] intentionally omitted <==**
-
+**
 _“Some say that the great caerns are a symbol of hope for a better tomorrow. Bah! The great caerns are a testament to our tenacity. Despite everything the Wyrm threw at us, the umbral storms, the Caern Plague, and the Siege of the Dark Brigade, the great caerns survived. We raged against their hate and filth! We endured! We won, though we drowned our enemies in our blood.”_ 
 
 —Valka One-Eye, Jarl of the Sept of the Blood Fist 
@@ -22527,16 +22265,14 @@ For a time, the nation was in chaos. Frantic survivors didn’t know where to tu
 
 The discovery of shard seeds gave birth to the first shard caern in Las Vegas, bringing a new hope to the Garou Nation. Wanderers and refugees, though tired and increasingly desperate, found themselves filled with new purpose. Dutifully, they made their way to the remaining great caerns to receive cultivated shard seeds. Like the seeds themselves, their hopes had been brought back from extinction, and they saw within them a promise that life as they once knew it might someday return. The Garou slowly began the process of reclaiming their destroyed caerns, replacing them with ones powered by the new shard seeds. Meanwhile, the great caerns continued to fortify themselves, their survival increasingly vital to Garou Nation. 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 ## **Lost Great Caerns** 
 
 The opening battles of the Age of Apocalypse were a time of immense turmoil. Initial reports were frantic, as caerns worldwide came under simultaneous assault, leaving much of the world under the fog of war. Lists of casualties remain incomplete, with Garou in the thousands presumed dead. A number of caerns simply “went dark” in the chaos and still remain lost. 
 
 Some believe that there are lost great caerns sleeping deep in the remaining places of the Wyld. These caerns may have escaped the Siege of the Dark Brigade, perhaps because their Moon Bridges were deliberately severed or because the Garou who tended them were isolated enough to somehow escape notice. Garou and Fera alike have begun scouring the corners of the world, seeking to claim the glory that would come from discovering a lost great caern. News that any caern managed to survive would be a boost to morale, as well as a tactical boon in securing territory against the Wyrm. 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
 554 
@@ -22549,8 +22285,7 @@ Thirteen great caerns survived the plagues and the Siege of the Dark Brigade. Th
 
 any inspiration to keep fighting. Although they are few in number and often found in areas far from civilization, the great caerns are rabidly defended by all; the survival of the nation and of Gaia depends on the stability of these precious few places of power. 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 ## The Great Caerns of North America 
 
 ## Sept of Forgotten Waters 
@@ -22567,14 +22302,12 @@ Maurepas Swamp, Louisiana, United States
 
 Situated deep in the Louisiana swamp, the Sept of Forgotten Waters is not an easy place to find. The Warders and Guardians have used the natural defenses of the wetlands to hide their presence from those who would wish them harm. Travel to the caern’s site can be difficult, often necessitating the use of boats to travel through the area. The deep waters surrounding the protectorate are patrolled by the two Mokolé who call Forgotten Waters home, and the nearby towns are watched by Bone Gnawers. The caern itself is set at the center of the protectorate on a large, flat stretch of ground, peppered with ancient trees. Here, the sept structures can be found. The Sept of Forgotten Waters takes particular pride in its challenge ring, a massive muddy wallow. 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 ## **The Beast Courts and Dragon Nests** 
 
 The Stargazer tribe has reported that, in spite of the Wyrm’s devastating assault, the Beast Courts were able to secure and retain an unknown number of their own caerns, known as **Dragon Nests** , in undisclosed locations throughout Asia. The Garou Nation has yet to bridge centuries of distrust to learn more, but there is hope that perhaps there are others fighting the good fight to restore Gaia. As they were party to the discovery of the shard seeds, it is expected that the Beast Courts are using similar methods to retake their former holdings. 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 555 
 
 Chapter twelve: Caerns 
@@ -22595,8 +22328,7 @@ Caribou River Park Reserve, Manitoba, Canada
 
 Nestled in the wilds of Canada, the Sept of the Last Breath has stood unflinching in the face of storms, both natural and umbral. The lands of the protectorate are harsh and wild, and those who inhabit the sept are of a similar vein. As the caerns of the world were being overrun by minions of the Wyrm, this caern stood firm as the sept’s Theurges summoned powerful storms to sweep the area. When the Wyrm’s hordes were forced to take shelter, the sept’s warriors emerged, and they fought in close quarters despite the freezing conditions. Through their efforts, they dispatched the Wyrm, and the sept was able to serve as a staging point to aid in relief efforts. But the Wendigo who call the sept home protected their caern at great cost, and they are continuing to slowly rebuild their numbers. 
 
-**==> picture [301 x 98] intentionally omitted <==**
-
+**
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
 556 
@@ -22981,14 +22713,12 @@ Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE
 
 Alona McCreary (Order #15311115) 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 ## **Risk Versus Reward: Opening a Moon Bridge** 
 
 Opening a Moon Bridge is a dangerous proposition since the return of umbral storms. Creating the spiritual connection required for travel necessitates lowering the defenses of both the points of origin and destination. This channel renders caerns more vulnerable to banes and other offensive spirits. With so few remaining great caerns, it is key to communicate with one’s destination before lowering such barriers in order to avoid serious repercussions. As a result, travel between caerns via Moon Bridge is far more uncommon than it once was, at least without very real assurances that both locations will be safe from any spirits attempting to take advantage of the opening. 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 Should the way be open at the desired destination, either through arrangement, happenstance, or an act of sabotage, then the Moon Bridge can transport up to five travelers at once. These individuals arrive at the location of the destination’s Pathstone, which typically is found at the target sept’s waystation. Very often, visitors are met by the Warder or one of her assistants, and some other quantity of able-bodied Garou. Barring prior arrangement, travelers are expected to introduce themselves and disclose the purpose of their visit before leaving the vicinity of the Pathstone. 
 
 ## Shard Caerns 
@@ -23203,14 +22933,12 @@ In the Age of Apocalypse, there are few sins as heinous as the theft of a shard 
 
 In order to successfully rob a caern of its seed, its totem spirit must first be rendered discorporate, as it will try to interfere with any attempt to unearth a seed. Defeating such a spirit is no easy task, as it is in the heart of its power. Then the seed itself must be physically unearthed and removed from the periphery in which the caern was located. Even all this is only half the battle, as no crime is complete until the getaway. A stolen shard seed can be sensed by those bound to it for a time after the theft, hopefully allowing the wronged werewolves a chance to reclaim their seed and restore their caern. For more information, refer to the Rite of Acceptance in **Chapter Eleven: The Garou Nation, Rites, Rite of Acceptance** , page 546. All told, stealing an unplanted shard seed is far easier than wresting one from its home within a shard caern. 
 
-**==> picture [433 x 18] intentionally omitted <==**
-
+**
 ## **Pressure Forges Diamonds: Increasing Drama and Tension** 
 
 Balancing the excitement of successfully creating a shard caern with increased pressure and danger enhances the drama of any story. Forcing players to make decisions about what can be done, what should be done, and what needs to be done allows their characters to develop and grow. Storytellers should be careful not to overload their players to such an extent that success is impossible, and you should generally seek to avoid crushing the newly formed caern under too many enemies and threats before the players have a chance to savor the success they’ve achieved. Applying some pressure, however, gives characters chances to grow in different ways as they make hard choices. This challenge creates personal and political drama, which enriches the stories in any chronicle. 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
 576 
@@ -23231,8 +22959,7 @@ A shard caern can be destroyed if its totem has been rendered discorporate and i
 
 - **Destruction of the Stolen Seed:** Primarily a tactic of the Wyrm and its minions, removal of a shard seed from its sept makes the seed far easier to destroy. 
 
-**==> picture [293 x 137] intentionally omitted <==**
-
+**
 577 
 
 Chapter twelve: Caerns 
@@ -23289,8 +23016,7 @@ Alona McCreary (Order #15311115)
 
 Alona McCreary (Order #15311115) 
 
-**==> picture [307 x 134] intentionally omitted <==**
-
+**
 _“Time and space, as we understand the concepts, are meaningless in a place forged from perspective.”_ — Verity Argyris, Black Fury, Historian 
 
 Astronomers looked up into the sky at the shadow cast by the moon and named it the “umbra,” from the Latin word meaning “ghastly” or “shade.” The _Umbra_ is the spirit world, a shadowy reflection of the Material Realm, inhabited by spirits, banes, ghosts, and other ethereal beings. It exists as a distorted mirror of the Material Realm and serves as a bridge to a multiverse of mystical realms and realities known as the _Tellurian_ . 
@@ -23327,14 +23053,12 @@ When crossing the Gauntlet, a werewolf can bring with her any inanimate objects 
 
 To cross the Gauntlet, a werewolf must spend 1 point of Gnosis and then spend a variable amount of time and effort focusing on a reflective surface. The time required to cross the Gauntlet and enter into the Umbra depends on the where the Garou is trying to pass, according to the chart on page 585. 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 ## **The Nature of Spiritual Affinity** 
 
 A werewolf’s default spiritual affinity is Wyld. The merit Wyld Affinity (see **Chapter Six: Merits and Flaws, Sanctum of Gaia Merits, Wyld Affinity** , page 316) cements this natural connection, but it is not required for the purpose of entering and existing the Umbra. Garou who wish to switch their affinity to the Weaver must purchase the merit Weaver Affinity (see **Chapter Six: Merits and Flaws, Concordat of Stars Merits, Weaver Affinity** , page 316). 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
 584 
@@ -24342,8 +24066,7 @@ Alona McCreary (Order #15311115)
 
 Alona McCreary (Order #15311115) 
 
-**==> picture [350 x 195] intentionally omitted <==**
-
+**
 _“Werewolves believe they are the keepers of the earth, and the only ones concerned with her well-being. It’s their arrogance and rage that makes the rest of us hesitant to offer our assistance. Their loss, really.”_ 
 
 — Countess Annabelle McKinnon, Fae Noble 
@@ -24374,16 +24097,14 @@ Chapter Fourteen: allies and a ntagonists
 
 Alona McCreary (Order #15311115) 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 ## **Epic Stock NPC Rules (Optional)** 
 
 Storytellers running an epic chronicle in which player-characters have a high level of XP may wish to utilize the optional _Epic Chronicle Stock NPC rules_ . Using this system, Stock NPCs may have a rating between 1 and 10; Stock NPCs rated 6-10 provide an increased level of challenge. 
 
 For example, a Stock NPC with a rating of 10 uses a test pool of 20 for most opposed challenges. Other Stock NPCs with an already increased test pool, such as Celestines, simply gain 5 to their ratings. 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 ## Skill Specializations 
 
 When an NPC attempts a challenge that utilizes one of her skill specializations, she receives a +5 bonus to that test pool. For example, if a bartender with an NPC rating of 3 has a specialization in Brawl, her test pool is 11 (instead of the normal 6) in Brawl-related opposed challenges. 
@@ -24541,8 +24262,7 @@ Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE
 
 Alona McCreary (Order #15311115) 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 ## **Player-Characters Becoming Legends** 
 
 Although Legends are not an appropriate character type for player-characters, there may come a time when you decide that a character in your chronicle has succeeded to the point where she has earned the title. Some players may find that after they have reached the Rank of Elder, their characters have peaked, and it would be an appropriate time to retire the character. 
@@ -24551,8 +24271,7 @@ In these situations, a Storyteller may choose to allow a player-character to bec
 
 This story arc should only be utilized for characters who have gone above and beyond for the Garou Nation and who have exhibited strong leadership skills. It is rare for an Elder to be elevated to the Rank of Legend, so this promotion should be used sparingly and only when dramatically appropriate. 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 Often aloof and unapproachable, Legends tend to keep to themselves, rarely allying with any single sept, but rather traveling as they feel called to continue in their duties to Gaia. They often leave the day-to-day dealings of the nation to the rest of the Garou, preferring to spend their time and energy dealing with the bigger issues at hand. Legends who have aligned with the Wyrm are often found in massive hives, but tend to shy away from the front lines unless the war demands it. Given the volatility of Black Spiral Dancers, it is no surprise that there are very few Legends among their numbers. Given the immense power and experience a Legend possesses, they cannot be player-characters in **Mind’s Eye Theatre: Werewolf The Apocalypse** . 
 
 A Storyteller should think carefully before introducing a Legend into her chronicle. With few of these Garou remaining, they are incredibly rare, extremely powerful, and can easily unbalance a game. If players too easily overcome an antagonist Legend such as a Black Spiral Dancer Legend who is leading a hive, a Storyteller risks making her players feel as though the world isn’t dangerous. However, if it is too difficult for players to overcome that antagonist, that Storyteller runs the risk of slaughtering every character in her game. 
@@ -24619,8 +24338,7 @@ Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE
 
 Alona McCreary (Order #15311115) 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 ## **The Streams of the Mokolé** 
 
 The Mokolé can be divided into four streams, which dictate the location and the breed, or _varna_ , of the saurians: 
@@ -24633,8 +24351,7 @@ The Mokolé can be divided into four streams, which dictate the location and the
 
 **Zhong Lung:** The Stream of the Philosophers works closely with the Beast Courts, and they possess fewer memories of violent conflicts with other shapeshifters. They can be found throughout the Middle Kingdoms of China, Korea, Japan, and Vietnam, and they are known for their patience and serenity. Their varnas include saltwater crocodiles, Chinese alligators, and Monitor lizards, particularly the Komodo dragon. 
 
-**==> picture [433 x 18] intentionally omitted <==**
-
+**
 ## Appearance 
 
 The Mokolé have three forms: Homid, Archid, and Suchid. The Archid war-form of every Mokolé is different, based on her varna and the specific memories she carries from the time when the Lizard Kings once walked the earth. While each Mokolé always retains her reptilian nature in her Archid form, the specifics vary greatly between individuals. One might be a towering monstrosity, reminiscent of dinosaurs, while another might scurry on four legs like a prehistoric crocodile. Regardless of their appearance, each Mokolé’s form is terrifying, and it inflicts Delirium on those who see it. In her Homid form, a Mokolé takes on the appearance of the peoples of her Stream, and in her Suchid form, she assumes the appearance of her varna species. 
@@ -24827,8 +24544,7 @@ Gaffling – Element Spirits
 
 These spirits can manifest as any commonly found element, such as Air, Earth, Fire, Water, or rarer elemental representations such as Electricity, Glass, or Atomic. While these spirits are often minor Gafflings, they can also be found as Jagglings. 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 ## **Spirit Bans** 
 
 Spirits will sometimes require a _ban_ as part of an exchange with a werewolf. For example, a Garou may have to agree to accept a ban against killing small rodents in order to gain assistance from one of Rat’s brood. Garou may also voluntarily accept a spirit’s ban as a show of good faith and solidarity with a spirit she is petitioning for assistance. 
@@ -24837,8 +24553,7 @@ If a Storyteller introduces a spirit into her game, she should know what its ban
 
 Garou who break a spirit’s ban after they have agreed to uphold it run the risk of finding themselves on the bad side of that spirit. Characters who do this may temporarily gain the flaw Spirit Notoriety (see **Chapter Six: Merits and Flaws: Flaws, Spirit Notoriety** , page 327). 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
 622 
@@ -24999,14 +24714,12 @@ To create an Incarna, use the same rules for creating standard supernatural Stoc
 
 - Incarna can spend 1 point of Gnosis to manifest in the physical world for one hour. While manifested, the spirit can attack, be attacked, and use powers on individuals in the physical world as if the spirit were 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 ## **Storyteller Warning: Incarna** 
 
 Although Incarna can be created using the Stock NPC rules, a fair amount of planning and thought should be put into the creation of one of these spirits. They should not be made frivolously or on-the-spot. Remember, each Incarna is a singular one of its kind. It is the defining spirit for its brood. Serious consequences should befall anyone who trifles with these powerful spirits. 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 625 
 
 Chapter Fourteen: allies and a ntagonists 
@@ -25249,14 +24962,12 @@ Celestine – Realm of Venus
 
 **Special:** Tambiyah has a test pool of 50 in most challenges. In challenges involving any appropriate skills for the spirit, her test pool is 55. Tambiyah has access to all appropriate gifts. Tambiyah is the Celestine ruler of the realm of Venus. This realm is a lush jungle paradise, a place like the world before humanity began to destroy it. She is a spirit that cares deeply for women and children. Her handmaindens are song spirits, whose crystalline tones warn her of any seeking entry to her realm. Black Furies hold a special place in this spirit’s heart, though they often refer to her as Aphrodite. 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 ## **Storyteller Warning: Celestine** 
 
 Although Celestines are created using the Stock NPC rules, a fair amount of planning and thought should be put into the creation of these spirits. They should not be made frivolously or on-the-spot, and their interaction within a local chronicle should be limited. Celestines are the most powerful spirits beneath the Triat themselves. They do not leave their home realms, instead relying on Incarna avatars of themselves and powerful Jaggling servants in order to enforce their will or agenda on other umbral realms or the physical world. 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
 630 
@@ -26229,22 +25940,19 @@ Just as Gaian Garou maintain septs, the Black Spiral Dancers have their _hives_ 
 
 Black Spiral Dancers believe the Wyrm’s imprisonment led to severe multiple-personality disorder, splitting it into three heads: the Beast-of-War, the Eater-of-Souls, and the Defiler Wyrm. The Beast-of-War is the Wyrm of Calamity, a monster of endless rage that embraces the Wyrm’s love of chaos. The Eater-of-Souls is the Wyrm of Consumption, which fulfills the Wyrm’s desire to unify through devouring everything. The Eater-of-Souls once nearly manifested, and it was only stopped by the sacrifice of the Croatoan tribe. The Defiler Wyrm is the Wyrm of Corruption, focusing on the Wyrm’s desire to destroy from the inside. 
 
-**==> picture [433 x 18] intentionally omitted <==**
-
+**
 ## **Black Spiral Dancers as an Antagonist Faction** 
 
 Some Storytellers may wish to allow Black Spiral Dancers as player-characters in a nontraditional setting. For more information on how a Storyteller might build such a custom setting, see **Chapter Ten: Storytelling, Crossover Settings: Antagonist Factions** , page 467. 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 651 
 
 Chapter Fourteen: allies and a ntagonists 
 
 Alona McCreary (Order #15311115) 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 ## **The Dark Litany** 
 
 The Black Spiral Dancers have their own laws that they must obey. These laws are sacred, and the Black Spiral Dancers are vicious about punishing their own when they stray too far from these twisted beliefs. Often, the punishment for failing to uphold the Dark Litany is death, preferably preceded by torture. 
@@ -26267,8 +25975,7 @@ The Black Spiral Dancers have their own laws that they must obey. These laws are
 
 - **Ye Shall Take No Action That Causes a Pit to Be Violated:** Black Spiral Dancers hold their pits as sacred places, and only agents of the Wyrm are allowed within. Any Black Spiral Dancer who brings an outsider into a pit will be killed. 
 
-**==> picture [433 x 18] intentionally omitted <==**
-
+**
 ## Organization 
 
 There are no camps within the Black Spiral Dancers, as all members share the same fanatical worship of the Wyrm. 
@@ -26473,8 +26180,7 @@ Angel “Smile Pretty” Johannsen Homid Black Spiral Dancer Ragabash **Stock NP
 
 Angel was once a Black Fury, but she chose to join the Black Spiral Dancers. Unlike many of her brethren, who are twisted and deformed, she prefers to take a subtler approach. She acts as a face for her tribe, drawing targets into her hive. 
 
-**==> picture [13 x 374] intentionally omitted <==**
-
+**
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
 656 
@@ -26591,30 +26297,26 @@ Those who become Skin Dancers are dangerous enemies to Garou. They understand th
 
 Skin Dancers understand that there is strength in numbers, and that their unity may be the only thing standing between them and annihilation. While they may not always agree on the best course of action, they still remain in solidarity with one another. Although Skin Dancers are not a true tribe, it is their ultimate goal to eventually gain sufficient numbers to rival other tribes. 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 ## **Skin Dancers as an Antagonist Faction** 
 
 Some Storytellers may wish to allow Skin Dancers as player-characters in a non-traditional setting. For more information on how a Storyteller might build such a custom setting, see **Chapter Ten: Storytelling, Crossover Settings: Antagonist Factions** , page 467. 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 659 
 
 Chapter Fourteen: allies and a ntagonists 
 
 Alona McCreary (Order #15311115) 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 ## **The Rite of Rebirth** 
 
 The Rite of Rebirth is a vile ritual that allows a kinfolk to become a werewolf. In order for her to enact this ritual, she must first kill and skin five Garou. Once she has murdered her victims, she completes the rite by stitching the skins together during an elaborate ritual, culminating in a painful and brutal First Change for the new Skin Dancer. All of the murdered Garou must be killed during the same phase of the moon in order for the ritual to succeed. 
 
 A kinfolk who has undergone this rite always carries a trace of Wyrm Taint. The only way to escape this corruption is to find five willing Garou who give their knowing consent, freely allowing the kinfolk stitch their skins together—an outcome so unlikely that it is functionally impossible. 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 ## Appearance 
 
 The majority of Skin Dancers carry with them Wyrm Taint, an echo of the corruption-laden ritual required to grant them their gifts. Skin Dancers can be found in all parts of the world. When a Skin Dancer is in any of her forms, she bears tell-tale stitch-like scars. In Crinos, Hispo, and Lupus form, her fur is particolored, showing distinct patches from each of the five Garou whose skins were used in the ritual. 
@@ -26727,8 +26429,7 @@ Homid Skin Dancer Theurge **Stock NPC:** Rating 2
 
 Morgan was born and raised without ever knowing of his Garou heritage. He encountered a Skin Dancer as a young man, and the life of a powerful shapeshifter attracted him. Working alongside his new mentor, he embraced his transformation. His only interaction with the Garou Nation, besides to obtain his skins, has been to avoid them at every turn. 
 
-**==> picture [238 x 151] intentionally omitted <==**
-
+**
 ## The Pentex Corporation 
 
 Perhaps the most pervasive of the Wyrm’s tools is the global corporation _Pentex_ . Very few employees actually understand the breadth of what Pentex is doing, but this ignorance does not stop the megacorporation from continuing to grow and pollute the earth. Pentex was initially founded under the name Premium Oil by Jeremiah Lassater, who found himself under the sway of a powerful bane when drilling released 
@@ -27301,14 +27002,12 @@ Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE
 
 Alona McCreary (Order #15311115) 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 ## **Storyteller Note:** 
 
 Zmei are incredibly potent and powerful, possibly even chronicle-ending threats, on par with Celestines. As such their use should be very carefully considered. These creatures’ capture was achived by whole tribes, causing high casualties. Storytellers should use the **Giant Monster** rules (page 613) for Zmei, and should only include them in their chronicles with the utmost forethought and care. 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 This rift leads directly back to their home in the Deep Umbra realm of Malfeas, and the rift closes after 10 turns. 
 
 • Zmei scales are formidable armor, infused with primal forces. They automatically reduce the damage of a successful Physical attack by 2 points of damage. 
@@ -27477,8 +27176,7 @@ Special Agent Nathan Linden Project Twilight Hunter
 
 Special Agent Nathan Linden joined the FBI after college. He was attacked and turned into a vampire ghoul shortly after joining the Bureau, and he discovered what truly lurked in the darkness. After his regnant was destroyed, he was sought out by other members of Project Twilight and was brought into their fold. He has joined an elite team of hunters who search for rogue Garou. 
 
-**==> picture [181 x 158] intentionally omitted <==**
-
+**
 679 
 
 Chapter Fourteen: allies and a ntagonists 
@@ -27555,8 +27253,7 @@ To create a vampire, use the same rules for creating standard werewolf player-ch
 
 - Vampires on the Path of Humanity are considered to always be in the first stage of Wyrm Taint. Vampires 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 ## **Vampire Blood** 
 
 The blood of vampires is incredibly potent and addictive, but it carries with it heavy side effects. For the next 24 hours after a Garou drinks a point of vampire Blood, she begins each combat with 1 additional point of Rage, cumulative with any other bonuses she may possess. 
@@ -27567,8 +27264,7 @@ If a Garou drinks the Blood of a vampire who possesses a Path of Enlightenment m
 
 Garou and Fera are not immune to the blood bond. If a shapeshifter drinks from the same vampire on three different occasions, she becomes emotionally bound to the vampire’s will and is in her mental thrall. For more information, see **Mind’s Eye Theatre: Vampire The Masquerade, Chapter Seven: Dramatic Systems, Blood Bond** , page 295. 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 681 
 
 Chapter Fourteen: allies and a ntagonists 
@@ -27713,14 +27409,12 @@ Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE
 
 Alona McCreary (Order #15311115) 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 ## **Abomination Player-characters** 
 
 Abominations make excellent antagonists for **Mind’s Eye Theatre: Werewolf The Apocalypse** stories, but Storytellers should take great care before they allow them as player-characters. The sheer power of this character type, as well as the unpredictable reaction to it by other Garou, leads to far more antagonism in a game than is usually healthy. For detailed information and crossover rules for Abomination player-characters run with **Mind’s Eye Theatre: Vampire The Masquerade** , please see **Chapter Ten: Storytelling, Crossover Settings: Antagonist Factions, Vampire Crossover Setting** , page 467. 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 Those Abominations who survive are incredibly powerful, and many of them quickly fall into insanity, degenerating into bestial creatures whose rage and need for blood threatens the Veil at every turn. The rare few who retain their sanity become dangerous hunters who often attack vampires and Garou alike. The Age of Apocalypse has seen a rise in the prevelance of these creatures, with more of them surviving the Embrace. There is no clear answer regarding what has changed to make Abominations more likely to survive, but some Theurges believe it is just another indication that the Apocalypse draws ever closer. 
 
 ## Organization 
@@ -27735,16 +27429,14 @@ Abominations retain much of their appearance from before their Embrace; however,
 
 While Abominations retain both their werewolf and vampiric abilities, the drawbacks are massive. Once the Embrace is complete, an Abomination loses all of her connection to Gaia and to her former tribe. She can still access the gifts she had previously learned, including tribal gifts, but any new ones must be taught to her by a bane spirit. Additionally, an Abomination is fully blood bound to her sire, and she has all of the weaknesses of both vampires and Garou. She retains her tribal weakness and gains the clan weakness of her vampiric sire. 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 ## **The Embrace** 
 
 When a Garou is Embraced, she undergoes an excruciating change that often lingers for days or even weeks. The spiritual aspect of her personality fights the vampiric blood attempting to invade her body. Garou who are particularly powerful often find the experience blessedly brief, if extraordinarily painful. 
 
 The longer a Garou lingers on the cusp of life and death, the more likely she is to spiral into madness, as the vampiric blood takes over her body. 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 685 
 
 Chapter Fourteen: allies and a ntagonists 
@@ -27993,10 +27685,7 @@ Order of Hermes Mage
 
 Avery is a young mage: a member of the Order of Hermes. She is a dedicated researcher, and she specializes in dealing with spirits. Although she doesn’t mean harm, she often crosses the Garou because the Umbra is not her native place, and she lacks the innate connection shapeshifters have with spirits. 
 
-**==> picture [221 x 16] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-Chapter Fourteen: allies and a<br>ntagonists<br>**----- End of picture text -----**<br>
+**
 
 691 
 
@@ -28084,14 +27773,12 @@ To create a wraith, use the same rules for creating standard werewolf player-cha
 
 - A Wraith may choose the Gifts specialization (see **Stock Non-Player Character Generation, NPC Specializations, Gift Specializations** , page 612). 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 ## **Shapeshifter Souls** 
 
 When a shapeshifter dies, her spirit returns to the cycle of death and rebirth, awaiting its next incarnation. Some Garou choose to avoid this fate, becoming ancestor spirits and guiding their descendants and other shapeshifters from the different Tribal Homelands or other umbral realms. Due to the twin nature of spirit and material that makes up all shapeshifters, they do not become wraiths. 
 
-**==> picture [433 x 18] intentionally omitted <==**
-
+**
 693 
 
 Chapter Fourteen: allies and a ntagonists 
@@ -28232,8 +27919,7 @@ At the Sept of Tranquil Sands, Donnie had impersonated the Master of the Rite, h
 
 Hiding behind the rock formation, Donnie could hear the two of them talking, likely engaging in some bizarre display of crotch-sniffing. The hilarity of it all got to him, and he couldn’t contain his laughter any further. He stepped out from behind the rocks, revealing himself. 
 
-**==> picture [59 x 9] intentionally omitted <==**
-
+**
 “You wolves and your formalities. I bet you haven’t even figured out why you’re both here.” 
 
 Looking at the snarling figures standing across from him, he gulped and hoped Coyote was watching over him. “Now, now, gentlemen,” he assured them, playing it cool. “I’ve got your fetishes right here. There’s no need to get upset over a few material things. I’m sure once you hear what I’m proposing, everything will make sense. After all, we’re all family…” 
@@ -28242,8 +27928,7 @@ Alona McCreary (Order #15311115)
 
 Alona McCreary (Order #15311115) 
 
-**==> picture [422 x 200] intentionally omitted <==**
-
+**
 _“Leadership is influence.”_ 
 
 — John C. Maxwell 
@@ -28706,14 +28391,12 @@ Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE
 
 Alona McCreary (Order #15311115) 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 ## **Silver Ammunition and Regeneration** 
 
 When a werewolf is shot by a silver bullet, her regeneration ability normally expels the silver from her body before it can start to cause negative effects beyond those inflicted by the initial shot. If, for some reason, a werewolf is unable to regenerate, she begins losing Gnosis every turn until the silver is removed; such removal requires succeeding in a challenge using one’s Mental attribute + Medicine skill versus a difficulty rating of 12. 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 Willpower to retest after some challenges are resolved, you cannot go back to previous challenges you’ve lost and apply that Willpower retest retroactively. You inflict your victory condition on every target you defeat in this challenge. This weapon cannot hold more than six rounds, unless it also has the Ammo Capacity quality. Weapons with the Spread quality cannot also have the Automatic or Long Range qualities. 
 
 - **Staking:** When fighting a vampire who has damage in her Incapacitated wound track, you can use this weapon in combination with the Pierce the Heart combat maneuver to stake that vampire. You must still pay all costs for the Pierce the Heart combat maneuver. A ranged weapon with the Staking quality requires both hands to wield and has an ammo capacity of 1. In addition, ranged weapons with the Staking quality cannot benefit from qualities that increase ammo capacity. 
@@ -28786,36 +28469,20 @@ Alona McCreary (Order #15311115)
 
 - **Superior:** This piece of equipment gives you a +1 wild card bonus to your test pool when used for its intended purpose. For example, a Superior set of lock picks gives you a +1 bonus when using the Security skill to pick a lock. A Superior computer gives you a +1 bonus when performing any standard Computer skill challenge. You cannot benefit from the Superior quality if you do not have the appropriate skill to use this item. This quality may be applied multiple times to a single item. 
 
-**==> picture [505 x 375] intentionally omitted <==**
-
-**==> picture [566 x 47] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-Chapter FiFteen: inFluenCes and equipment 711<br>Alona McCreary (Order #15311115)<br>**----- End of picture text -----**<br>
+**
+**
 
 Alona McCreary (Order #15311115) 
 
-**==> picture [105 x 21] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-Sample Equipment<br>**----- End of picture text -----**<br>
+**
 
 These are some examples of simple equipment that can be found in the World of Darkness. By expending the appropriate downtime actions, crafting, or otherwise taking reasonable effort, a character can acquire one of these items. 
 
-**==> picture [566 x 633] intentionally omitted <==**
+**
 
-**----- Start of picture text -----**<br>
-Two-Handed Axe Two-Handed Sword<br>Qualities:  Brutal, Deadly Qualities:  Accurate, Brutal<br>Katana Silver Dagger<br>Qualities:  Accurate, Fast Qualities:  Concealable, Silver<br>Throwing Knife  Spear<br>Qualities:  Balanced, Accurate Qualities:  Staking, Reach<br>Chapter FiFteen: inFluenCes and equipment 713<br>Alona McCreary (Order #15311115)<br>**----- End of picture text -----**<br>
+**
 
-**==> picture [612 x 792] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-Wooden Stake  Shotgun<br>Qualities:  Concealable, Staking Qualities:  Spread, Accurate<br>Elephant Gun  Pistol (Dragon’s Breath)<br>Qualities:  Brutal, Deadly Qualities:  Accurate,<br>Incendiary Ammunition<br>High-Caliber Rifle  Sniper Rifle<br>Qualities:  Accurate, Brutal Qualities:  Accurate, Long Range<br>714 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE<br>Alona McCreary (Order #15311115)<br>**----- End of picture text -----**<br>
-
-**==> picture [487 x 681] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-Machine Gun Gaming Laptop<br>Qualities:  Automatic,   Qualities:  Superior,<br>Ammo Capacity II Customized: Video Games<br>Sports Car Wall-Safe<br>Qualities:  Flashy, Stylish Qualities:  Secure, Concealed<br>Alchemical Set Table Leg Club<br>(Improvised)<br>Qualities:  Antique, Streamlined Quality:  Staking<br>Chapter FiFteen: inFluenCes and equipment<br>**----- End of picture text -----**<br>
+**
 
 715 
 
@@ -28905,10 +28572,7 @@ Alona McCreary (Order #15311115)
 
 Sample Talens 
 
-**==> picture [66 x 18] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-Funerary Tea<br>**----- End of picture text -----**<br>
+**
 
 _This concoction is a mix of wine and herbs used as part of Ancient Egyptian mummification rituals. Ingesting the talen causes the person who drinks it to be identified by the spirits of the dead as one of their own._ 
 
@@ -28982,12 +28646,8 @@ Fetishes are created according to the following table. Additional information ab
 ||4|22|Complex Quest, DiffcultyRating4|2|4||
 ||5|26|Heroic Quest, DiffcultyRating2|2|5||
 
-**==> picture [280 x 271] intentionally omitted <==**
-
-**==> picture [224 x 15] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-Chapter FiFteen: inFluenCes and equipment<br>**----- End of picture text -----**<br>
+**
+**
 
 719 
 
@@ -29093,8 +28753,7 @@ Chapter FiFteen: inFluenCes and equipment
 
 Alona McCreary (Order #15311115) 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 ## **Klaives and Tribal Weapons** 
 
 _Klaives_ and tribal weapons are among the rarest and most powerful weapons available to the Garou. These fetishes are carefully guarded, and their loss is considered a serious breach of honor. Both Klaives and tribal weapons require a special vessel to create, must be crafted according to certain specifications, and must be a level 4 or 5 weapon fetish to be considered truly worthy. While it is possible to create a weapon that has the shape and heft of one of these fetishes, if it does not meet the accepted requirements, it is considered an inferior imitation or at best a decorative piece, beneath the honor of a werewolf to wield. All Klaives and tribal weapons receive the Epic cantrip for free. 
@@ -29109,8 +28768,7 @@ _Tribal weapons_ are stylized weapons preferred by many of the tribes. Some, but
 
 To create a vessel suitable for a tribal weapon, its creator must have a weapon-smithing Crafts skill specialization, as well as a Lore specialization about the tribe whose weapon she’s creating. She must also succeed in a challenge using a test pool of her Mental attribute + highest smithing Crafts skill versus a difficulty rating of 16 to create the vessel. For example, creating a vessel for a Da’sai requires the Lore skill specialization: Silent Striders. Tribal weapons created as level 4 weapon fetishes are considered the standard variety. Legendary tribal weapons are created as level 5 weapon fetishes; examples of such weapons include Jarlhammers and Bronze Labryses. The vessel for any tribal weapon at level 5 must have the Masterwork quality. 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE 
 
 722 
@@ -29707,8 +29365,7 @@ Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE
 
 732 Alona McCreary (Order #15311115) 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 ## **Fetishes and Misuse** 
 
 Although traditionally the Theurge auspice is charged with communication with the spirits, Philodox enforce contracts between Garou and spirits. In the wake of recent tragedies, many Philodox have renewed their commitment to ensuring equitable dealings with spirits when it comes to fetishes, for fear that the Garou may see their ability to create them diminished. 
@@ -29717,8 +29374,7 @@ In particular, Philodox are especially vigilant of those who produce fetishes so
 
 A growing number of Theurges, however, claim that the Philodox go too far, confiscating caches of fetish supplies intended for caern and sept defense. Some very keenly note that these confiscations seem much more common across tribal lines, calling them little better than glorified power-grabs. While the legitimacy of fetish confiscation remains in dispute, this claim may have some truth. Philodox of the Silver Fangs have been known to be especially zealous when it comes to dealing with Theurges of other tribes. 
 
-**==> picture [433 x 19] intentionally omitted <==**
-
+**
 ## Example of Fetish Creation 
 
 _Rebecca “Soaring Souls” has the gift Forge of the Fetish (see_ _**Chapter Five: Gifts, General Gifts, Level 3 Gifts, Forge of the Fetish** , page 282) and is looking to create a fetish that can repel harmful spirits. She has crafted a rattle made from a buffalo horn that she wishes to give the Repulsive quality. Working with her Storyteller, the player declares her intent to create a fetish. As the Repulsive fetish quality costs 2 fetish points, it will be a level 2 fetish._ 
@@ -29753,8 +29409,7 @@ Alona McCreary (Order #15311115)
 
 Alona McCreary (Order #15311115) 
 
-**==> picture [354 x 150] intentionally omitted <==**
-
+**
 _By Night Studios extends its heartfelt thanks to our generous and patient Kickstarter backers, who made this book possible._ 
 
 “Inquisitor” Edward Neil “Eagle’s Splendor Pack” - Ender, Hex, Popey, Q, Lewis “One-Arm” Heath Cole “Relentless Pursuit” 
@@ -29867,19 +29522,14 @@ Wes Divin Wesley A McKeown Whiskey, Desiree and the Sept of the Vailed Valley Wh
 
 Wise in the Ways of Beast and Man Wolfen Dancer www.malkavianmadnessnetwork. com Xanny Peters Yi Sparrow “Carries Sorrow’s Burden” Zach Greggs Zachary Thomas Tyler, Uktena Galliard Earth Guide Zarker Zexuswolf Zin Raziel Zoe Cain 
 
-**==> picture [307 x 348] intentionally omitted <==**
-
-**==> picture [111 x 12] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-KicKstarter BacKers<br>**----- End of picture text -----**<br>
+**
+**
 
 743 
 
 Alona McCreary (Order #15311115) 
 
-**==> picture [174 x 84] intentionally omitted <==**
-
+**
 ## A 
 
 Abominations, 686 Appearance, 685 Creating NPCs, 685 Organization, 685 Player-Characters, 685 Weakness, 685 
@@ -30728,12 +30378,8 @@ Zmei, 674 History, 59
 
 XP. _See_ Experience Points 
 
-**==> picture [487 x 362] intentionally omitted <==**
-
-**==> picture [369 x 13] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-758 Mind’s EyE ThEaTrE: WErEWolf ThE apocalypsE<br>**----- End of picture text -----**<br>
+**
+**
 
 Alona McCreary (Order #15311115) 
 

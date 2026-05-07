@@ -2,8 +2,7 @@
 
 World of Darkness: Berlin Preview Edition 
 
-**==> picture [211 x 109] intentionally omitted <==**
-
+**
 All materials contained in this packet are protected by United States copyright law and may not be reproduced, distributed, transmitted, displayed, published or broadcast without the prior written permission of By Night Studios, LLC. 
 
 1 
@@ -52,8 +51,7 @@ Participation Design Agency, World of Darkness: Berlin, Dziobak LARP Studios, Mi
 
 Nick Riley 
 
-**==> picture [147 x 213] intentionally omitted <==**
-
+**
 © By Night Studios, LLC and White Wolf Publishing AB. All rights reserved. www. white-wolf.com. W **orld of Darkness, Vampire the Masquerade, Werewolf the Apocalypse, Storyteller System,** all tribe and clan names and symbols, are trademarks and/or registered trademarks of White Wolf Publishing AB. All rights reserved. 
 
 This book uses the supernatural for settings, characters and themes. All mystical and supernatural elements are fiction and intended for entertainment purposes only. This book contains mature content. Reader discretion is advised. 
@@ -186,8 +184,7 @@ Both **Mind’s Eye Theatre: Vampire The Masquerade** and **MET: Werewolf The Ap
 
 Koljonen and Brown have presented together and separately on safety and calibration in LARPs at various conferences and conventions worldwide. 
 
-**==> picture [120 x 249] intentionally omitted <==**
-
+**
 6 
 
 Mind’s Eye Theatre: Vampire The Masquerade 
@@ -222,8 +219,7 @@ However, problems can occur when bleed is not managed well by a community. The e
 
 Certain group behaviors can intensify the potential for long-term bleed. For example, many MET chronicle LARPers spend extended periods of time engaged in _ifgame thinking_ , where they contemplate actions that their characters may take between game sessions. The planning and deployment of downtime actions is an example of if-game thinking. LARPers also may enact scenes over email, chat programs, online forums, or in-person between sessions. While none of these behaviors are inherently problematic, they extend the magic circle for longer than a single game session. These activities also increase the amount of time that a player experiences _immersion_ in 
 
-**==> picture [468 x 315] intentionally omitted <==**
-
+**
 **Figure 1:** _Diagram of the relationship between the social contract, magic circle, alibi, and bleed. Image by Mat Auryn._ 
 
 8 
@@ -316,8 +312,7 @@ Turner, Victor. 1995. _The Ritual Process: Structure and AntiStructure._ New Yor
 
 van Gennep, Arnold. 1960. _The Rites of Passage._ Trans. M. Vizedom and G. Caffee. Chicago, IL: University of Chicago Press. 
 
-**==> picture [178 x 367] intentionally omitted <==**
-
+**
 11 
 
 Immersion Secrets 

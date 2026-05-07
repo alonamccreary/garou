@@ -1,7 +1,4 @@
-**==> picture [275 x 394] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-‘Che |<br>4 %D<br>tt<br>ts an tam bee Vpiet<br>gn<br>oh<br>**----- End of picture text -----**<br>
+**
 
 Digitally signed � by IO-Sphere� y 1O-SphereDN: � cn=IO-Sphere, � 2 IO-Sphere lO-Sphere eese:., o=Tenth Sphere, � c=US� Signature � saralie : oo Date: 2003.02.27 � Date:2008 02.27 Not Verified Not Verified 15:43:16 -05'00' 15:43:16 -05'00' 
 
@@ -23,10 +20,7 @@ This work is respectfully dedicated to Julia “Butterfly” Hill, who has lived
 
 Bill Bridges: To Jane. 
 
-**==> picture [112 x 57] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-7 @ 98 elu<br>> des SH<br>ae” | CLARKSTON, CA 30121<br>Waite Wot} USA<br>**----- End of picture text -----**<br>
+**
 
 ## GAME STUDIO 
 
@@ -56,10 +50,7 @@ Book One: Excerpts from the Record Introduction: Unfurling the Scrolls iy Invoca
 
 Pe CRwf .Che Silver Recor? ssewenanvmmn crameums€ Lora” 
 
-**==> picture [327 x 235] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-res 5 oy Aaa) kee ane<br>a tg > Te MB i ‘ iYLs ofop , . {<br>ao yp ating os ; ©<br>CEa aeCnRPSTE RS eaeegae<br>- v a oe ere * ° ote a, ae . 7 a a ~ EN BE 7 #<br>Glory grows from Inspiration.<br>Inspiration grows from The Song.<br>Sow the Song, and Glory will Blossom.<br>Tend the Song, and Glory will Grow.<br>— Galliard sayinying<br>**----- End of picture text -----**<br>
+**
 
 Well, yes, as a matter of fact, it is skin. 
 
@@ -69,10 +60,7 @@ Yeah, I did say “family” — even the Dancers are still family. We’re brot
 
 4 
 
-**==> picture [342 x 21] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-Nee semermane. Unfurling the Scrolls, Nar mune vememewumarwaen.<br>**----- End of picture text -----**<br>
+**
 
 they’re wandering souls, spinning around in an eternal Labyrinth unless some act of mercy sets ’em free. And no matter what other people tell you, we are merciful. It’s just that Nature’s idea of mercy is a little bloodier than Man’s. By human standards, the idea ofskinning someone and writing legends on the hide is pretty savage. I don’t think we’ve ever made a pretense of being anything but savage, but there’s a deeper level to my madness. As you’ve probably heard, there’s an innate connection between an object and its source. In the case of a skin, there will always be a bond between the leather and the creature from which it came — and between that creature’s skin and its soul — even when that soul has left its body. In the case of my Silver Record, that skin connects our lost siblings with the deeds of our past, the spirits ofour fellowship, and the Changing Blood which binds us all. So what looks like barbarism is an act of respect, when you take the long view. 
 
@@ -86,10 +74,7 @@ You've probably heard of the Silver Record. Most of our Folk have, if only in pa
 
 5 
 
-**==> picture [373 x 26] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-| Me CaWIAhe Silver Recor? samwmacum cameums Zara”<br>**----- End of picture text -----**<br>
+**
 
 Long ago we, like most tribal folks, kept oral histories. The Galliards of each sept preserved simple chants, rhymes and tales, then recited them at the moots. Depending on the moot, the lorekeeper might retell the deeds of great heroes, tell a story of compassion, or raise an old war-chant to drive his people into a frenzy. Although they preserved old legends, these stories were pretty much custommade; each lorekeeper hada slightly different spin on what happened. Some Galliards preferred to remember the great deeds a given hero performed — how Gunderthorn Vargarssun strangled three fomori to death with his own intestines, for instance — while another would emphasize the sacrifices he made — the pain he endured while he fought, the tearful farewell he made before expiring — and still another would play up the importance of his deed — how Gunderthorn was all that stood between the Wyrm-things and the sacred Spring of Merraton. Each lorekeeper would phrase things a little differently, customizing them for his audience or tailoring them to the occasion. Even so, the core of the legend— that Gunderthorn died valiantly after killing a pack ofWyrm-spawn with his own guts — was passed on, and endured. 
 
@@ -103,10 +88,7 @@ Before the Gauntlet, only Tricksters had the knack of lying — or the Tall Tale
 
 6 
 
-**==> picture [341 x 20] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-Nee nemsrmeee. Unturling the Scrolls,wnmane PEREwareen<br>**----- End of picture text -----**<br>
+**
 
 external spiritual compass to guide them, humans turned to the Weaver for guidance, and created logic and reason to master the confusion of a now empty and meaningless material world. 
 
@@ -842,10 +824,7 @@ Remembering the boastful tales of Devon Dark Brow and his mocking laughter of Op
 
 PET Ee 
 
-**==> picture [243 x 19] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-eA .The Silver Recor? sspwenen eum cemmemms6 ow”<br>**----- End of picture text -----**<br>
+**
 
 His pride great before them, he took the quest to seek the lost plant spirits, and gathered his pack. 
 
@@ -917,10 +896,7 @@ In the old days, vampires raised cities filled with degenerate humans that worsh
 
 Breath of my fathers! Wash away the stench of death That hangs across this land! For the walking dead have conspired With their living slaves to construct a maggot-city And to fill it with all the terrors of the night! Oh, the Wyrm was in full-flower here! With his coils and his lies he poisoned the earth. Once, tall towers of black-etched stone rose like anger into the darkness, And the soil was ripe with rotting carcasses That not even a fly would touch! Inside the walls, fountains flowed with the stolen blood of babes, And plants flowered with green ichor and purple blossoms. Such was the malaise upon the sof that Falcon himself Descended from the clouds to cry for a cleansing! And so we have gathered, from four tribes, we come: Dol-ah-Shen, the Strider with savage eyes! Isthsmene and Medusa, most briliant Furies! Grantor the Get, with bloody paws! Iskeka the Fang, with snapping jaws! 
 
-**==> picture [2 x 16] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-|<br>**----- End of picture text -----**<br>
+**
 
 52 
 
@@ -1086,10 +1062,7 @@ Night is to me what love was to your kind:
 
 O purposeful concealer and party to my thirst! Let the wombs of all innocents be split like 
 
-**==> picture [1 x 17] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-|<br>**----- End of picture text -----**<br>
+**
 
 The hare whose race has failed 
 
@@ -1191,15 +1164,9 @@ Our cousins are too much of each, | fear, And too hungry to care for giving than
 
 Feasting on the eyes of their own fallen ones. For if they could but see what we do in the shadows of night, They would gut us, kin or no, for our presumption, As once they did before. 
 
-**==> picture [1 x 14] intentionally omitted <==**
+**
 
-**----- Start of picture text -----**<br>
-|<br>**----- End of picture text -----**<br>
-
-**==> picture [3 x 21] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-|<br>**----- End of picture text -----**<br>
+**
 
 . 
 
@@ -1257,10 +1224,7 @@ Of her long battle against the Wyrm’s most insidious minions all were told, an
 
 5 
 
-**==> picture [342 x 19] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-Ne enemas Bright Moon: The New Near mame rumamcwumareream.<br>**----- End of picture text -----**<br>
+**
 
 What was this evil? How did it differ from the greedy or the hungry servitors that escaped the Umbra to threaten the earth? Why was this threat greater than any before? It ate at the very core of Gaia in a way unlike any other Wyrm thing, for the Seventh Generation devoured our children and yet left them whole, with gnawed pits in their hearts which spread corruption unseen as years pass. Years upon years of abuse did they heap upon the young, not with their own hands, but through the hands of parents — wounded children themselves a generation before. An inheritance of hate they sowed, and ensured with each brood that the new was tainted by the old. So deep are the scars carved in childhood that those who grow to adulthood without succor and love cannot escape erecting dread chimares oftheir dreams, ever haunting them and causing them to taint all they touch. 
 
@@ -1324,10 +1288,7 @@ So it is said! Let all who do not cower heed! Open eyes and nostrils and seek ou
 
 Root out the poison but forget not to heal the wound, lest it fester again and birth worse tumors. This our lesson be, that evil within is the greatest enemy. 
 
-**==> picture [4 x 26] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-|<br>**----- End of picture text -----**<br>
+**
 
 76 
 
@@ -1341,20 +1302,11 @@ But even should something happen to me or the Record, the spirits remember what 
 
 77 
 
-**==> picture [302 x 19] intentionally omitted <==**
+**
 
-**----- Start of picture text -----**<br>
-Te Caa AThe Silver Record nasrwmnanemm osama<br>**----- End of picture text -----**<br>
+**
 
-**==> picture [27 x 19] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-Lora”<br>**----- End of picture text -----**<br>
-
-**==> picture [319 x 189] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-tae<br>: —_ . t no ae : at A<br>Glee Language<br>“Ore Language<br>. a oO ee . ; os m a : vs a ae _ a<br>ws " : be a B a ree - * a pohly a a ‘s ue * mee . 7 >, a<br>**----- End of picture text -----**<br>
+**
 
 The glyph language is the perfect vehicle for werewolf expression. TheGarou carve their pictograms with their own claws, as befits creatures of Rage. The | glyphs themselves are very flexible in meaning, and lend themselves to a multitude of interpretations, depending on their context — the same glyph might mean “Gaia” in one marking, or “alive” in another. Although this system seems. unnecessarily simple, it lends itself well to both homid and lupus patterns of _ thought. No other writing can as readily convey the essence of what it is to be a werewolf — and more, what it is to be Garou. 
 
@@ -1366,10 +1318,7 @@ One note of warning: The following explanation of what exactly glyphs are, and h
 
 78 
 
-**==> picture [342 x 21] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-Nee neers as The Language of Glyphs Neenne PURownarween.<br>**----- End of picture text -----**<br>
+**
 
 glyphspeak into a human tongue, it becomes much easier to understand the nuances when they approach it on a more intuitive level. 
 
@@ -1389,10 +1338,7 @@ No matter the medium, the traditional way to inscribe a Garou glyph is with the 
 
 79 
 
-**==> picture [342 x 19] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-Ae we A.The Silver Record namrwmnanemmn vsmmaems6oa”<br>**----- End of picture text -----**<br>
+**
 
 Garou pictograms predate anything even close to modern writing surfaces; after all, it’s commonly held that werewolves were passing written messages to one another even before humans figured out how to bake clay into tablets. The original writing surface was tree bark, making it easy to string together chips to form a story in physical form, whether worn as a necklace or handed from storyteller to storyteller. Although certainly a limited method of storing information, it worked well with the werewolves’ oral traditions. Each pictogram served as a mnemonic, allowing the storyteller to recount what glorious deeds had been done and in which order. 
 
@@ -1460,15 +1406,9 @@ Ka Silver Recor? nasewmmancmmr ccmmaumas€ ora’
 
 ## Get of Fenris 
 
-**==> picture [26 x 24] intentionally omitted <==**
+**
 
-**----- Start of picture text -----**<br>
-r a<br>**----- End of picture text -----**<br>
-
-**==> picture [24 x 27] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-fr<br>**----- End of picture text -----**<br>
+**
 
 The Get of Fenris’ glyph symbolizes the “wolf born of wolf’; in their case, direct descent from Great Fenris. A few younglings have commented on the glyph’s similarity to the swastika, and wonder if, after centuries of the night-fear, certain humans didn’t subconsciously associate the symbol with domination and strength. Most elders strike the offending philosophers with brutal speed and force for such a suggestion; sometimes they bother to add that the youngsters might try looking up just what the swastika meant before they start jumping to conclusions. Glass Walkers 
 
@@ -1484,10 +1424,7 @@ Glass Walkers took their current name, and amended their glyph to represent the 
 
 When the Talons becamea tribe, they chose to represent themselves with a simple glyph, easily drawn even in Hispo. Their glyph is emblematic of the tribe’s primal side and connection with their Rage. The tribal name of “Red Talons” came later, and one myth holds that it was coined by a horrified Fianna who observed a Talon attack, very red in tooth and claw. The Talons didn’t object to his characterization. 
 
-**==> picture [23 x 20] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-rT a<br>**----- End of picture text -----**<br>
+**
 
 ## Shadow Lords 
 
@@ -1497,70 +1434,7 @@ The Lords’ glyph represents not so much an object as an action — it’s carv
 
 ne aT Silver Record nasewmmancmm commamms ow” 
 
-**==> picture [167 x 51] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-
-Silent Striders withThethe Stridersglyph foridentify“journey,” themselveswith an added emphatic to represent the tribe members themselves. This element is carved thin and close to the contours of the “road,” emphasizing subtle, silent passage. 
-
-## Silver Fangs 
-
-**==> picture [2 x 12] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-
-The glyph for the ruling tribe is based onan element witha dual meaning: both “destructive” and “silver.” The two marks enclosing the center element are indicative of rank, not unlike a crown; the Fangs also use this motif to denote nobility when carving the pictograms for their various noble houses. | 
-
-## Stargazers 
-
-The Stargazers’ pictogram is selfexplanatory —a glyph for “star,” someF what elaborated upon in order to con‘ vey added importance and meaning. This refers to the Stargazers’ penchant = for astrology, true; but it is also a near/ to all things. Stargazer cubs are often )[oa] koan for the hidden meaning intrinsic 4 > advised to meditate on the symbol, in ; A \ a orderlesson appli s tto refl **e** ct **o** nallhow things.thepictogram’s ; 
-
-86 
-
-Se 
-
-Language of Glyphs Neenwane PURE, 
-
-## Uktena 
-
-The Uktena glyph is somewhat confusing even to other Garou. Althoughthat imply it clearly “rite,”contains the the central combina-elements tion of claw strokes doesn’t appear anywhere else in the greater body of werewolf glyphs. Most presume that it’s some sort of mystic symbol with a connotation known only tothe Uktena themselves. The Uktena, of course, keep the secret for themselves. 
-
-## Wendigo 
-
-The Wendigo’s glyph symbolizes the wind across the face of the moon. It’s essentially a metaphor for the cold northern nights that represent what it is to be Wendigo to the core — harsh and unyielding, but still with sufficient grace and beauty. 
-
-## Croatan 
-
-The tribes of the Pure Ones each chose to identify themselves with their totems. In the Uktena and Wendigo’s case, this meant taking the name of Fortheirthe totemCroatan, as the nameit meant of theirusing tribe.the glyph of their totem, Turtle, to represent themselves. 
-
-**==> picture [96 x 341] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-
-87 
-
-aT Silver Record namrrmnanemmn cxammnemas Lora” 
-
-## Bunyip 
-
-The Bunyip didn’t use any one particular glyph for themselves during most oftheir history. Upon initial contact with their European cousins, they settled on a common glyph meaning their homeland and personal territory — a glyph combining the element of “land” with the mark of their totem, Rainbow Serpent. 
-
-## White Howlers 
-
-The White Howlers were a simple tribe, and their glyph was equally simple. Like their cousins, the Fianna, the Howlers identified themselves with the symbol for “howl” — but where the Fianna chose to stress the song aspect, the Howlers added emphatics of a slashing, rending, violent connotation to emphasize their warlike, berserker nature. 
-
-88 
-
-Nee semso mmc eme The Language of Glyphs Nan mane remmeceranareraan. 
-
-## Black Spiral (Dancers 
-
-The Dancers, alone among the tribes, didn’t choose their tribal glyph. For some time after their fall, legend has it, the only use they had for pictogram writing was clawing madly at the Ver walls. During that time, the Gaian Garou who first learned that an entire tribe had fallen to the Wyrm were horrified by the thought. To represent the horror, madness and corruption that the Dancers represented, they took the glyph for the Wyrm and added a host of frenzied, mad emphatics. As a result, the Black Spiral Dancers’ glyph is almost painful to look upon— neatly conveying how their Gaian cousins feel about them. And with the demented practicality common to the Wyrm-wolves, the Dancers gleefully adopted this mark ofhorror and insanity as their own. 
-
-**==> picture [86 x 87] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-Veg<br>Wd<br>**----- End of picture text -----**<br>
+**
 
 89 
 
@@ -1610,67 +1484,29 @@ aS: Caern Pw alliance
 
 Gnosis 
 
-**==> picture [37 x 120] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-“<br>d<br>Wisdom<br>**----- End of picture text -----**<br>
+**
 
 ## The Ways 
 
-**==> picture [64 x 181] intentionally omitted <==**
+**
 
-**----- Start of picture text -----**<br>
-=<br>Moot<br>Garou4<br>**----- End of picture text -----**<br>
+**
 
-**==> picture [63 x 80] intentionally omitted <==**
+**
 
-**----- Start of picture text -----**<br>
+**
 
-Glory 
-
-**==> picture [110 x 99] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-/ a<br>Kinfolk<br>**----- End of picture text -----**<br>
-
-**==> picture [53 x 242] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-4<br>Za<br>The Litany<br>Rage, frenzy<br>**----- End of picture text -----**<br>
-
-**==> picture [9 x 41] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-
-Honor 
-
-Lost Cub 
-
-**==> picture [9 x 80] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-iS<br>**----- End of picture text -----**<br>
-
-**==> picture [1 x 16] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-|<br>**----- End of picture text -----**<br>
+**
 
 Nee semse vee The Language of Glyphs Nex: mmo remamewumarwaan. 
 
 ' S C7SE Alpha Silver Pack Ronin Jmpergium War of Rage 
 
-**==> picture [26 x 15] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-Klaive<br>**----- End of picture text -----**<br>
+**
 
 ne Daan an Che Umb C. <a >[a] e@ UmMora Xe Umbra Spirits, enigmas Rite 
 
-**==> picture [93 x 105] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-><br>ff<br>Realm<br>**----- End of picture text -----**<br>
+**
 
 93 
 
@@ -1678,178 +1514,23 @@ Pe CEIAThe Silver Recor? napwenancmmn crmmmeem
 
 oa’ 
 
-**==> picture [64 x 84] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-<><br>Rite of Passage<br>**----- End of picture text -----**<br>
+**
 
 Fetish 
 
 Spirit (Jaggling, Gaffling) 
 
-**==> picture [26 x 12] intentionally omitted <==**
+**
 
-**----- Start of picture text -----**<br>
-
-Rite of Binding 
-
-Celestine 
-
-Totem 
-
-P 
-
-Rite of the Fetish 
-
-Jncarna 
-
-Deep Umbra 
-
-| 
-
-ee ee Dark Umbra Middle Umbra 
-
-Moon Bridge 
-
-| 
-
-, 
-
-94 
-
-Ne 
-
-eee senso mmvasse The Language of Glyphs Neemune FUREwUnree 
-
-## Umbral Realms 
-
-Abyss 
-
-Atrocity Realm 
-
-Erebus 
-
-Aetherial Realm 
-
-Battleground 
-
-Flux 
-
-Arcadia Gateway 
-
-CyberRealm 
-
-Legendary Realm 
-
-95 
-
-ne OT 6he Silver Recor? nasnrenanemm crmmnums Zora’ 
-
-Pangaea 
-
-Wolthome 
-
-The Scar 
-
-Malfeas 
-
-Summer Country 
-
-Gaiae and Mature\ 
-
-Gaia 
-
-The glyph for Gaia is perhaps the Garou’s most familiar and commonly used glyph. It means not only Gaia the Celestine, but also earth, life, peace, all that is good — one simple claw mark defines everything that the Garou are willing to die, suffer and fight for, no matter the odds. 
-
-. 
-
-; 
-
-96 
-
-Nee nemcs mv euse The Language of Glyphs Nex: mmmevemmmceemareemm. 
-
-Luna, the moon 
-
-Animal, beast 
-
-Claw 
-
-Dragon, Mokolé 
-
-Helios, the sun 
-
-Horse, Prey Animal 
-
-Tooth/Fang 
-
-Raven, bird, Corax 
-
-Star 
-
-Fish/Sea Creature 
-
-Bone 
-
-Spider, Ananasi 
-
-97 
-
-ae CAIAThe Silver Recor? napwmnanewmr nameum€ Lora’ 
-
-4 
-
-Shark, Rokea 
-
-Cat, Bastet 
-
-Fox, Kitsune 
-
-Rat, Ratkin 
-
-Coyote, Muwisha 
-
-Boar, Grondr 
-
-Snake, Yagah 
-
-Bear, Gurahl 
-
-Cow, Moon Bull, Apis 
-
-Bat, Camazotz 
-
-98 
-
-Nee semso mses The Language of Glyphs Neenne FUREwurene. 
-
-**==> picture [162 x 13] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-Wilderness Forest<br>**----- End of picture text -----**<br>
-
-**==> picture [179 x 276] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-Desert/Wasteland Air, wind<br>Fire Water<br>4<br>ark Stone<br>**----- End of picture text -----**<br>
+**
 
 Mountain 
 
 Earth 
 
-**==> picture [88 x 137] intentionally omitted <==**
+**
 
-**----- Start of picture text -----**<br>
-Metal: silver<br>(neutral connotations)<br>Tree<br>**----- End of picture text -----**<br>
-
-**==> picture [14 x 9] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-
-**==> picture [352 x 262] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-ee Ka Silver Recor? nasrownneums cxmmeems Lora”<br>: 4 iv 4<br>sy 6.6 “-<br>Snow Rain Lightning Storm<br>Gn’<br>Tm KK<br>Flood Winter Spring<br>**----- End of picture text -----**<br>
+**
 
 Summer 
 
@@ -1871,193 +1552,9 @@ Language of Glyphs Nesmune enanrwunsrween.
 
 ## Cotems 
 
-**==> picture [160 x 114] intentionally omitted <==**
+**
 
-**----- Start of picture text -----**<br>
-“<br>&<br>c<br>Pegasus Rat<br>**----- End of picture text -----**<br>
-
-**==> picture [25 x 33] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-
-Unicorn 
-
-Stag Fenris Cockroach p an : Z a, A Griffin Grandfather Thunder Owl 
-
-Jol 
-
-nae CamI AChe Silver Recor) mewmmemmr vsamemm€ Lore” 
-
-Falcon 
-
-Chimera 
-
-Uktena 
-
-Wendigo 
-
-102 
-
-Ne SS[rernemermveswe] The Language of GlyphNar mame renamreunarraan. Che Planets/Zodiac Signs heMercury/Mitanu ieDulean/Hakahe LINVenus/Cambiyah Y, VIS we RS AR Mars/Merigal Earth/Eshtarra Asteroid belt/Rorg ” ‘ 
-
-Jupiter/Zarok 
-
-Saturn/LuBat 
-
-Uranus/Ruatma 
-
-TP PS CeA A.The Silver Recor? nsomewune cranes Lara” 
-
-Yeptune/Shantar 
-
-Pluto/Meros 
-
-Moon/Sokhta q' 
-
-Red Star/Anthelios 
-
-Nee nener en amecere rowanmune FEunrouen. 
-
-Silver Fang Specific 
-
-Lodge of the Moon 
-
-Lodge of the Sun 
-
-104 
-
-Nee nenee mee The Language of Glyphs Ne mame eemamewemareaan. 
-
-House Austere Howl 
-
-House Blood-Red Crest 
-
-House Crescent Moon 
-
-House Gleaming Eye 
-
-House Unbreakable Hearth 
-
-House Wise Heart 
-
-House Wyrmtoe 
-
-Siberakh 
-
-105 
-
-PT AS 
-
-IAThe Silver Recor? napwmneemmn osama 
-
-oa” 
-
-Wyrm 
-
-The glyph for “Wyrm” connotes pure evil; it is the Garou’s best way of expressing enemy, evil, hatred, malice, decay, and most other things of such nature. When a werewolf growls that something “smells of the Wyrm,” it is because that’s the best way that human language can express what the effect of scenting violation and corruption and rot is like. Outsiders, of course, have a tendency to take this literally, and presume that werewolves blame everything from toxic waste spills to parking tickets on the Wyrm. But then again, to outsiders, “Wyrm” is just a word. To Garou, it is a smell, a feeling, an acidic taste — it is palpable decay, and to them, no word better carries such an impact. 
-
-Defiler Wyrm, pollution, atrocity, violation 
-
-Beast-of-War, warfare, slaughter 
-
-Eater-of-Souls, gluttony 
-
-106 
-
-Nes heersemco mene The Language of Glyphs Neenne PERerrunrenen, 
-
-| 
-
-wwe * 
-
-Apocalypse 
-
-Bane 
-
-Dampire 
-
-Radiation 
-
-Black Spiral Dancers 
-
-Urge Wyrm 
-
-Abomination 
-
-Toxic Waste 
-
-Fomor, fomori 
-
-Monsters 
-
-Hive 
-
-Factory/Pollution 
-
-107 
-
-errcmerrmmanire oem ral oT he Silver Recor? awrmnanwm vsemmnenas one” 
-
-## The Weaver 
-
-Weaver 
-
-City 
-
-Road 
-
-Park 
-
-Metal 
-
-Building 
-
-Gur 
-
-108 
-
-Nec bee samer mses The Language of Glyphs Nex mame remumcermnareraai. 
-
-## The Wyld 
-
-The Wyld; alsa chance, change 
-
-## Abstractions and Actions 
-
-Life 
-
-(Death 
-
-Girth 
-
-War 
-
-Peace 
-
-Sacrifice 
-
-109 
-
-anaronamrrmnaa eam rail 
-
-ot The Silver Recor? maroon csmmvemiow’” 
-
-Sex, intercourse 
-
-Love 
-
-Story 
-
-Howl, song 
-
-Hide, conceal 
-
-Safety 
-
-**==> picture [161 x 64] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-Sq<br>Travel<br>**----- End of picture text -----**<br>
+**
 
 (Dance 
 
@@ -2065,26 +1562,17 @@ Jump
 
 (Danger 
 
-**==> picture [119 x 64] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-Ss<br>Gans<br>Quest<br>**----- End of picture text -----**<br>
+**
 
 H0 
 
-**==> picture [345 x 370] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-a Language of Gluphs ena<br>‘e><br>FN” } ‘<br>Create; also used as Repair, mend Put together, join, build<br>artist, author, creator<br>© I}<br>Suffering, pain woDefiance Convalescence, regeneration<br>)<br>( Oc<br>**----- End of picture text -----**<br>
+**
 
 Put together, join, build 
 
 Convalescence, regeneration 
 
-**==> picture [98 x 73] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-Oc<br>**----- End of picture text -----**<br>
+**
 
 Therapy 
 
@@ -2130,15 +1618,9 @@ Jn memory, remembered, dead
 
 HZ 
 
-**==> picture [340 x 19] intentionally omitted <==**
+**
 
-**----- Start of picture text -----**<br>
-mrrurrmmnreee a at Cie Silver Recor? amnmommresac”<br>**----- End of picture text -----**<br>
-
-**==> picture [328 x 183] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-a ee oe eae ee es<br>Ee ee ke<br>Sa a ee<br>Bo Tee ciel apc. es ics fe Sg<br>._ gov ge See ea ee ae Sa RR To<br>**----- End of picture text -----**<br>
+**
 
 As much as the other Changing Breeds might be loath to admit it, the Garou have the most detailed and complete system ofshapechanger-specific writing, bar none. Certainly this has something to do with the cultures of the werebeasts involved; not one Changing Breed has the sort of group mentality that the werewolves possess. Whether they envy it or dismiss it, there’s no denying that the Garou’s pictoral code is the slickest one available. 
 
@@ -2162,10 +1644,7 @@ iat Che Silver &cord sawrrmmanemmn vesamavmmLona”
 
 particularly dire warnings in stone or concrete. As thin as the lines are, Bastet glyphs are hard to notice easily; Storytellers may well call for Perception tests of high difficulty for players even to note such markings at all. 
 
-**==> picture [305 x 456] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-o<br>o<br>Oo<br>6/e<br>Caghairm Kala Rajah<br>o<br>3<br>Cahlash Seline Gaia<br>Asura Oathbreaking, oathbreaker Garou<br>**----- End of picture text -----**<br>
+**
 
 6 
 
@@ -2187,59 +1666,29 @@ There are exceptions, of course. The Swara ate denoted by their territory of Afr
 
 Finally, the Ajaba’s glyph is not the one the Ajaba use for themselves; indeed, the Ajaba’s entirely different claw design makes them ill-suited to carving Bastet symbols. Instead, the Simba were the ones to mandate that the Ajaba be represented by the territorial mark for Africa, crossed with the mark ofoathbreaker. Ta the Ajaba, this is just one more insult added to the litany of injuries they’ve already suffered. 
 
-**==> picture [39 x 12] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-Bagheera<br>**----- End of picture text -----**<br>
+**
 
 Khan 
 
-**==> picture [28 x 12] intentionally omitted <==**
+**
 
-**----- Start of picture text -----**<br>
-Balam<br>**----- End of picture text -----**<br>
+**
 
-**==> picture [29 x 11] intentionally omitted <==**
+**
 
-**----- Start of picture text -----**<br>
-Quali<br>**----- End of picture text -----**<br>
-
-**==> picture [37 x 11] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-Pumonca<br>**----- End of picture text -----**<br>
-
-**==> picture [26 x 11] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-Simba<br>**----- End of picture text -----**<br>
+**
 
 HW8 
 
-**==> picture [339 x 333] intentionally omitted <==**
+**
 
-**----- Start of picture text -----**<br>
-Swe eeenemco tm Appendix One: Che OtherI,en<br>Swara Bubasti<br>Ceilican Ajaba<br>**----- End of picture text -----**<br>
+**
 
-**==> picture [82 x 16] intentionally omitted <==**
+**
 
-**----- Start of picture text -----**<br>
-Cerritories<br>**----- End of picture text -----**<br>
+**
 
-**==> picture [25 x 20] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-Africa<br>**----- End of picture text -----**<br>
-
-**==> picture [152 x 20] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-Europe Morth America<br>**----- End of picture text -----**<br>
-
-**==> picture [14 x 9] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-#9<br>**----- End of picture text -----**<br>
+**
 
 a: aKehe Silver Recor? saremancumresmmsens Loe” 
 
@@ -2257,18 +1706,7 @@ There’s only one designiprinciple behind theGirax's system of trail markings: 
 
 Party! 
 
-**==> picture [15 x 10] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-
-re a aa 
-
-The Silver Recor? ssrmman emer vent Lloe” 
-
-**==> picture [325 x 57] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-Re a a oe oe ait og!<br>i ALD DENK: CWO"<br>**----- End of picture text -----**<br>
+**
 
 ## Immortality 
 
@@ -2288,10 +1726,7 @@ Certainly, having a tale éngered into the Reco#d#gii’t going to be nearly as 
 
 By tradition, the Garounever kept the Silver Record in only one place at one time. Great Galliards, the Keepers of the Record, maintained the history in secret sacred places, raret than caerns — the Lodges of the Silver Record. There they maintained it in its fullness, passing their duty on from one generation to the next, teaching its lessons to those who came seeking wisdom. Now, in the End Times, there are few of the sacred lodges remaining; depending on the Storyteller’s whim, there might be as many as ten in all the world, or as few as one. Toactually add something to the Record has always requireda rite, a powerful rite granted only to the most worthy. This rite, the Song of Ages, is one of the 
 
-**==> picture [372 x 27] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-| Oe ef Che Silver Recor) sswwenenoumr ccammnemasE Lora”<br>**----- End of picture text -----**<br>
+**
 
 badges of office of the Keepers of the Record. It’s almost impossible to find a ritemaster who knows this rite at any sept; only a few remain. 
 
@@ -2313,8 +1748,5 @@ Finally, remember that having one’s deeds entered into the Silver Record is es
 
 fese ape ge roles. oF GOPY Pyese Ure Bheetcles OF rool : fesserea 7 gpe-\ the.&') tiesbis so oF.cant KoaWhsclomeae f Chose ape the stoples of those who have cone otors, ane CHO} StoP1es1 2 yet a be told, 0) |boythose phoA GREYne Aad Mi ean i Great ate Srey oven today, Che tales of the Prst Civics, | olddis wars, andx the &nd’ Cimesae Ie | all are containedi, ah \ wuorthin,seit) pate ‘Chose>) gre thet legends5 that, you, too,i, way: become,| : bsg (Chisgout te is, ther Silveya8 es OS3) ocor9,RoE 
 
-**==> picture [360 x 113] intentionally omitted <==**
-
-**----- Start of picture text -----**<br>
-GAMES FOR MATURE MINDS<br>WW32,10 AOS<br>mt a a ee 51495<br>Ok FNC Goi y 1 \ ay : )<br>ee ie } S [ Yon ices alee See”, / / | : Ht<br>Gade SPUDTO \ = . M3156 0045000 |<br>**----- End of picture text -----**<br>
+**
 
